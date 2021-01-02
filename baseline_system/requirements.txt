@@ -1,0 +1,2 @@
+sentencepiece==0.1.91
+git+git://github.com/pytorch/fairseq.git@01fcec5
