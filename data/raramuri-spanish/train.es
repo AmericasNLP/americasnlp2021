@@ -1,1235 +1,3 @@
-dame un poquito
-si te lo enceuntras , me lo entregas
-Anoche se murió uno , un chiquito , el hijo de Servando . - ¿ pero , qué no buscó ( vino a pedir ) medicina ? - si ; pero se agravó mucho ; ayer por la mañana decía que tenía mucho dolor , y a la media noche se murió .
-¿ dónde está mi huarache ? - búscalo tu mismo .
-¿ entendiste ? - sí
-sí comeré , si me dan de comer
-¡ ya fuiste a verlo ? - sí , ya lo vi
-sí lo sé
-sí te lo guardaré
-¿ no llevas un papel allá abajito ? se lo das al presidente . - sí se lo llevo
-¿ comerán ustedes ejotes ?
-¿ voy yo con él ?
-claro que sí sé
-sí que sangra !
-tú aguardarás aquí hasta mañana . - sí , está bien
-¿ se fue a beber Rodrigo ? - sí ; es que es muy bebedor
-¿ sabes a Ba´wichiki ? - sí
-también
-cuando el venado hablaba , también la rana hablaba
-¿ y el estómago te duele ? - también
-ah ! ah ! me iba a emborrachar !
-ay ! me espiné
-ay ! me piqué !
-las está marcando todas ( las reses )
-eso es la misma cosa
-¿ llegaron todos ya ? - todos están ya
-yo no . - yo tampoco
-andaba buscando animales como suelen todos los rarámuris , buscan animales para comer ( Lit . comen buscando animales ) , animales del monte
-si fui a kwechi en días pasados ; fui a buscar chile piquín
-( 1 ) más temprano , bastante temprano , ( tempranito )
-yo voy a estar ( sentado ) tocando el violín
-parece que habrá que buscar otro
-¿ te gustó ? - sí
-¿ ganaste en la carrera ? - sí
-sí voy a echar un discurso - eso es !
-pero ¿ alcanzarán las flechas ? - sí alcanzarán bien
-¿ conoces esto ? - sí lo conozco
-también
-también
-sí
-todavía no me voy a dormir ; es temprano
-¿ no ha venido Rodrigo ? me citó aquí ; dijo que vendría hoy temprano
-hace rato lo ví
-hace rato sí pude
-¿ llegaste al medio día ? - llegué antes
-hace un ratito
-hace un ratito
-hace poquito que andaba aquí , hace un instante
-comí hace un momentito
-voy a entrar . - y yo también
-también tú te vas a bañar
-sería bueno danzar matachines . - y tutuguri también
-¿ y Nemesio ? - hace un momento se fué
-comí hace poquito
-también
-todavía está cerrado
-todavía están tiernos ; aún no han sazonado ( se han endurecido ) las mazorcas .
-( a ) ( ellos , nosotros , ustedes ) mismos , a sí mismos
-animándonos unos a otros
-nosotros mismos somos culpables de que no llueva
-arréglenlo ustedes mismos
-danzas no nos ordenan ; la danza será pensamiento de nosotros mismos - iniciativa nuestra )
-ellos mismos lo dirán claramente , cuando hayan llegado
-porque ustedes mismos conocen a los indios que quisieran vender
-¿ los sembraste tú ? sí ; es que no nacen solos
-El nos da el alimento ; que no lo logramos nosotros por nosotros mismos
-nosostros hemos sido sembrados ; no hemos brotado por virtud nuestra ( Dios nos creó : no tenemos el ser de nosotros mismos ) .
-voluntariamnete , por propia iniciativa , no forzados
-hay que venir aquí espontánemente
-reúnanse ustedes por su propia voluntad ; no importa que no pasen ( avisándoles ) los Capitanes
-sin aborrecernos unos a otros ; hagamos un buen ensayo
-este año hicimos la semana santa así no más , entre nosotros ; el año pasado vino el padre
-se daban ( a sí mismos ) puñetazos en la cabeza , de coraje
-no será por orden nuestra por lo que saldrá el lucero
-que ellos mismos digan ; nos vamos a quedar roncos de tanto litigar ( con ira )
-no es por nuestro propio poder por lo que tenemos la vida
-fuí a buscar las reses
-lugar de táscates
-nativo o habitante de Aboréachi
-¿ es este el que dices que le compraste a Abraham ?
-¿ es Abraham ese ? - parece serAbraham
-mal me corneó la vaca
-¿ cómo se pone a cornear un toro ? - pues con la cabeza
-el toro estuvo corneando la tierra y los pinos y donde había táscates , con mucho coraje
-parece ser un buen portamonedas ( o billetera : LIT . para poner dinero )
-el talego es para poner el pinole
-antes sí venían , cuando yo les decía
-no da vueltas ; ya se atoró
-voy a poner la carne en los frijoles
-ponlo adentro a que se seque
-pusieron al niño aquí adentro ( lo inscribieron en la escuela )
-lo dejé adentro y me fui
-dejaré esto aquí ; es una apuesta
-voy a dejar aquí el frijol ; después lo recojo
-¿ quién , si no , creó ( colocó ) este mundo ? Dios solo lo creó
-hermosamente creó este mundo que pisamos
-depósito - , soporte , objeto para poner ( en él ) alguna cosa
-poner , colocar ( una cosa )
-ponerle ( una cosa a otra )
-ponérselo
-ponerle ( a alguien )
-¿ cómo te llamas ? - me dicen Quirino
-¿ cómo le dicen a esto los tarahumares ?
-le sonó ( pegó ) muy fuerte
-le dí muy duro !
-ponle ( al monte de ) chichimoco ; le va a dar mucho coraje
-pero dale fuerte , a ver si así entra en juicio
-eso dice
-¡ cuántas cosas dices de pura tristeza !
-mucho dices , pero no haces nada
-dice que ( vengan ) desde muy lejos
-así pues , parece que no tienes ganas de ir
-ponle al pinole . - después , cuando esté hirviendo .
-ya se va saliendo ! ponganle una piedra !
-ponle el pinole . - después cuando esté hirviendo
-se lo pusieron ( un adorno ) a la corona de danzante
-luego que le haya úesto estiércol ( a la tierra ) , entonces dice que se va a sembrar
-tortilla rellena ; a la que le pusieron frijoles adentro
-¿ dónde lo pongo ?
-nadie más que Dios nos ha dado el aliento
-¿ quién pues , es el que te dió el alma ?
-como nos han hecho hablar ; del modo como Dios nos dio el habla
-carga
-ponérselo
-me estoy riendo de ti
-no más te estás riendo de mi
-vamos a aporcar las papas
-¿ cuándo , pues , vienes a traajar aquí ? no más que acabe de aporcar
-voy a bolear las milpas
-acabé de trabajar muy enfermo , aporcando mis milpas
-y la carga ( las baterías de una linterna eléctrica ) ¿ cuánto cuestan ?
-aquí paso las noches cuando ya jilotea el maíz
-¿ como han pasado estas noches ? ( saludo del cacique de Banarachi a su pueblo )
-¿ amanecieron ustedes con bien ?
-aquí abajito paso las noches ; paso las noches cuidando mis sequitos ( mazorcas que se secan )
-¿ cuántos meses tiene el niño ? - nació cuando se aporcaba el maíz
-ponmelo arriba
-pónmelo más ariba
-asado ( cecina ) : carne seca , a la que se le ha puesto chile ; se llama así porque se come asada
-frijoles con tropiezos de carne
-¿ de qué es esta agua ? - es ( agua cristificada ) ( ! ) ( lo dijo una india de una olla de agua en la que se había sumergido un crucifijo )
-parece que allí está bien para bañarnos
-ve por agua ; ve por agua allí
-es que él me hizo reír
-también Lirio lo vió
-yo no te dije se fué corriendo ; te dije corrió . - es lo mismo
-a mí también me sucedió igual
-y del mismo modo ustedes , las viejas ( las mujeres ) ; reúnanse todos los domingos
-este cinco ; ¿ y tú ? - yo otros tantos
-pónmelo adentro
-después me lo pones encima de la troje
-nadie más que Dios nos dio el alma
-Dios nos dio el habla
-puesto que nos fue dado este corazón
-¿ dónde te lo pongo ?
-le dije una cosa y se rió
-por poco me río adentro , cuando rezábamos
-por eso me reía
-lo escondió Valerio ; está como queriendo reírse , míralo
-reírse ; reírse de otro
-hacer reír
-hacer reír
-risa , risotada . el reír
-dice que Manuel se rió mucho
-yo quiero un arco . - yo también
-el aporque ; el tiempo en que se aporca el maíz , en que se bolea , arrimándole tierra al pie de las plantas
-ya es desde el pasado aporque ( del maíz )
-me hiciste reír
-a ver , lo voy a hacer reír yo
-dejen definitivamente esas risas
-no hay que reírse
-siempre hagamos la cruz ; continuamente pidamos perdón
-el dolor en continuo ; sólo muy de tarde en tarde me deja de doler
-siempre anda oliendo mal ; cuida cabras , por eso ya está impregnado
-vamos derritiendo la trementina . - ¿ dónde ? - en la lumbre
-lo bebes disuelto en agua ( LIT . te lo bebes con agua disolviéndolo )
-¿ en qué lo echamos para derretirlo ?
-¿ en qué te lo disuélvo ?
-¿ tú eres el cocinero ? - sí - hazme el favor de derretírmelo ( enseñandole el objeto )
-se disuelven la manteca y la nieve y el azúcar ( el dulce )
-la sal de deshizo en el agua
-se va a deshacer la sal ! hazla a un lado !
-no más que salga el sol , luego se derretirá la nieve
-( 1 ) derretir , disolver , deshacer , fundir
-derretírselo , disolvérselo , deshacérselo , fundírselo
-fundirse , derretirse , disolverse , deshacerse
-disolver , fundir , derretir , deshacer
-¿ qué , les tienes miedo a las muchachas ? - sí
-cuándo eras chiquito ¿ tú comiste cocido de carne ? - sí
-y luego , cuando andaban buscándolo , él estaba con María
-me lo voy a comer ( el dulce ) convidándole al caballo , si no camina
-dice que nos darán trabajo por maíz ( dándonos maíz ) ; de aquí a dos semanas ganarán ustedes mucho maíz
-y Dios se llevará consigo ( LIT . jalará ) a los buenos
-era ya domingo , día 17 de agosto de 1947
-tráete para acá usa cobija ; no sea que alguien ( algunos ) se la lleve
-hizo enfermar a algunas mujeres ; algo les haría comer
-a mí ya me estupraron , dicen algunas
-unos no quieren ; otros dicen que si quieren
-otros ( en contraposición a a estos , esos ) ; distintos
-esos eran otros
-todavía muchos rarámuri creen así ; porque por nada del mundo son capaces de creer ya otras cosas
-otros ( otros más a parte de estos )
-Beto puso allá otros ( más )
-en ( o : hacia ) algunas partes , algunos lugares
-los otros
-como venados ( salvajemente ) vivien en algunas partes
-parece que ya hay elotes en algunos lugares
-en algunas partes , en otros sitios
-los de otras partes no saben hacer esto
-sólo unos cuantos no quieren
-es que allá andan algunos ( unos cuantos )
-a los otros no los conozco
-cuando ya estaba sin sentido ( para morir ) , llegaron los otros
-¡ qué pena , ya se acabaron !
-ay , me duele mucho !
-¡ qué pena ! dices que no tienes !
-ahí viene ( hacia acá ) ! ahí viene !
-acá viene Pablo
-se fue por acá
-vete mejor por acá
-ya se agujereó el huarache ; lo desgasté muy pronto
-¿ de quién es este huarache ? - mío no es
-¿ qué te hallaste ? - era una herradura de caballo
-descalzarlo , quitarle los huaraches ; quitarle las herraduras ( a una cabalgadura )
-descalzar ; quitarle a otro los huaraches , o a una cabalgadura las herraduras
-descalzarlo
-descalzárselo
-atar el huarache , poner correas al huarache
-correa para el huarache
-hacer que ( otro ) se ponga los huaraches
-calzarse , ponerse el huarache , herrar , ponerle herraduras a una cabalgadura
-calzarlo ( ponerle los huaraches a alguien ) ; herrarlo ( ponerle herraduras a una bestia )
-a ) deszalzarse , quitarse los huaraches
-hacer que ( otro ) se ponga el calzado
-hacer que ( otro ) se ponga los huaraches
-a ) tener , traer huaraches , andar calzado
-ir calzado
-es que parece desgastado ya . - no ; está bueno
-nada más cosas buenas ofrecen
-río arriba dicen que está muy brava la enfermedad ; en Sarabichi dicen que ya están otra vez bien
-de este modo , cuanta cosa es buena , dicen que la hizo Dios
-mejor , más bueno
-el mejor
-¿ está buena ? ( la sal ) - sí ; tiene mucha fuerza
-ya está bien dulce . - a ver , déjame ver
-esta manta está muy buena ; es muy resistente
-no están buenos los frijoles ! pónganles sal !
-dulce , salado , ( en buena sazón )
-endulzarse , ponerse dulce
-endulzar , sazonar con sal
-endulzarse , sazonarlo con sal
-endulzárselo , sazonárselo
-dulce ( endulzador , golosina )
-endulzar
-endulzarse , salarse , tomar sabor con la sal
-desendulzarse , ponerse desabrido , perder sazón
-desendulzar , quitar ( a un alimento ) el sabor a dulce o a sal
-desendulzarlo , quitarle el sabor ( dulce o salado )
-endulzar
-endulzar
-endulzar , sazonar con sal
-endulzar , sazonar con sal
-endulzarlo , salarlo , sazonarlo con sal
-¿ vendes maíz ? - con él vengo ( aquí traigo ) , para que cures ( bendigas ) tú el maíz
-¿ como , pues , viniste con ( con él : el traje de baño ) , y no te bañaste ?
-luego vas tú con ( ello ) , luego lo llevas tú
-otra vez vendré con ( esto ) traeré ( de esto ) otra vez
-¿ y la cuarta ? - yo la traigo ( yo voy con )
-¿ y el bastimento ? - allá por la ladera va con ( allá por la ladera lo lleva . . . fulano )
-¿ con qué está ? ( ¿ qué trae ? ¿ qué tiene en la mano ? )
-a ver ; qué tan larga ( es ) tu naríz ; te la voy a medir
-lavar , lavarse las narices
-en la naríz , de la nariz
-invertir , poner de narices ( boca abajo )
-invertirlo ; ponerlo boca abajo
-invertírselo , ponérselo boca abajo
-invertirlo
-invertírselo , ponérselo boca abajo
-estar con dolor de nariz , dolerle a uno la nariz , dar dolor de nariz
-dolerle a uno la nariz , tener dolor denarices
-tener dolor en la nariz , doler la nariz
-dolerle a uno las narices , tener dolor de narices
-tener dolor en la nariz , dolerle a uno la nariz
-máscara , cubrenariz
-de narices , en la dirección de las narices
-irse de narices , en particular , golpeándose , chocando con la nariz
-echar narices , criar narices
-desnarigar ; cortarle a uno las narices
-desnarigarse , cortarse las narices
-desnarigar , cortar las narices
-ponerle narices ( las n . ) a otro , a un dibujo , etc .
-mover las narices ( vg . olfateando , gesticulando )
-tener narices , tener las narices
-revolví el pinole con dulce
-allí en las encinas vivían algunas moscas que ponían dulce ( abejas )
-lo machaqué y lo exprimí ; lo exprimí muy fuerte ; entonces sale un jugo muy dulce , exprimiendo el maguey
-muy bondadoso espíritu tiene Dios ; muy bondadoso espíritu tiene María Santísima , nuestra Madre
-y nosotros , ¿ qué tan dulce corazón tenemos ?
-danos dulces
-es allá arribita donde hay que endulzarse ( tomar los dulces ) , luego de rezar
-vamos a endulzarnos la boca
-no sea que me ponga salado del estómago
-quiero mucha sal para sazonar la verdura
-no lo remojes ! le vas a quitar el sabor
-endulzo ( el pinole ) con piloncillo y me lo tomo con tortilla
-la muchachita no endulzó bastante el pinole
-¿ con qué lo endulzaste ? - con azúcar
-está muy amargo el atole ! endúlzamelo !
-¿ han pasado ustedes bien los días ? ¿ han ido amaneciendo bien ? ( saludo de un cacique al pueblo , antes de su discurso )
-le pegué en la mera nariz
-echó sangre de la nariz
-no se puede dormir a gusto ; tiene muchas bolas ( LIT . en muchas partes está boluda ) la almohada
-no puedo quitarle las herraduras ; está muy bravo ; quítamele las herraduras tú
-¿ se mueve uno si es escupido ( por el escupión ) ?
-¿ qué es de ti la Ana ? - es mi abuela paterna
-¿ es ( tu ) abuela paterna la anciana ? - no ; es mi abuela materna
-tener abuela ( paterna )
-¡ con esa curación duele mucho la nariz !
-¿ duele mucho la nariz cuando le pasa a uno eso ?
-me duele mucho la nariz ; me arañó un gato
-tengo mucho catarro ; ya me he sonado ( limpiado los mocos ) muchas veces ; desde mañana parece que me va a doler mucho la nariz
-parece que no va a caber nada ( de ninguna manera cabe )
-no cabe
-no pude hablar ; habla en secreto ( está afónico )
-yo alcanzo a labrar diez ( durmientes ) en un día
-con mucho sufrimiento corre ; poco puede caminar ; seguro que va a caer muerto ( LIT . va a quedar tendido para morir )
-préstame la navaja . - ¿ qué vas a hacer ? - a ponerle la correa a mi huarache .
-correa ( para el calzado ) ; atadura del calzado
-soltarse , desatarse el calzado
-hacer que ( otro ) se desate el calzado
-desatar , soltarlas correas , las ataduras del calzado
-desatarle , soltarle a otro las ataduras del calzado
-desatárselo ; soltarle las ataduras del calzado
-correa ; atadura del calzado
-atarle el calzado ( a otro )
-correa ; atadura del calzado
-no puedo desatarlo ; tengo tiesas lasmanos ( por el frío ) ; desátamele tú el huarache
-está muy resistente la correa , no se corta
-se agrieta mucho la correa
-no duran nada las correas ; siempre se andan rompiendo
-hender , partir hendiendo
-henderlo , abrirlo ( hendiendo ) , henderle , abrirle
-abrírselo , hendérselo
-hender , abrir partiendo
-henderlo , partirlo , henderlo , partirle
-hendérselo , partírselo , abrírselo
-a ) transportador en forma de cono ( para acarrear cosas a la espalda )
-el jefe de danzantes anda con máscaras durante la danza
-se cayó de narices
-ponte boca abajo , bebe agua
-no cayó boca abajo , cayó de hocicos
-ponla ( la olla ) boca abajo
-ustedes , que me abren ( los dedos )
-no es herradura de caballo , es herradura de mula
-¿ las herraduras se hacen cuando ( el hierro ) está caliente ?
-¿ de quién es ( este ) huarache ? - es mío
-me pondré ( llevaré puestos ) los huaraches de hule hasta que se acaben
-¿ qué ( calzado ) te vas a poner , si se te acaban los zapatos ?
-ya me acostumbré ( a traer zapatos ) ; voy a tener mucho frío si vuelvo a los huaraches
-ya va echando narices el chamaco ( se va haciendo narigón )
-son los mejores
-aquí no es bueno quitarse los huaraches
-ya se le cayeron al Retinto las herraduras de las patas
-quítamele las herraduras ; vamos a ponerle herraduras nuevas
-¡ no quiere ponerse los huaraches ! quiere andar descalzo . pues hazlo a fuerzas que se los ponga
-¿ está dulce ? - sí está muy dulce
-¡ sal ! que están desabridos ( les falta sal a ) los frijoles !
-cuando ya hayan sazonado , estarán bien dulces las cañas
-estaba re - sabroso el atole !
-¿ sí se te hace sabroso ser azotado con esto ?
-todavía no se han puesto buenas ( o dulces ) las cañas ; aún no están bastante grandes
-desobediente ! te voy a cortar las narices si no haces caso
-me caí y me corté la nariz en una piedra
-primero desnarigó al ratón al quitarle la piel
-córtamele las narices , es muy grosero
-aún no han arreglado nada , desde hace mucho tiempo
-¿ pero en qué vas a llevarte las gallinas ? - pues en el cono
-planta que produce esta flor
-¿ para ponerle las herraduras lo tumbaron ?
-va a quedar muy sabroso el pescado , sazonándolo
-¿ cómo le pondré narices a mi máscara ? va a ser muy difícil hacer la nariz
-ponlo con la nariz en la ceniza ( LIT . tiéndelo poniéndole la nariz en la ceniza )
-¿ por qué el conejo mueve tanto las narices ?
-miel de abejas
-no lo pude abrir
-no voy a dar sazón a los frijoles , no se vayan a acedar
-andúlzalo echándole azúcar para beberlo ; es muy amargo
-esos desovan en el agua
-¿ qué , en la arena ponen sus huevos las tortugas ?
-cómete los nopales sin echarles sal
-vengo a comprar sal , unos dos reales ( 25 cvs . ) - ¿ qué vas a sazonar ? - los frijoles
-les echaste demasiada sal !
-es que le repugna mucho la carne ; no la quiere comer . - pero sazónasela bien ( con sal )
-nos vivimos insultándonos por los montes
-¿ no tienes un cuchillo ? voy a ponerle correas a mi huarache
-de casualidad oyes ?
-¡ ven acá sordo !
-enaro me duelen mucho las plantas de los pies ; ando descalzo ( no calzado )
-el caballo anda descalzo de una ( mano )
-la nutria es muy buena nadadora
-narices de botella !
-llegaron unos muchachos con las narices perforadas ( dicho al comentar una película )
-¡ chiquillo narices aplanadas !
-¡ tú no oyes ! ¡ estás sordo !
-¿ estás sordo ? ¿ no oyes ?
-¿ cuándo nos haces oír otra vez el radio ?
-¿ cuándo echamos a nadar los patitos ?
-moselo oír ( hagamos que lo oiga )
-los de por allá ( tierras lejanas ) tocan precioso el violín ; Ropiri me loshizo oír
-¡ haz que lo ioga pronto !
-lleva abajo los patitos ; echámelos al gua ( hazmelos nadar )
-hace mucho viento , no se oye
-aké no oye mucho ( es duro de oído )
-¿ es que stoy pyendo , o estoy soñando ? . . .
-habla fuerte , que no se oye !
-mi papá oyó que estaba disparando ( un rifle )
-busco un remedio . ve a pedirles allá abajito . es que no oyen ( entienden rarámuri ) las gentes de abajo
-oyente , que oye
-oyente , que oye
-hace oír
-hacerle oír , hacer que lo oiga
-hacerlo que lo oiga
-¿ sabe bien nadar el perro ?
-ayer decía el chamaco que sabe nadar muy bien , que porque es muy hombre
-creció mucho el río ; ya no podíamos pasar ; los caballos nadaron bien
-entonces , los otros luego luego me siguieron ; por poco se atollan ; bastante más acá de Bakaratos , nadaron bien
-hacer nadar , echar a nadar
-hacérsele nadar , echárselo al agua
-hacer nadar , echar a nadar
-¡ ya rompiste los zapatos ! - así los traía ya
-se camina muy de prisa calzado con estos
-así tiene él los huaraches ( observando una huella )
-da mucho calor andando con zapatos
-en una pata no trae herradura
-tiene la nariz respingona
-te cortaría las narices , si no las tuvieras tan chiquitas
-así tiene la nariz
-pero haz que ( lo ) oiga bien
-¿ echamos a nadar a los patitos ?
-de una vez me voy con ellos ( estos zapatos ) puestos
-habla fuerte ! no se oye
-por eso se oye muy lejos
-allí , en cambip , se oía muy fuerte
-no se oye
-confleuncia , junta de dos arroyos , ríos , cañadas
-confluir , juntarse dos corrientes , dos cañadas ; haber confluencia
-el cauce , en el cauce de un río , arroyo , etc .
-en el canal , en la zanja , en la acequia
-acanalar , abrir cauce , hacer zanja
-abrir cauce , hacer canal , acequia
-zanja , canal , acequia
-acanalar , hacer cauce , canal , acequia
-haber ( estar hecho ) un cauce , un canal , una acequia , una cárcava
-abrir un cauce , un canal
-hacer un cauce , un canal , acequia , cárcava
-despachar , hacer a uno que se vaya ( compl . sg . )
-despacharlo ; hacerlo que se marche
-irse , marcharse ( uno solo )
-más acá , más hacia acá
-hacia acá , más para acá
-en un lugar ( o momento ) más hacia acá , más cercano
-más acá , más hacia acá
-más acá
-más hacia acá ; aún más para acá
-se fue de huída
-ya se acabaron
-se fue para arriba
-se fue para abajito
-¿ dónde está Simón ? - acaba de irse a su casa
-¿ a dónde se fue el chico ?
-cuando tú te fuiste me dormí
-se oía que se fue para arriba
-murió ; ya hace seis años que se fue ( murió )
-ayer por la mañana decía que tenía mucho dolor ; a la media noche se murió
-tú lo tumbaste . no ; él sólo se cayó
-se trozó el cabo ( del hacha )
-no hay nada . - sí ; aquí se metió
-se te saldrá el alma
-pónganse más acá y escuchen !
-siéntense apretados más para acá
-ponlo más acá
-vivo río arriba , donde se juntan los ríos
-¿ quién está ( vive ) ahora en La Junta ?
-se formó el cauce , y ahora corre bien el agua
-¿ y las cabras ? - andan por el arroyo ( el cauce )
-lo encontré en el cauce
-el agua abrió brecha aquí
-iba a buscar azúcar para la chiquita
-se fue para abajito . - ¿ se fue él ?
-por ejemplo , si este anciano se muere , la tierra será tuya
-ya se pudrió
-trae acá los catalejos . - ¿ por qué les llamas así ? - porque se ve muy lejos
-venga acá uno !
-deja que traiga para acá esa cobija , no sea que alguno se la lleve
-acérquense para cá ! les van a decir unas cuantas palabras !
-del lado de acá ( de un río , de un llano )
-del lado de acá ( de un cerro )
-¿ dónde andaban las cabras ? - andaban de este lado de Káracho
-dicen que bajó allá , un poco más acá de Sitagápachi , donde le dicen Chamochi
-tírale más para acá
-más para acá , más ára acá !
-luego de cosechar , poco después ( más acá ) hizo eso
-luego desde un poco después , comenzó otra vez a hablar mal
-pasó mucha agua ; por eso abrió cauce
-hace mucho abrió su cauce ; ahora ya corre bien el agua
-pongan más cerca a los hombres ( háganlos que se pongan más cerca ) ! no se va a oír !
-está muy pedregoso el cauce
-a la primera vuelta se juntan los arroyos
-allí agua arriba se junta el río
-allí haremos la casa , porque está parejo
-parejo ; donde no hay piedras
-voy a echar el ganado por terreno bueno
-el camino a Chihuahua está en buenas condiciones ; pasamos por tierra sin contratiempo
-por eso , en adelante vivamos sin reproche
-ahora sí me he portado bien
-parejo , no escabroso ; ( FIG . ) bueno , recto , irreprochable
-en sus cinco sentidos , sobrio , no borracho
-igualar , emparejar , quitar lo escabroso ; ( FIG . ) hacer bueno , apaciguar , poner orden
-allanarse , emparejarse , ser o estar llano . ( FIG . ) ser bueno , recto , irreprochable
-es muy laborioso ser rectos
-antes estaba muy malo ( el camino del río ) ; pero vino una gran avenida ; en seguida se emparejó
-había muchas piedras , pero pronto quedó ( estuvo ) escombrado , parejo
-¿ dónde andará Bianchi ?
-seguramente por eso estuvo triste el niño ese
-tú dijiste que me darías uno
-¡ cómo a míno me dan ! . . .
-me lo entregas en mano
-a mí no más 12 me dieron , puras cascaritas ( hablando de cacahuates )
-dame una camisa
-dame un cigarro
-dame tantita agua
-¿ qué le hace que no me den ?
-aconsejar ( LIT . dar pensamiento )
-hacer reflexionar
-hablar a alguien ( exhortando o arengando )
-cansar , darle fatigas a uno
-por eso nos dan consejos
-anden , háganlo reflexionar ( a un acusado en el juicio )
-esto no más les digo , cristianos
-¡ cómo cansan ustedes !
-¿ qué andas buscando ? - busco maíz
-¿ qué busca Albino ? - buscaba manta
-Padre , te buscan aguera
-¿ dónde venden maíz ? - arribita , y también arroyo abajo , donde Chole . - bien , voy a buscar
-buscarle , buscar para
-búscarle , conseguirle
-Padre , ya olvidé las oraciones
-¿ son oraciones esas ?
-les recé por el camino
-¿ dónde sueles rezar tú ? ( e . d . ¿ a qué templo acudes tú ? )
-sí llegó el Padre , el que nos reza
-que se vayan adentro a rezar , luego bailarán
-anda pues ; vámonos abajito a rezar . - si yo ya recé por la mañana
-Concho se me rió cuando estábamos rezando
-yo ya recé ; yo ya hice la cruz ( me persigné )
-¿ vamos a jugar después de leer ?
-¿ pues por qué se huyeron ? ( los alumnos de Sikirichi ) . - es que son muy perezosos , son muy perezosos para leer .
-oración , rezo , lectura
-rezarle
-rezar
-soler rezar , rezar frecuentemente o habitualmente
-director de rezos ; sacerdote , rezandero , maestro , el que hace leer
-dirigir los rezos , el culto , hacer rezar , hacer leer , enseñar a ler ; ser maestro
-dicen que por allí salen de noche unas cosas brillantes , que parecen sacerdotes ; eso dicen
-en Choguita hay un maestro ( uno que hace leer a los muchachitos )
-¿ les rezo brevemente y luego los hago salir ?
-sí ; nos hicieron rezar adentro
-¿ a dónde vas ? - a Ba'wichiki . - ¿ vas a hacer rezar a los tarahumares ?
-¿ sabes leer ya ? - sí , un poco . - ¿ pues quién te enseñó a leer ?
-ya cumplí un año de amaestro ( haciendo leer a los niños )
-déjame probarlo
-la chiquita se fue a la casa a saborear el dulce
-ese hace trabajar a la gente por puro batari ( suele , habitualmente hace batari para el trabajo )
-¿ ponemos en tu dormitorio las 12 cubetas ?
-pongámoslas ya
-cómo antes las ponía . . aquí
-en días pasados las pusimos ( las ollas )
-¿ y las ollas ? - pónmelas en aquel rincón
-en casa hay unas ( ollas ) chiquitas
-lleven las ollas abajo . - ¿ dónde están ?
-son hijas mías
-allí afuera están hablando tus hijas
-fijate , ya tiene dos hijas
-no tengo hija
-¿ no me menudeas este dinero ? quiero sólo ( monedas ) de a cinco
-dame ( monedas ) de a cinco
-¿ quieres ( monedas o billetes ) de a cinco ?
-dando de a cinco centavos no será gravoso
-acérquense de cinco en cinco
-¿ qué buscas ? - busco jabón
-los rarámuri buscan mucho la manta
-¿ y por qué buscas venaditos ? ¿ es que eres muy malo ?
-allí se metieron
-llévalo allá del otro lado
-¿ dónde lo pusiste ? - allí - ¿ dónde allí ?
-el que está allá arriba lo sabe bien
-yo quiero aquella camisa . - ¿ cuál ? - aquella !
-allá , hacia allá
-más allá , más para allá , más tarde , después
-hasta allí no más ; un poco más allá
-es que hace poco te fuiste a Humariza . - a buscar trigo
-porque dice que te andaba buscando ; te buscaban mucho ( eras muy buscado )
-ve a buscarme la llave
-ya me cansé de buscarlo
-consígueme uno como este
-¿ a dónde fuiste a echar las reses ? - allá río abajo
-allá va una niña que no trae nada de camisa
-anduve espiando ( o siguiéndole el rastro ) a uno de por allá ( muy lejos )
-no resulta bien poner de fiesteron a gente de por allá ( muy lejos )
-me levanté sonámbulo , y por ahí anduve ( sin rumbo ) sin darme cuenta
-¿ quién pues , además de él , nos da la comida ?
-El solo nos pastorea ; no hay nadie , aparte de él , que nos cuida
-doce ( diez más dos )
-¿ y qué más te dijo ?
-¿ qué comiste ? - tortilla - ¿ y qué más ? - frijoles . - ¿ y qué más ? - esquiate , - ¿ y qué más ? - nada más
-dejémoslo ; ¿ qué importa que después tenga hambre , porque él mismo no quiere trabajar ?
-en las aguas danzo , para ahuyentar el granizo ; más tarde , cuando ya se ha puesto amarillo ( el maíz ) , ahuyento el hielo , para que no se hielen los maizales
-allá ( en la gloria ) nos colocará , para que vivamos felices , si le hubiéramos pedido perdón , si le hubiéramos tenido fé
-nos dará largamente los años ( larga vida ) , para obsequiarnos el alimento , para que vivamos largo tiempo teniendo qué comer
-ponte mucho más allá
-ponlo más allá
-va a helar muy pronto ; sembraré más tarde
-allí se vomitó - ¿ dónde allí ? ( dónde precisamente ) ? - allí en las piedras
-¿ dónde lo pusiste ? - allí - ¿ dónde mero ?
-¿ no me consigues un limpiadientes ?
-buúscame ( consígueme ) huaraches de estos ( de llanta )
-yo también quería un cuchillo ; consíguemelo cuando vayas a Chihuahua
-¿ dónde andabas ? te andan buscando mucho . - me fui a andar del otro lado del cerro
-Padre , te buscaban afuera
-dijiste que me darías uno
-yo creía que nos daría con la cuchara
-tres veces estuvieron a punto de muerte ( LIT . casi se murieron )
-aquí están muy cerquita ! ( unos agujeros de otros )
-siembra apretado ( a cortos intervalos , muy cerca una semilla de la otra )
-yo también vivo en Merochí , junto ; ( estamos ) muy cerca
-son muy cercanos
-¿ qué tan cercanos ( en parentesco ) no es permitido que se casen ?
-aquí está
-desde aquí
-¿ qué color tiene el ala ?
-ala ( de ave ) ; aleta ( de pez )
-alado ( que ) tiene alas , o aletas ( los peces )
-tener alas ( o aletas , los peces )
-criar alas , echar alas
-lastimarse las alas , cortarse las alas , perder el o las alas
-cortar las alas , estropearle las alas a un ave
-cortarle las alas , desalarla ( a un ave )
-darle alas , ponerle alas
-aletear , mover las alas
-tener alas
-iguales
-medir , igualar
-igualarse
-por igual , por parejo
-¿ cuándo llegaste ? ahorita - ¿ vinieron los dos ? ( tú y ella ) . - sí . - ¿ dónde está ( ella ) ? - está en casa de su papá
-no están llegando por parejas los rarámuri ; sólo los hombres vienen
-estos siempre trabajan juntos ( la pareja : el marido y su mujer )
-reunámonos siempre
-nosotros no nos reunímos ( no acudimos a las juntas )
-ustedes no se reúnen
-júntense las mamás ( reúnanse los domingos )
-reuniéndonos numerosos
-es fuerza que nos juntemos todos ( cabales , sin faltar uno )
-vinimos los dos ( mi mujer y yo )
-reúnanse todos los domingos
-ustedes no suelen juntarse
-no se juntan nada los de Tawichi
-¡ qué importa que se reúnan ( ustedes ) pocos ! . . .
-son las mamás ( las mujeres ) las quese reúnen todos los domingos
-debemos juntarnos bien
-es que ( el demonio ) no está parado lejos ( de nosotros ) ; está parado bien cerca
-lo vimos de lejos
-es que no le hablé ; no más lo vi desde lejos
-a los que se andan juntando así no más ( en amasiato ) casémoslos en seguida
-está atorado con el otro ! ( hablando de dos animales que querían pasar al mismo tiempo por una estrechura )
-que les ayudes tú a juntar a unos rarámuris
-las alas del azulejo son azuladas
-el aura es blanca de alas ( por la franja blanca que lleva en la parte interior del ala )
-es que el renacuajo no tiene aletas
-los patos tienen alas chiquitas y un poco raras
-en la Semana Santa pelean también Dios y los que viven abajo
-hubo muchos pleitos anoche
-párense a uno y otro lado y levántenlo
-lo pasan ( el cadáver ) en ambos sentidos entre el humo , haciendo una cruz
-la serpiente camina poniendo el rostro para uno y otro lado
-es muy enérgica la hierba del zorrillo ; pero de los dos modos : con diarrea y con vómitos
-pidamos perdón unos por otros
-hay que estar viéndose mutuamente
-tú eres casado ; si se hubiera muerto tu esposa , hubiera estado bueno tomar mujer de nuevo ; los dos se tienen miedo
-mutuamente
-hacia una y otra parte
-a , en ambos lados
-a en ambos lados ; en los dos sentidos
-a uno y otro lado
-mutuamente ; uno a otro
-se están golpeando ( uno a otro )
-volveremos a hablar cara a cara ( viéndonos uno al otro )
-se ayudan mucho mutuamente
-párense a los dos lados y jalen
-yo hablo de los dos modos ( las dos lenguas ; castellano y rarámuri )
-el azulejo ya no quiere cantar
-ahí ( hacia acá ) viene un indio a comprar cigarros
-mira el mío ! Ahí ( hacia acá ) viene !
-me vine ( partí para acá ) muy temprano , y apenas acabo de llegar
-aquí tienen que veniresas mujeres
-salí ( hacia acá ) de Tónachi
-salí ( hacia acá ) de Karichí
-como mandan decir de Wérachi
-llegaron muchos ( habitantes ) de por allá ; poreso tienen miedo
-por allá se quedan ustedes desntadas , mujeres ! Pónganse acá más cerca !
-lléguense acá más cerca , cristianos ! Ustedes , muchachas , por allá se quedan sentadas !
-¿ por qué encimó los adobes ? Pronto se van a quebrar
-los encimo ¿ no ?
-los sombreros están en montón
-está encima la casa arriba ; tres veces encimada ( una casa de 3 pisos )
-( vimos ) una casa que eran seir encimadas ; estababa muy alta
-mira ! Están encimados los pescados
-¿ no tienes monedas de las de a cuatro reales ? ( de 50 cvs . ) quiero cambiar
-denles de a cuatro
-¿ y de los otros ? ¿ de los ( en que entran ) de a cuatro ?
-¿ Cuántos te doy ? - de a cuatro
-por donde quiera anda ese
-en este tiempo , donde quiera andan bebiendo los rarámuri
-( 2 ) ¿ pues de qué ( pájaro ) es esta ala ?
-ya dentro de muy poco va a entrar en agonía
-todavía están muy chiquitos ; aún no echan alas
-el mayate es muy blanco , antes de criar alas
-congréguense cabales ( todos ) los domingos
-no es igual de fuerte
-está del otro lado
-parece que estuvieras del otro lado
-siéntate de este lado , en esa piedra
-los que están de este lado
-tú siéntate del lado de acá
-la semana antepasada , o : dos semanas después
-y luego , dicen que Dios le puso alas ( a la hormiga ) para que escapara rápido
-reparte por igual
-pero pártelo por igual ( en proporciones iguales )
-júntense cabales ( todos , sin faltar ) , en las fiestas
-si ya se emparejaron Calixto y Gerardo
-es un perverso Patricio . - ¿ y su hijo ? . son iguales
-en el darnos cuenta de las cosas algunos son distintos ; no somos iguales ; algunos somos desmandados
-no todos sabemos igualmente portarnos bien
-fíjense en que no nos juntamos cabales ( no venimos todos )
-esos ya están iguales ( ya se igualaron )
-ya se le emparejaron los dientes
-aguanta , si eres tan hombre
-a ver : aguantemos cinco días sin comer ; ¿ lo aguantaremos ?
-no se puede soportar ; hace demasiado frío
-¿ tú aguantas si te caes de esta altura
-aguantador
-aguantarle , soportarle
-llorón ! No eres tan aguantador !
-Antonino es muy aguantador en las carreras
-vamos a medir el maíz . - yo no mido nada
-¿ lo mediste bien ? - sí lo medí bien
-¿ lo mediste antes de salir ? - sí lo medí bien
-medida ( instrumento para medir )
-medirlo
-medírselo
-hace ya un año que están separados ; de cuando en cuando viene ( y se vuelve a ir ) ; así y todo , ya tuvieron un hijo
-se enojan mucho ( conmigo ) las muchachas
-trae acá la medida . - no está
-vimos ( en una exposición ) medidas y cocedores , grúas , prensas para metales , escalpelos y microscopios
-¿ no compras maíz ? - sí . - mídelo pues
-aletea mucho , ( molesta mucho aletenado ) , ( un cócono que no se dejaba llevar )
-¿ cómo vuela , sin mover las alas ? ( un zopilote planeando )
-¿ es frijol ? - dice que es frijol . - mídeselo pues luegoluego
-na parejos los corredores
-todos son igualitos
-¡ pónganse en línea muy parejos ! ( formen rectas las filas ! )
-no nos juntamos muy cabales ( no hemos venido todos )
-cuando yo dé el grito , exactamente al mismo tiempo le pegas tú
-al mismísimo tiempo matas la vaca
-le dimos al mismo tiempo
-juntos llorémosle a Dios , que nos dé cabal el alimento
-al mismo tiempo , jalemos parejos
-me va a dar la medida
-es el camino de los antepasados ( la tradición )
-voy a entregar este maíz arroyo abajo , donde Salvador ; mídemelo por favor
-él desde antiguo les dio ( a los hombres ) el alma
-así nos lo entregaron ( trasmitieron ) antiguamente los antepasados
-así nos lo trasmitieron nuestros antepasados ( es nuestra tradición )
-los antiguos lo sabían todo
-yo me sostuve ( floté ) en el agua ; no me hundí
-ese no tiene alas ( no es alado )
-no truena tan fuerte
-me iré muy lejos . - ¿ a dónde lejos ? Dínoslo pronto
-¿ a ti qué te digo ?
-esto tenía que haberle dicho yo
-ya les llamaron la atención ; no les den dinero , les dijeron a los de Ciudad Juárez
-como les han dicho a ustedes
-yo le diría " prayeta " ( a la franela )
-¿ cómo le llaman ustedes a esto ?
-llaman los rarámuri al estar quieto sentado en un rincón mientras llueve
-¿ no les echas un discursito ? ( ¿ no les dices dos palabritas ? )
-¿ no vas a echar discurso hoy ? - sí les hablaré
-ofender ( de palabra )
-ofender , hablar mal de
-¿ por qué te burlas tú de mí ?
-no andemos ofendiendo a la gente
-Patricio habla mal del General
-¿ qué sonó ? - no sonó nada
-sonó como dinero que cayó
-suena muy feo el agua ( el río crecido )
-¿ cómo suena el corazón ? - está brincando
-te oyes ( suenas ) muy cavernoso
-¿ cuántas veces ha sonado la campana ? - una sola vez - ¿ apenas ahorita una vez ?
-el caballo bebió hasta hartarse
-me dormí ya muy noche , por aso no me llené de dormir ; dormí muy de día
-tiene las alas muy rojas , y amarillas
-que el muchacho mismo le diga . - ¡ qué le va a decir él ! - pues tú oblígalo a que le diga ( hazlo que le diga ) .
-llévala con cuidado , sin hacerla sonar
-voy a beber hasta hartarme
-ya que estuvo encendido el fuego , le dijeron a ese : pártelo
-mete más adentro la mano , le dijeron ( le fue dicho ) al león ; y entonces el león metió la mano , sin sospechar nada
-¿ qué dice el hombre ese ? - no dice nada
-¿ quése dice por el río arriba ? - dicenque hay mucha enfermedad
-que ellos mismos digan ; nos vamos a quedar roncos de tanto altercar
-vendré al médico día , dijo ; se fue diciendo eso
-sí habla bien , eh ?
-ahora ya habló bien , se explicó bien
-no puede hablar , habla en secreto ( está afónico )
-¿ por dónde va ? - ¡ por aquí se oye ! ¡ por aquí se oye ! ( suena )
-está sollozando ( haciendo ruido de sollozos )
-¿ qué suena allá adentro ?
-al cantar el gallo
-y también en las orejas me suena muy molesto un chillido ; como un pájaro : así se oye
-el ŕu'siwari suena como un tochapi ( un pájaro ) , al entrar la noche
-me llamo Vidal
-vimos una serpiente grande , llamada boa
-¿ cómo se llama aquí ?
-¿ dónde vives tú ? - Río arriba , en Nawajírachi ( ¿ dónde le dicen cómo vives tú ? - donde le dicen Nawajírachi )
-río arribade Wajochi , donde se llama Ripuchichi
-vivo donde se llama el Monte de los Colibríes
-¿ cuántos llevas tú ? - cuatro
-por qué ?
-¿ por qué ( de qué ) murió ? - quién sabe por qué ( de qué ) se haya muerto ; se habrá enfermado
-¿ por qué ya no van a circular estas ( monedas ) ?
-necesitar , quejarse , sufrir , ¡ pobre ! ( exclamación ) ; molestar de palabra
-necesito mucho la manta
-¡ pobre perro ! Lo vas a matar !
-Guadalupe lo mandó a comprar cigarros ; no ( le ) tiene compasión ; sufre mucho
-yo no fui ; no más anda molestando
-fingir , hablar de broma , mentir
-maté un venado . - mentiroso !
-no más habla ! ( son puras mentiras )
-no más está bromeando ese muchacho
-molestar , hacer daño ( de palabra )
-¿ qué , es peor Patricio que el viejo ? - molesta mucho ese hombre ; habla muy mal
-echar baladronadas ; ofender ( de palabra )
-dices mucho , pero no haces nada
-¿ qué ofensas te he dicho yo ?
-ya me hiciste decir mal !
-tú no dijíste nada ; yatenías que haber dicho
-¿ o quién es , pues , el que tiene que decir primero ?
-¿ qué tengo que decir ?
-Patricio no había ni de bailar ; es muy pendenciero ; ya tendió por tierra a uno
-sí tienes que decírlo tú
-están silenciosos ( sin decir nada )
-era lo que había que decir
-¿ entonces , qué tenía yo que haber dicho , pues ?
-pero dejen esos decires ( dejen ese mal hablar )
-¿ por qué , pues , según dicen , dijiste : " yo he de matar a todos los que mandaron a amarrarme ? " - yo no sé nada de esos rumores
-es que eso no es un mal dicho ( no es hablar mal )
-¿ qué quiere decir eso ? - quién sabe qué querrá decir…
-¿ qué significa lo que te dije ?
-y ( la palabra ) bíchígituame ¿ qué significa ? ( en castellano )
-¿ quién ? Francisco , ¿ no ? Él era el cacique
-Antonio me hizo perder ( la apuesta ) allá en Ruséachi
-acaba de llegar Antonio . - ¿ qué Antonio ?
-en días pasados Anrés hirió ( cortó ) a su padre
-desde antier caí enfermo
-cierto que algún día vemdré
-¿ quién toca adentro ( el violín ) : - sí está alguien allí
-sí que lo traeré , si tengo burros
-sí me voy a casar
-tal vez le habrá mandado un oremá ( estrella fugaz , hechizo ) GR . 458 , 2o .
-sí aprenderá pronto
-el a'ógari ! Tiene miedo ! ( palabras de un canto de TUTUGURI de Narárachi )
-es goma ( lágrima ) de táscate
-prendiendo una lumbrada de hojas de táscate
-¡ eh , viejo ! Ven acá !
-por esta última nochebuena se murió su abielito ; dile eso
-es el maíz de mi abuelo materno
-¿ pero por qué hizo eso tu abuelo ( materno ) ? Ya ves que fue ofensivo
-ustedes se viven bebiendo
-El Algarrobal , es poco más acá río debajo de La Cebadilla
-porque tenemos como hermanos mayores a los venados ( porque los venados son nuestros hermanos mayores )
-¿ tienes hermanos mayores ? - no , el hermano mayor soy yo
-atí tú ¿ y están tus hermanos mayores ? - no más uno está
-los que hablan muy mal son los ( hermanos ) mayores
-¿ y Gabino y Teodoro ? - son hermanos mayores míos
-no tienes de maíz que le llaman pipitillo ?
-esos dos son ( hermanos ) mayores
-me han dicho que tú entras mucho con las muchachas
-cuantas veces entro donde tú te la pasabas escribiendo , se me afigura que ahí estás
-( el ladrón ) cuando no hay gente , entonces ya se meten en las trojes y en las casas , y carga con las cosas , se lleva las cosas
-desde ayer por la mañana están bebiendo
-no más me tomo un trago ( una jícara ) , luego , luego me pongo muiy cantador
-ven , entra , tómate un trago
-los tarahumares , no más tienen tantito maíz , luego se ponen a beber
-dice que le duele mucho ; se le honchó mucho el pie
-se va a inflamar
-y cuando estuvo enfermo tu papá ¿ no se le hincharon las piernas ? - no ; no se hinchó
-yo vivo en Satewérachi ; es decir , río debajo de Narárachi , donde los vados
-¿ por dónde ( por qué lugares ) vamos a pasar el arroto ? - es que no atravesaremos ( el arroyo )
-era una muerte ( cansadísimo ) pasar a cada rato las reses de una orilla a la otra
-el jefe era abuelo materno de Lucrecia
-es nieta ( materna ) mía esa muchachita
-tiremos los nopales ( las pencas )
-le voy a tirar a ese pájaro
-con una piedra le pegaste a tu padre ; con una piedra le pegaste a tu madre
-adultas : ( son ) las que tienen hijos , y las que no los tienen también
-mira , tábanos ! Estos muerden los caballos
-el " apariki " es como rayado , aplanado , ancho , es sumamente veloz
-se pone bravísimo si corre uno
-es más bravo que la Chata
-antes lo cocían allí
-lo machacan y luego lo cuecen
-allí , donde suelen cocer el pozole
-tener , traer camisa
-dar o poner camisa a otro
-así creen los rarámuri , como se lo dijeron algunos ancianos , y lo dijeron también los que vivieron en tiempos pasados
-si no la compré yo ; mi madre me dio la camisa
-allá anda una niña que no trae ( tiene ) nada de camisa
-es que sí la he llamado que vuelva a casa
-no siembre de a muchos ( granos ) ; de a cuatro o de a tres ( en cada hoyo ) está bien
-me eché a la espalda el venado ( lo llevé a casa ) ; era un macho muy grande
-¡ que traigan ( a cuestas ) leña !
-anda subida a la espalda de su papá
-andan encaramados en nosotros
-se me dobla esta pierna al cargar leña
-sí que vendré otra vez trayendo ( a cuestas ) maíz
-vamos ! Cárguenlo ! ( échenselo a la espalda )
-manden unos muchahcos a traerlo ( a la espalda )
-cuando la troca fue a cargar maíz
-ya enviaré otra vez con orden de cargar ( llevar ) leña
-echar a la espalda ( de otro ) , echar a cuestas
-echarle a cuestas , echarle a la espalda
-echarse a cuestas , cargar a la espalda
-encaramarse , subirse a la espalda de otro
-hacer que se suba a la espalda de otro , echar a la espalda de otro
-echar a la espalda , cargar , llevar a cuestas
-manto
-carga , lo que un hombre o una bestia puede llevar cargando
-a ) echarle algo a la espalda auno , echar la carga a una bestia
-llevar a cuestas , llevar carga
-irse con algo a cuestas , robarse algo
-hace tiempo sí traje ( a la espalda ) algo de frijol
-a ver ! Algunos muchachostraigan leña !
-corona sí tengo ; lo que me falta es el manto
-¿ no tienes ( tela para ) manto de los bonitos ?
-traeré do cargas
-¿ cuánto vale la carga ?
-y leña , ¿ cuánta vas a entregar hoy ? - dos cargas
-le echaron muy grande carga
-después echamos la caraga ( a las bestias ) ; el domingo nos detuvimos en el camino ; y al medio día comimos en Riwirichi
-trayéndolo ( yo mismo , a cuestas ) cuánto vale ? ( ¿ a cómo me lo pagas , si te lo traigo yo mismo ? )
-sí que se queja el burrito ! Se cansó muchocargando tunas
-y siempre me llevarás tú mis recados , cuántas veces te envié
-se echó a la espalda a la mujeer , se la robó ; con ella a cuestas se fue ; cargándola , la subió a lo alto de los farallones ; y ya no pudo ( la mujer ) bajarse
-bisabuela es la que parió hijos con el bisabuelo
-ya se lo comerán las auras
-el aura es blanca de alas
-Genoveva es mi tía
-le dieron a comer ( al gigante ) colorín con el cocido de carne ; lo azotaron con cobijas y le tiraron con bolas de lana hilada
-el sapo terrero cava bajo tierra y vive en tuceros
-había que montar más bien el alebrestado ( el que se encabrita )
-va a reparar el caballo . - ¿ qué importa ?
-se fue preparando por la cuesta arriba
-bronco , que se encabrita
-a ) corcovear , reparar , encabritarse un animal
-a ) hacer que se encabrite un animal
-encabritar , hacer que respingue un animal
-va oleando mucho el agua
-¿ de qué palo es ? - de moral - sí parece moral
-¿ de qué es esto ? ¿ de moral ? - sí , de moral
-anda ! encabrita el caballo ! ( hazlo que repare )
-se soltó un vendaval fuertísimo ; formó grandes olas
-eso es lo que decía yo
-ya quelo ha colocado ( el ostensorio ) , le rezamos a eso donde adentro está Dios
-suelen encerrar las reses
-estaba del otro lado del monte ; allímurió esa muchacha
-ahora el alma no se ve ; allí será visible el alma
-ese , aquel
-así , de esa clase , color , etc .
-de ese tamaño
-de ese tamaño ( pl )
-así , de esa clase , etc .
-tantos así
-tan largos así , de ese largo
-así , de ese modo
-parece ser una muy buena billetera ( LIT . coloca - dinero )
-está bien
-a Adán cuando estaba durmiendo le sacaron una costilla
-no hablen así
-porque así tiene que ser
-no está bien así
-así tenía que ser
-jálale un poco ; hasta allí no más
-esto es todo lo que les voy a decir , cristianos ( he dicho , he terminado mi discurso )
-me lo dio un hombre . - ¿ qué hombre ?
-¿ a quién se lo diste ? - pues a Valente , tu hijo
-me lo dio quemado
-¡ qué importa que no me den !
-¿ qué , no te dieron una camisa hace poquito ? - sí , me dieron , pero se me rompió pronto
-apenas llegó , buscó por todos lados , igual que la víspera
-¿ por qué no han venido ? - tal vez se extravió
-se nos mojará ( tal vez se nos moje ) el pinole en el camino ; lo vamos a tomar hecho pasta
-me ahorcan ( quizás me ahorquen ) , si no pago ; por eso me voy a escapar
-te haría pasar hambre , te haría morir
-el chiquillo les habrá abierto la puerta a los patos
-pasado mañana lloverá
-parece que está abajito
-¿ por qué no cumpliste ? - quién sabe por qué… es que estaba tendido con gran dolor
-¿ a qué horas se juntarán ? - quién sabe a qué horas se vayan a juntar ! . . . al medio día
-¿ quién sabe qué habré hecho ? . . . No me di cuenta . - ¿ cómo no te has de dar cuenta ? . . .
-quién sabe lo que vayas a hacer ! . . .
-¿ qué hombre sería ? . . .
-¿ cuándo trabajarás tú ?
-¿ quién le habrá pegado ?
-estará adentro ; o abajito
-él mismo se meterá ( en la cárcel ) ; o bien , lo meteré yo
-¿ quién más va a ir ? - Pedro o Juan
-no hice batari yo ; alguien ciertamente habrá hecho
-de fijo que ya vas olvidando todo lo que aprendiste
-por poco me caigo . - algún día te caerás
-¿ no vas arribita ? ¿ a llevar una carta ? - si que iré
-claro que si me caso
-cuando pica así , ¿ se muere ? ( la abeja )
-se hubieran ustedes ido así
-parece que así debe ser
-por ejemplo , si sueño que me han matado así ( es señal de que ) enfermaré y moriré
-a pesar de todo , los calentó ( el sol ) ; mató a los indios que estaban adentro de la tierra ( escondidos en las cuevas )
-con todo , tenías que haberlo dejado
-a pesar de todo tem hice venir
-siempre ( de todos modos ) tenlo en brazos tú ; y ahorita hubieras entrado con él en brazos , ( una mamá al padrino , entregandole al niño a mitad de la cremonía )
-te va a dar mucha tirsteza , si te lo doy - no le hace !
-pero es que te vas a acabar e ldinero . - ¡ no le hace !
-es que no quiero yo entregarle así no más mi maíz
-los que habitan arriba ( en el cielo ) , viven no más así ( sin trabajar ) , paseando felices
-se nos va a hacer muy tarde
-probablemente llorará el niño , si se acuesta arriba ( en el entretecho )
-¿ lo llamarás tú ? Tal vez no venga . - lo cogeré si no quiere
-creo que va a llorar
-habrá ido temprano
-tal vez se ha cansado mucho ese hombre , por no haberle , creído yo el otro día , eso pensó
-si habrá ( batari )
-sí la hiciera ; pero fajas no sé
-¿ de qué es ( esta ) herradura ? - es herradura de burro
-no ; yo no voy a quererte , si tú eres comedor de venaditos ; eso le dijo a al mujer ;
-sí se ; sino que no tengo ganas de decir
-voy a cerrar ; está muy molesto el viento . - cierra
-quién sabe como será… algunos que lo han visto dicen que sí es largo ; yo no lo he visto ;
-¿ cuándo dijo que volvería ? - quién sabe cuándo ; yo no sé
-¿ van a bailar esta noche ? - quién sabe ! …si ellos quieren…
-yo me voy , o mañana , o pasado mañana
-¿ quién va por leña ? - tú o José
-nos ha purificado totalmente , adentro , nuestra alma
-a un tucero irá a dar tu alma , cuando mueras
-pero el alma no muere
-ahora el alma no se ve ; allí se verá
-se te saldrá el alma , tenlo en cuenta
-tengamos compasión de nuestra alma ; tengamos también compasión de nuestro cuerpo ; ( es decir : cuidemos nuestra vida ; miremos por nosotros )
-no nos da cumplidamente el agua , para que se desarolle cabalmente nuestra vida . ( LIT . para que crezca bien nuestra alma )
-da , poner el alma
-tener alma
-es El le que nos da el alma
-El , y nadie más , nos da el alma ( la vida )
-sí voy ; no más déjame ir a dejar el sombrero
-¡ mira lo que dejaste al marcharte !
-alguna que otra vez se me olvida ; entonces lo dejo
-hay que dejar esos comportamientos
-dejen la bebida ; dejemos las borracheras
-sí , dejemos esas creencias
-vas a dejar los chistes ; en adelante ya no vas a juguetearles a las mujeres
-tenemos una sola alma , tenemos también una sola sangre ; no tenemos otra distinta sangre
-vivamos con el alma limpia
-¿ de dónde , pues trajimos nuestra alma ? Tenemos alma que es de arriba . ( LIT . ¿ de dónde traída tenemos el alma ? . . . )
-no por nuestro propio querer tenemos el alma ( no vivimos por virtud propia )
-esos no más están , no hay más
-por allí íbamos
-como si fueran ustedes no más esos
-llegaré hoy por la tarde . - ¿ metido el sol ? Al meterse el sol
-¿ qué tan tarde llegaremos a Sogichi ? - mañana por la tarde
-¿ hasta la tarde no te vas ? - entonces
-desde la tarde están bailando
-¿ hoy ? - ( sí ) , pero ya pardeando ( LIT . tarde en la tarde )
-le voy a guardar a Beto , para que coma al atardecer ;
-¿ vamos a ver títeres cuando oscurezca ?
-oscura la tarde , al principio de la noche
-llegué tarde , oscuro ya .
-por la tarde
-más tarde
-entretener a uno hasta la tarde , hacer que le sorprenda la tarde
-entretenerlo hasta la tarde
-entretener ( a uno hasta la tarde ) ; hacer que se le acabe el día , que llegue la tarde
-entretener hasta la tarde ; hacer que a uno lo sorprenda la tarde , que se le pase el día
-entretenerlo , hacer que lo sorprenda a uno la tarde
-cogerle a uno la tarde , acabársele el día
-por la tarde , al atardecer
-entrada la tarde
-atardecer
-s . la estrella de la tarde
-la tarde avanzada , oscureciendo , la estrelal de la tarde
-concederle a uno el atardecer
-una que otra vez se me olvida ; entonces lo dejo
-¿ cuándo es ( el día de ) Guadalupe ? - dentro de cuatro días . - ¿ entonces ?
-¿ en ese tiempo ya vivías tú ?
-en aquel entonces no había ninguna gente en este mundo ; sólo anomales voladores había aquí en la tierra
-primero se separaron , luego volvieron a juntarse
-después te la vuelvo a traer ( el hacha )
-voy a dejar aquí el frijol ; más tarde lo recojo
-me duele mucho el estómago después de comer
-¿ por qué no fuiste después ?
-volveré entonces , cuando las estrelals estén arriba
-arrancaron , pues ( a correr ) ; y luego dicen que la rana saltó y se sneto en los cuernos del venado
-¿ y luego ? - y entonces dicen que se murió
-pero yo trabajo siempre aquí . - ¿ y ? . . . ( ¿ y qué ? con ello ? ¿ qué se sigue de allí ?
-cuando yo
-cuando tú
-cuando nosotros
-cuando vosotros
-cuadno
-sí había gente río abajo en años pasados , cuadno yo vivía aquí , cuando era zanca - pelona ( cuadno andaba en taparrabo )
-así pues , ¿ cómo ha de ser ? ( en qué quedamos ? )
-los tarahumares le temen mucho a ese , y lo aborrecen ; por lo tanto , no van a venir
-anden pues ; má tenme a palos ( LIT . entonces pues , lo bueno será que me maten a palos )
-¿ dónde está , pues , la sangre ? Esa sangre se perdió ( el cacique reprendio a un pendenciero )
-¿ quién , pues , nos pastorea ?
-es sabrosísima la gomilla ; como para morirse
-voy a comer atole gelatinoso , con nopales y gomilla .
-no te voy a entretener ( no aré que se te haga tarde , que te atardezca el día )
-Calixto me entretuvo ( hizo que me sorprendiera al tarde )
-aguarden un poco ; no los demoraré hasta la tarde ( no los voy a entretener )
-háganlo aguardar ; entreténganmelo aquí hasta la tarde ( LIT . háganmelo que le coja la tarde aquí )
-lo va a coger la tarde tratando de lazarlo
-¿ dónde te atardeció ?
-así atardece todo los días : lloviendo y saliendo el sol ( a ratos llueve , a ratos hay sol )
-pasé el día aquí enseñando ( me cogió la tarde )
-¿ a dónde vas , Toño ? - voy a pasarme el día durmiendo arriba de una encina
-ayer llegó Wawatzérare hoy pasó ( allí ) el día ; mañana vendrá
-lo vamos a molestar , y haremos que se le haga tarde ( que se le vaya el día )
-¿ de qué tamaño dice que quiere las bolas ? - dice que una de ese tamaño y dos de ese
-así es el hombre
-¿ cuándo viene el arriero ? - ¿ cuál ? - cualquiera
-¿ qué andabas haciendo ? - ( andaba ) de arriero .
-al atardever comenzaron a beber
-dice que sí vendrán muchos al atardecer
-oscura la tarde , a boca de noche
-llegaré a casa hoy , acabando de oscurecer
-el ŕu'síwari hace ( suena ) como el tochapi ( un pájaro ) al cerrar la noche
-tantos así no más son
-no más estos raŕamuri están
-como si ustedes no fuesen más que esos ( que los que están aquí )
-sólo estos hay , ya no hay más
-dámele cien ( pesos ) a ese
-voy a ponerte a buscar venados ; ¿ no quieres ir tú también ?
-¿ lo mediste ya ? - eran tres decálitros
-¿ ññegará al decálitro ? - no tranto . Serán siete litros . - parecén ser siete
-un peso y cuatro reales ( 50 cvs ) . Un decálitro
-si no se hacen bolitas , parece que sí de veras será harina
-y al poco rato , anda el hombre luchando ( con una mujer ) al poco rato anda l hombre violando a una joven
-no más venía a decirte adiós ( Lit . a traerte mis adioses )
-adiós , pues
-bueno ; adiós
-decir adiós , despedicrse
-decirle adiós
-con esto , ya te voy a decir adiós ; qué importa si entra la nostalgia cuando haya llegado a casa…
-ahora ya voy a despedirme , con gran nostalgia de ti
-entonces , luego de despedirse , dijo iré feliz llevando tus encargos
-entonces le dijimos adiós ( nos despedimos de ellos ) , y nos volvimos a casa
-ay ! Dale vueltas y enróllamelo ! ay ! enróllame el cigarro ! ( canción rarámuri )
-ay ! No me mates !
-ay ! Me estás lastimando
-La Calabacilla , lugar de calabacillas
-natural de ariséachi
-haber calabacillas
-La Calabacilla
-esto no más les digo , cristianos ( he terminado mi discurso )
-luego , cuando ya íbamos a irnos , se fue haciendo muy tarde ( fue avanzando la tarde )
-llegamos al ir atardeciendo
-llegué ya muiy tarde
-ya se pusieron azules , porque les llegó el sol ; son amargas , cuando se han serenado ( ? )
-a nosotros , los jeves nos da muchos cansancios ( la gente nos fatiga mucho )
-esos ( los witaru ) , no más codician algo , se echan chicotazos ; todos lo que se les antoja les dan
-atardece con mucha oscuridad
-dínoslo pronto ; ya ves que se está haciendo tarde
-me regreso al atardecer
-sale a atardecer a buscar comida
-ya al atardecer , volví a subir al mero cerro , muy arriba a la punta
-pónganse protno de acuerdo ; ya atardeve
-suena que atardeve , la campana está sonando ; poes eso
-falta poco para que atardezca
-ahora me está volviendo a doler , porque ya atardece
-en ese punto cayó la tarde , y ns fuimos a casa a comer .
-¿ a qué hora es aríwari ? - por la tarde , cuando ya está oscuro
-y es también El el que nos da el amanecer , El nos da el atardecer
-gracias ; voy a ir a dárselas a mi ni{a ; dice que le gustan mucho
-yo soy alguacil
-¿ eso es todo ? - no más eso ;
-no conozco a ese
-Pilar se fue porque quiso ; no está nunca ( no se queda en la casa de su esposo )
-es queyo no estoy en casa ( siempre ando fuera )
-siéntate en el rincón , viejo come tortilla . - me sentaré
-tú quédate aquí ; yo voy a ver
-di ! Habla ! ( ponte a decir ! No te quedes callada ! )
-tenlo en la boca !
-levanta la cara ( ponte con la mirada más arriba )
-reflexiona ; ¿ qué has pensado ? ¿ te has hecho ya demasiado como los blancos ? ( el cacique a un reo )
-estate quiero ! Está tranquilo no tengas miedo !
-ese no trabaja nada ; no más está sentado
-¿ y la silla ?
-y los marranos , los viste - están bien gordos
-yo no lo olí
-siéntate aquí abajito . - y también el contrincante
-ya me cansé de estar sentado
-duré tres años ( permaneciendo aquí )
-no es bueno estar ( permanecer ) solo
-los rarámuri le dicen mirímuka al estar sentado en un rincón mientras llueve
-siéntate pues !
-yo estaba dentro
-ya murió , pero volvío a resucitar
-¿ hay que sacudir la alfombra ?
-son tres los hectólitros ; porque a cuatro no llegan
-monta pues pronto
-Tranquilino dice que tiene ganas de montar
-es muy cansado de montar
-te hubieras ido a caballo
-me oprimiste mientras estaba acostada durmiendo
-hacer montar
 montura , silla de montar , vehículos
 montar , ir acaballo o en algún vehículo
 no sé echarle la silla ; ensíllamelo tú
@@ -6783,7 +5551,7 @@ algunas semanas
 esos son muy distintos
 ya cambiaron , por eso no los reconoces
 no ( me alcanza el dinero )
-fueron los caciques ? - - sí , los caciques . - - ¿ todos ? - - quién sabe !
+fueron los caciques ? - sí , los caciques . - ¿ todos ? - quién sabe !
 los caciques van a Chihuaha ; luego , dicen que van a Sogichi
 voy a hacer venir al General a Riwirichi , para que ponga otros jefes ; y que meta también en orden a la gente , porque algunos hacen mucho desorden
 los rayos del sol
@@ -6844,7 +5612,7 @@ sólo de cuando en cuando me pongo triste
 ya hace un año que viven separados ; sólo de vez en cuando vuelve ( el hombre ) ; de todos modos ; ya engendraron un hijo , de entonces acá
 a veces se me ponen muy calientes las manos y las plantas de los pies
 allá muy de tarde en tarde voy a una borrachera
-es que . . . a ver si no se mea aquí dentro . - - anda ; hazlo orinar afuera
+es que . . . a ver si no se mea aquí dentro . - anda ; hazlo orinar afuera
 es preciso que creamos
 no seamos malcriados
 pensemos eso ( LIT . caminemos pensando eso )
@@ -6858,7 +5626,7 @@ por eso ( porque traía cargado al niño ) , ayer , en las Escalerillas ( Kwechi
 pícale , azúzalo !
 ¡ pícale ! ya iba a salir ! píquenle ! vamos a echarlo fuera ( a correrlo )
 el tlacuache tiene la cola muy larga ; y tiene la cola pelona ( sin pelo )
-quiero hacer una camisa ; se la voy a encargar a mi mamá . - ¿ pero tu mamá sabe bien ? - - ella cosió ( hizo ) esta
+quiero hacer una camisa ; se la voy a encargar a mi mamá . - ¿ pero tu mamá sabe bien ? - ella cosió ( hizo ) esta
 parecía que habías llegado ayer ; pero no estabas
 ¿ y tu marido ? - ya no vive ; ( LIT . no existe , no está )
 entonces no habrá problemas
@@ -7060,8 +5828,8 @@ es por aquí
 algunos me estaban escuchando
 si hubo robos en algunas partes
 porque en algunos lugares está muy hondo el río , muchos tienen miedo de bañarse
-¿ por qué lado van a venir los arrieros ? - - ¿ cuáles ? - - los que sean ( cualesquiera )
-¿ se fueron los narrieros ? - - quién sabe si se hayan ido ; yo no sé
+¿ por qué lado van a venir los arrieros ? - ¿ cuáles ? - los que sean ( cualesquiera )
+¿ se fueron los narrieros ? - quién sabe si se hayan ido ; yo no sé
 anduvimos peleando las tierras ; entonces , Jaris nos ayudó .
 parece que allí andan
 parece que allá abajo van saliendo
@@ -7078,15 +5846,15 @@ en ese número de sitios construyeron templos
 todos los hombres y mujeres habitan en cuevas ; algunos levantan chozas ( LIT . casa pequeñas para vivir ) .
 ¿ quién pues nos creó ? ( nos puso en el mundo ) ; nadie más que Dios
 él nos dió el cuerpo y nos puso en este mundo . // nombrar , constituir en algún cargo
-¿ qué van a hacer ustedes tras el cerro ? - - dicen que van a nombrar caciques
+¿ qué van a hacer ustedes tras el cerro ? - dicen que van a nombrar caciques
 voy a llamar al general , que venga a Riwirichi a poner otros caciques , y que meta en orden a la gente ; es que algfunos se conducen muy mal
 es un candelero
 allá nos colocará ( en la gloria ) , para que vivamos felices , si le hemos pedido perdón , sí le hemos creído bien
 dice que va a pasar por muchos lugares , nombrando jefes .
 estaban ( las flores ) muy llenas de rocío
 los planté yo
-¿ tú mismo plantáste esos duráznos ? - - no ; yo no estaba en ese tiempo ; me los plantó mi papá ; a él dí el encargo
-ya clavaron ( pusieron ) las cruces ? - - ya las pusimos
+¿ tú mismo plantáste esos duráznos ? - no ; yo no estaba en ese tiempo ; me los plantó mi papá ; a él dí el encargo
+ya clavaron ( pusieron ) las cruces ? - ya las pusimos
 me los clavará los clavos a martillazos
 el león aquél dijo : tengo mucha hambre ;
 esto pensamos nosotros
@@ -7114,21 +5882,21 @@ voy a hacer venir a Riwirichi al General , para que nombre otros jefes y ponga e
 y los rarámuri lo dicen también por esto : porque los tarahumares siempre danzan
 y los blnacos no
 allí esta Gervasio , el que trae en la cabeza la cachuchita
-no quiere ir , no quiere . - - si estoy de acuerdo en comer
+no quiere ir , no quiere . - si estoy de acuerdo en comer
 renuente
 todavía no sabemos bien de ese muchacho , si está de acuerdo en casarse
 yo lo tomaré , ( apadrinaré ) , si es que está de acuerdo ( si le aprece bien )
 si dice que sí , entonces le preguntamos al tío
-¿ no quiere ? - - sí , sí quiere
+¿ no quiere ? - sí , sí quiere
 toma , para que enciendas y fumes
 mira , toma : unos cuantos huevos ; para que se los coman cocidos
 son siete pintitos ( pollos )
 pasé el río brincando ( de piedra en piedra )
-¿ para quién trabajas ? - - para David
-¿ con quién andas jugando ? - - con Cheno
+¿ para quién trabajas ? - para David
+¿ con quién andas jugando ? - con Cheno
 yo creía que eran unos fierros que estaban ahí tirados
 ( va ) muy apresurado
-rápido ! tengo mucha prisa - - dice que tiene mucha prisa !
+rápido ! tengo mucha prisa - dice que tiene mucha prisa !
 traigo mucha prisa ; no más vine a traerte mis adioses
 y entonces se fueron dando mucha prisa por regresar a casa
 ¿ ya tienes mucha prisa de irte ?
@@ -7142,9 +5910,9 @@ el peyotl se aliementa de incienso y le gusta mucho
 todos los días los muchachos se suben a los sauces
 nos subimos a una lomita desde donde se veía todo al rededor
 se ma habrá subido a mí ( un bichito que apareció en el cuarto
-y los hijos ( varones ) ¿ cómo se llamaban ? - - yo no conozzco a los hijos
+y los hijos ( varones ) ¿ cómo se llamaban ? - yo no conozzco a los hijos
 Cruz es hijo de Iisdro
-y los hijos ( varones ) ¿ cómo se llamaban ? - - yo no conozzco a los hijos
+y los hijos ( varones ) ¿ cómo se llamaban ? - yo no conozzco a los hijos
 no tengo hijos varones , ya se murieron
 llegaré hoy por la tarde
 iré a ver hoy , a ver si está
@@ -7171,8 +5939,8 @@ llegué a Narárachi muy lastimado
 el hechicero es muy poderoso
 voy al cerro a rastrear venados
 ya escampó
-¿ cuántos peces cogiste ( con la mano ) ? - - no más cinco
-vaya un marrano ! - - echémoslo fuera !
+¿ cuántos peces cogiste ( con la mano ) ? - no más cinco
+vaya un marrano ! - echémoslo fuera !
 ¿ qué , no tiras tú con flecha ?
 apunta ( tira ) a la otra banda ; apunta pues para arriba
 si trabajaran viendo muchos ( we jóati ) , harían muchos adobes
@@ -7186,10 +5954,10 @@ ya frutaron las patatas ; ahora las vamos a sacar
 en ese lugar se trabaja muchp excavando ( en las minas )
 hasta que sea tiempo de escarbar ( sacar ) las papas
 ¿ qué está muy mal ahora la carretera ?
-( 1 ) ¿ es que hay muchos ratones ? - - claro ; ¿ por qué no había de haber ?
+( 1 ) ¿ es que hay muchos ratones ? - claro ; ¿ por qué no había de haber ?
 creo que ahora no habrá muchos brujos
 allá por la otra orilla hay mucho ( de ese animal )
-ve allá abajito ; hay muchos pescados . - - no hya nada .
+ve allá abajito ; hay muchos pescados . - no hya nada .
 hay muchas pulgas
 antiguamente sí había palomas
 en ese tiempo no había ningún hombre aquí en la tierra ; solo aves ( LIT . animales voladores ) había aquí en la tierra
@@ -7203,11 +5971,11 @@ partimos en seguida
 salimos oscura la mañan
 sal en grano , sal entera
 frijo en grano
-¿ de dónde salste hoy ? - - de Creel
+¿ de dónde salste hoy ? - de Creel
 de ahí nos fuímos a donde han represado el agua
 a partir de mañana voy a tener dinero
 era muy sacrificado caminar ; una mula se nos escapó desde Ro'chibo , y casi llegó hasta El Salto
-¿ de dónde llegas ? - - de Nararáchi
+¿ de dónde llegas ? - de Nararáchi
 me vine ( salí ) río arriba
 no más lo echaron en el brasero , huyó , se escapó del brasero
 desde hace muy poco que lo sé
@@ -7231,7 +5999,7 @@ El Monte sobre el hoyo
 hurgar escarbar con la mano
 escarbar con las patas
 no traigo collar , ando sin collar
-es que salimos temprano . - - sí se pusieron ustedes en camino bastante temprano
+es que salimos temprano . - sí se pusieron ustedes en camino bastante temprano
 luego luego nos pusimos en camino , y las muchachas también
 esta muy ahuecado ( como hoyo el hueco de la clavícula )
 se hizo hoyo
@@ -7240,13 +6008,13 @@ allí hay un hoyo muy hondo
 apunta y tírale
 el apuntó al negro y le dió al blanco
 me amenazó ( LIT apuntó ) con un cuchillo
-¿ no me conoces ? pero si tú hace tiempo me diste de comer ! - - ¡ ah ! ¿ eres tú ? - - yo mismo soy
-¿ qué es ? - - es un ardillón
+¿ no me conoces ? pero si tú hace tiempo me diste de comer ! - ¡ ah ! ¿ eres tú ? - yo mismo soy
+¿ qué es ? - es un ardillón
 no se puede con estos tarahumares
 huele muy mal
 El Chapo los mandó arribita
-¿ por qué , pues , dicen que dijiste : voy a matar a toos los que mandaron amarrarme ? - - yo no sé nada de eso decires
-ve a preguntarle a su papá le premitirá ingresar aquí . - - dice que sí querrá ; que él mismo lo mandó
+¿ por qué , pues , dicen que dijiste : voy a matar a toos los que mandaron amarrarme ? - yo no sé nada de eso decires
+ve a preguntarle a su papá le premitirá ingresar aquí . - dice que sí querrá ; que él mismo lo mandó
 apestan mucho esos ( las cras del zopilote ) , si pasa uno cerca
 acaba con la mugre , huele muy mal
 entonces se devolvió ; le dijo al hermano menor : no están , no dan ningún olor
@@ -7261,7 +6029,7 @@ eso dijo , porque tena muchas ganas de casar a los muchachos ( de darles esposas
 amonesten bien a sus novias
 algunos andan robándose las esposas de sus hermanos menores ; algunos andan robándose las esposas de otros
 ya saqué la manzanilla ( para guardarla )
-¿ a qué huele ? - - a lo mismo que hueles tú ; mira : huélelo
+¿ a qué huele ? - a lo mismo que hueles tú ; mira : huélelo
 ve e instálate arriba del cerro y olfatea , a ver dónde da el olor ( de los fugitivos ) esto le dijo al pájaro
 huele mucho , huele a queso
 siempre anda apestando ; pastorea cabras ; por eso ya se me impregnó
@@ -7280,7 +6048,7 @@ por ejemplo , si este hombre se mete en los graneros , hay que cogerlo
 corrieron en círculos
 se pone bravísimo , si corre uno
 corra a ver
-¿ por qué pues , se huyeron ? - - son muy perezosos ; son muy perezosos para leer ( estudiar ) ; ya me cansaron ( unos niños que se huyeron del internado de Sikirichi )
+¿ por qué pues , se huyeron ? - son muy perezosos ; son muy perezosos para leer ( estudiar ) ; ya me cansaron ( unos niños que se huyeron del internado de Sikirichi )
 vaya ! van corriendo
 ( a ) se regresaron corriendo muy de prisa
 ( b ) ya partieron los corredores ; es que se oye muhco jaleo
@@ -7299,7 +6067,7 @@ y el jefe dijo : que manden algunas cosas ( como comporbante ) para que estemos 
 manden acá a dos jóvenes
 ¿ quién te ordenó que la corrieras ( de tu casa ) ? ¿ lo dijiste tú por tu propia cuenta ?
 El Chapo nos mandó arribita
-¿ a qué huele pues ? - - ¿ pues qué hueles tú ? yo no percibo nada
+¿ a qué huele pues ? - ¿ pues qué hueles tú ? yo no percibo nada
 va a acabar con la mugre ; hiede mucho
 va a oler delicioso
 oler a frijoles
@@ -7311,7 +6079,7 @@ oler a humo
 oler a podrido
 ¡ cómo huele a manzanas !
 apestas mucho a blanco ( de raza )
-¿ a qué huele eso ? - - a lo que hueles tú ; mira huélelo
+¿ a qué huele eso ? - a lo que hueles tú ; mira huélelo
 seguro que gozará viendo a las mujeres que plantaron las flores y aspirar el olor , ( LIT . las olerá )
 pronto se morirán por olerlo
 lo despaché con orden de bañarse
@@ -7320,7 +6088,7 @@ el brujo envía los hechizos esos para que lo maten a uno ; con estas palabras l
 por eso te mandé una carta
 ayúdenme un poco ; háganme justicia ; aqu no quieren ayudarme
 allá en la otra margen hay buena sombra
-¿ es una cueva ? - - no , es una sombra . - - ¿ sombra de qué ?
+¿ es una cueva ? - no , es una sombra . - ¿ sombra de qué ?
 sombra
 haber sombra
 haber sombra , estar sombrío
@@ -7330,7 +6098,7 @@ tomar sombra , acogerse a la sombra , sombrear
 estar sombreado , cubrieto por la sombra
 sombrear , dar sombra
 mira , aquí sí hay sombra
-salte ! ( a un trompo ) - - métete ! - - no , salte ! . . . ¡ qué bien !
+salte ! ( a un trompo ) - métete ! - no , salte ! . . . ¡ qué bien !
 ¡ qué bueno que te enfermaste !
 ¡ qué bonito ! ( aroma tiene esa flor )
 sumamente gustoso es andar viendo ( usar de ) una mujer ; es sumamente gustoso para las mujeres andar viendo ( usado de ) un hombre
@@ -7367,7 +6135,7 @@ así pues , por favor , si lo volviera a pensar , hazme reflexionar
 por eso te pregunto , por si , por si acaso me llegas a llevar
 parece estar enfermo
 parece muy ufano
-¿ es Abraham ese ? - - parece ser Abraham
+¿ es Abraham ese ? - parece ser Abraham
 parecía ser pez picudo
 parecía muy enojado
 pafreces muy burlón
@@ -7385,10 +6153,10 @@ así tiene que ser
 había que tratar los asuntos en común
 aquí no se puede
 ¿ qué vas que hay aquí ( adivina , ¿ qué piensas que . . . )
-adivina qué ( ¿ qué piensas que . . . ) traigo , Beo ? - - huevos bien que blanquean por fuera ( de a bolsa )
-¿ cuándo crees que se van los muchachos ? - - yo ( creo ) que mañana . - - y yo también
+adivina qué ( ¿ qué piensas que . . . ) traigo , Beo ? - huevos bien que blanquean por fuera ( de a bolsa )
+¿ cuándo crees que se van los muchachos ? - yo ( creo ) que mañana . - y yo también
 ¿ qué crees que está tronando ?
-¿ qué vas que son ? - - yo , que manzanas . - - yo , que duraznos
+¿ qué vas que son ? - yo , que manzanas . - yo , que duraznos
 adivíname qué traigo ?
 ¿ qué crees que no duele ?
 ¡ cómo huele a manzana !
@@ -7397,22 +6165,22 @@ no quiero ! que no quiero !
 nosotros somos bautizados ( LIT . recibímos nombre ) en el templo ; no somos gentiles
 no , nada
 tampoco ; todavía no
-lo dijo Tranquilino . - - yo no dije nada
+lo dijo Tranquilino . - yo no dije nada
 yo no sé
 yo no lo pegué
 es que todavía no me voy a dormir
 no me reí yo
 es que no sé nada yo
-lo dijo tranquilino , - - yo no dije nada
+lo dijo tranquilino , - yo no dije nada
 yo no sé
 no tengo ganas de ayudarte ; al fin que tampoco tú me has cde ayudar después
-ve allá . - - no ; al cabo que tú no me has de dar zapatos
-¿ por que no le diste maíz ? - - al cabo que t no me dijiste , ( pues ssi no me dijiste . . . )
+ve allá . - no ; al cabo que tú no me has de dar zapatos
+¿ por que no le diste maíz ? - al cabo que t no me dijiste , ( pues ssi no me dijiste . . . )
 dice que no se revolvieron
 es que no tengo rastrojo
 ¡ qué me iba a asustar !
 dice que no estan diciendo nada
-¿ ya tiraste tú ? - - yo ya
+¿ ya tiraste tú ? - yo ya
 nuna he ido yo
 ¿ acaso no eras tú ( de esta vida ) dejando el cuerpo ?
 yo no dije nada !
@@ -7428,7 +6196,7 @@ que no se quede nadie
 ¿ pero que estás haciendo ? estás perdiendo tu trabajo ; luego luego se va a trozar
 muy ptonto está acabando con las tortillas
 es bien obedecer enseguida
-¿ no comes ? - - sí comeré , si es que me dan de comer
+¿ no comes ? - sí comeré , si es que me dan de comer
 crecerá mucho , en caso de no efermarse
 salta uno luego luego si no quiere recibir el golpe
 quiero un papel , si es que tienes
@@ -7470,22 +6238,22 @@ por abajo
 por el lado por donde sale el sol
 mira ! por dónde anda !
 íbamos muy contentos por el camino , hasta que llegamo a Riwirichi
-¿ dónde dejaste los caballos ? - - allá arriba de la cañada ( por la cabecera del arroyo )
+¿ dónde dejaste los caballos ? - allá arriba de la cañada ( por la cabecera del arroyo )
 andaba perdido por arriba de los cantiles
 ahí vienen un indio con flechas
-¿ qué traes - - traigo ( LIT . vengo con ) maíz
+¿ qué traes - traigo ( LIT . vengo con ) maíz
 me llevo esto ( LIT . me voy con esto )
 va a venir sin nada ( LIT . con nada )
 no comas con el sombrero ( puesto )
 es José HIlario con su chamaco
-¿ qué traes ? - - pinole ( LIT . con qué andas ? - - con pinole )
-¿ y la cuarta ? - - la traigo yo ( LIT . yo ando con ella )
+¿ qué traes ? - pinole ( LIT . con qué andas ? - con pinole )
+¿ y la cuarta ? - la traigo yo ( LIT . yo ando con ella )
 yo ya acabé
 ¿ dónde está el hacha chica ?
-quiero el sombrero nuevo . - - ¿ dónde está ?
-¿ dónde está Faustino ? - - se oye que está adentro
-¿ qué dijo Pichardo ? - - ¿ dónde está él ?
-¿ cuándo llegaste ? - - hace muy poco . - - vinieron los dos ? ( tú y tu mujer ) ? - - sí . - - ¿ dónde está ella ? - - donde su papá
+quiero el sombrero nuevo . - ¿ dónde está ?
+¿ dónde está Faustino ? - se oye que está adentro
+¿ qué dijo Pichardo ? - ¿ dónde está él ?
+¿ cuándo llegaste ? - hace muy poco . - vinieron los dos ? ( tú y tu mujer ) ? - sí . - ¿ dónde está ella ? - donde su papá
 por favor , enróllame el turbante
 está muy tieso el petate : se enrrolló otra vez
 el chamaco está con el taparrabo envuelto ( entre las piernas )
@@ -7520,7 +6288,7 @@ desenrollársele , desenvolvérsele
 desenrollar , desenvolver
 desenrollarlo , desenvolverlo , desenrollarle , desenvolverle
 desenrollárselo , desenvolvérselo
-¡ qué hicíste ! - - nada ; tú fuiste el que me hiciste que lo enrollara
+¡ qué hicíste ! - nada ; tú fuiste el que me hiciste que lo enrollara
 vaya ! dos veces lo enrollé , y dos veces se desenrolló el petate !
 dos piezas de manta
 ¿ no tienes un papel para envolver esto ?
@@ -7529,7 +6297,7 @@ sí lo extendí pero se volvió a enrollar
 la Chata ( una perra ) se fue rodando ( como hecha rollo )
 una cobija para atajar ( detener ) bien el frío
 vámonos a la sombra del sauce
-¿ qué haces ? - - aquí no más , sentado a la sombra
+¿ qué haces ? - aquí no más , sentado a la sombra
 la gallina se hizo bola para dormir
 ¡ que se hagan bolitas , Pedro !
 apelotonar , hacer bolas
@@ -7558,9 +6326,9 @@ le dieron a comer colorín revuelto en el tónari ; le pegaron con cobijas y le 
 la lechuza kabósuri es pati - larga , de ojos grandes y pico corvo
 me duele mucho la pantorrilla ! me acalambré !
 tiene muy gruesas las pantorrillas ; está muy fuerte
-¿ de dónde vienes ? - - de Narárachi
-¿ cuándo te vas ? - - dentro de bastante tiempo ; parece que ya va a llover ( ya vienen las lluvias )
-¿ cuándo te suecedió ? - - ya van cinco días
+¿ de dónde vienes ? - de Narárachi
+¿ cuándo te vas ? - dentro de bastante tiempo ; parece que ya va a llover ( ya vienen las lluvias )
+¿ cuándo te suecedió ? - ya van cinco días
 y a mí ¿ cúando me pagan ?
 ¿ al morir un hombre , ¿ en qué momento se sale el alma ?
 me duele mucho la cadera
@@ -7628,7 +6396,7 @@ quitarle las arrugas , desarrugarlo , alisarlo , desarrugarle , alisarle
 ¿ por qué aeeugaste tanto ( el papel ) ! ya no se puede entender
 la bola va por el faldeo
 los patos andaban por la ladera
-¿ dónde vamos a jugar flechas ? - - vamos a jugar allí , de este lado ( del lado de acá )
+¿ dónde vamos a jugar flechas ? - vamos a jugar allí , de este lado ( del lado de acá )
 más ( de este lado de ) acá
 más acá
 aún más acá
@@ -7640,7 +6408,7 @@ siéntate más acá
 más acá de donde yacen los muertos ( del cementerio )
 entonces , los otros me siguieron luego luego ; por poco nos atascamos ; bastante más acá de Bakaratos , sí nadaron ( los caballos )
 yo caí del lado de acá de donde está quemado
-tú ponte más hacia acá . - - ¿ dónde hacia acá ? ( dónde mero ? )
+tú ponte más hacia acá . - ¿ dónde hacia acá ? ( dónde mero ? )
 este está levantado / partic . sse levanta , que se levanta
 bájenla ! se levanta mucho ! ( una viga , del extremo )
 yo te lo levantaré para que lo cojas
@@ -7694,26 +6462,26 @@ desbaratárselo deshacérselo , derrumbárselo , demolérselo , derribárselo ,
 hacer que se deshaga , hacer que se desbarate , hacer que se derrumbe
 hacerlo que se desintegre , que se desbarate , que se deshaga , hacerlo desplomarse , derrumbarse
 hacer que se desbarate , que se deshaga , que se derrumbe , desbaratársele , deshacérsele , derrumársele
-¿ ya le echaron abajo ? ( la pared ) . - - ya la tiramos
+¿ ya le echaron abajo ? ( la pared ) . - ya la tiramos
 ¿ de dónde llegas ?
 por donde sale el sol
 mira ! por dónde viene !
 sirven muy bien para hacer queso ; se echa en la leche y cuaja |
 no es nada bueno el cacique , ahora lo vamos a sacar
-¿ cuàntos meses tiene el crío ? - - es de un año
+¿ cuàntos meses tiene el crío ? - es de un año
 me solté con diarrea ; ya estoy viejo
 en la casa hay sitio
-¿ a dónde se fue ? - - a Norogachi . - - ¿ allá se fue ?
-¿ dónde vives ? - - allá río arriba por la ladera
+¿ a dónde se fue ? - a Norogachi . - ¿ allá se fue ?
+¿ dónde vives ? - allá río arriba por la ladera
 ¿ a dónde fuiste a comprarlas ?
 ¿ dónde ? en qué lugar de . . . ?
 ¿ en qué parte de Ba'wichiki vives tú ?
-¿ dónde mero ? - - aquí
+¿ dónde mero ? - aquí
 donde quiera , en cualquier parte , por todas partes
 iré a donde quiera que me envíes
 hasta dónde se extenderá el campo de labor ?
 ¿ por dónde ?
-¿ por dónde se van a ir ? - - por el rodeo
+¿ por dónde se van a ir ? - por el rodeo
 ya están tristones los maíces ( enrollándoseles las hojas ) , porque no les llueve
 iba a enrollar la pañoleta que em acabas de dar ; esa voy a llevar de trubante
 voy a doblar ( nerollar ) el turbante allá adentro
@@ -7732,7 +6500,7 @@ tú juntas palabras de todas partes
 en donde quiera está Dios ; por eso debemos reverenciarlo
 voy a ponerle canoas ; si no se las pongo , se va a podrir maíz
 por esa razón no actuamos cuerdamente ; parece que es así
-¿ le pegas a este ? - - yo no
+¿ le pegas a este ? - yo no
 el toro estuvo corneando la tierra y los pinos y los tascatales ( donde había táscates ) con mucho coraje
 ve a tocar la campana ; bien fuertepara que oigan bien los tarahumares
 ( suena que ) se hace tarde ; está sonando la campana ; por eso kampana
@@ -7772,29 +6540,29 @@ se trozó el cabo ( del hacha )
 ¿ y si se quiebra la rama ? ( en que está sentado )
 heló ; por eso no se trozó
 se lisió una pata y no puede andar bien
-no camina aprisa el pato . - - no ; camina como baldado
+no camina aprisa el pato . - no ; camina como baldado
 ( en muchos pedazos ) , trozarlo en muchos pedazos
 trozárselos ( en muchos pedazos )
 trozar , quebrar , trozando ; baldar , lisiar
 trozarlo , trozarle
 trozàrselo
 hacer que se troce , hacer trozarse , trozársele , quebrársele en dos
-lo trozáste tú ! - - yo no quebré nada !
+lo trozáste tú ! - yo no quebré nada !
 va a doler mucho el brazo , si ( me ) lo quiebras
-¿ quién lo quebró ( trozó ) ? - - quin sabe quién lo haya trozado ; yo no sé
+¿ quién lo quebró ( trozó ) ? - quin sabe quién lo haya trozado ; yo no sé
 pégale con la mano hecha bola ( con el puño cerrado )
 apuñetéalo
 cierra la mano , haz bola la mano
 ya se hinchó ( del vientre ) , porque se indigestó
-¿ es una cueva ? - - no ; es una sombra . - - ¿ sombra de qué ?
-¿ dónde encontraron las reses ? - - andaban de este lado de Kárachi
-¿ soy yo acaso un mentiroso ? - - y mucho más que todos
+¿ es una cueva ? - no ; es una sombra . - ¿ sombra de qué ?
+¿ dónde encontraron las reses ? - andaban de este lado de Kárachi
+¿ soy yo acaso un mentiroso ? - y mucho más que todos
 andas con puras patrañas , mentirosísimo !
-¿ no sabes ? - - no . - - embustero ! - - ¡ de verdad !
+¿ no sabes ? - no . - embustero ! - ¡ de verdad !
 ya se va poniendo borroso ; ya se va ensombreciendo , porque pasan las nubes
 allí en la otra banda está bien sombrío ( hay una buena sombra )
-estas dicieno puras mentiras . - - yo no miento
-¡ embustero ! - - yo no miento ; , ¿ por qué había de decir mentiras ?
+estas dicieno puras mentiras . - yo no miento
+¡ embustero ! - yo no miento ; , ¿ por qué había de decir mentiras ?
 de vez en cuando he dicho algunas mentiras
 Concho se rió durante el rezo
 la encina es muy sombría ( de sombra ancha )
@@ -7810,8 +6578,8 @@ yo viviré e una casa linda
 dice que se fue tras el cerro
 que se llegan pues mañana al otro lado , al pueblo ; eso dice
 enfatizan , sin modificar el sentido
-vivo del otro lado . - - ¿ dónde del otro lado ? - - río abajo a la vuelta ( del recodo )
-¿ dónde van a comer ? - - arroyo abajo , a la vuelta
+vivo del otro lado . - ¿ dónde del otro lado ? - río abajo a la vuelta ( del recodo )
+¿ dónde van a comer ? - arroyo abajo , a la vuelta
 por el otro lado ( del cerro )
 hacie ale otro lado
 hacia ( el lado de ) acá , hacia este lado
@@ -7819,19 +6587,19 @@ del otro lado , por los faldeos
 andaban ( los animales ) del lado de acá de Kárachi
 déjalo del otro lado ( del cerro )
 se fue dando la vuelta allá por el otro lado
-¿ dónde está ? - - se oye que está adentro de la casa ?
+¿ dónde está ? - se oye que está adentro de la casa ?
 y ( cuando llegamos ) en Carichí ya era media noche ; por eso ya no andaba nadie ; un solo hombre estaba cerca de donde está el templo
 si es bastante lejos ; es poquito más acá de Carichí
 ¿ son de Carichí ?
 se fue rodenado por el otro lado
 chalo al otro lado
 de una pedrada boté la lagartija a otro lado
-¿ estuche de qué es esto ? - - de flechas ( aljaba )
-los rarámuri se juntaron del otro lado ( de la loma ) . - - ¿ dónde ( precisamente ) del otrolado ? - - del otro lado , en el pueblo
-¿ dónde van a comer ustedes ? - - río abajo , a la vuelta
+¿ estuche de qué es esto ? - de flechas ( aljaba )
+los rarámuri se juntaron del otro lado ( de la loma ) . - ¿ dónde ( precisamente ) del otrolado ? - del otro lado , en el pueblo
+¿ dónde van a comer ustedes ? - río abajo , a la vuelta
 bajaron río abajo , al otro lado del cerro
 cuando ya ibamos casi llegando , nos alcanzó el carro
-¿ es una cueva ? . - - no ; es sombra . - - ¿ sombra de qué ?
+¿ es una cueva ? . - no ; es sombra . - ¿ sombra de qué ?
 Todo hay que decirle al padre , sin que nos quede nada
 debe haberse contagiado de cualquier cosa ; de alguna enfermedad , o de algo
 todas esas cosas
@@ -7853,7 +6621,7 @@ dice que le arrancará las piernas
 ¡ anda piernas prietas !
 ten las manos sobre los muslos
 voy a tene al niño sobre las rodillas
-¿ dónde pongo esto ? - - `por favor pónmelo sobre las piernas
+¿ dónde pongo esto ? - `por favor pónmelo sobre las piernas
 parecía quebrado aquí
 se va a ir por donde está quebrado ( el vidrio )
 no vamos a tener luz en la noche ; ya se quebró la ( lámpara ) con que dormíamos alumbrados
@@ -7914,7 +6682,7 @@ si te lo guardo
 ya lo iba a guardar yo
 guárdalo pues , otra vez
 está guardado
-¿ cuándo se murió ? - - lo sepultyaron antier
+¿ cuándo se murió ? - lo sepultyaron antier
 te lo voy a componer bien , te lo voy a dejar bueno
 arrgléame esto , una ( linterna de mano ) ; ¿ no tienes un ojo ? ( foquito ) ; para ir alumbrando en las procesiones
 hablen bien a ver quien es culpable , arreglarlos
@@ -7927,7 +6695,7 @@ el pájaro canta , la mosca zumba , la rana croa , la serpiente silba , el polli
 trae acá las podaderas
 es bizco , no mira bien
 te voy a dejar bizco de un puñetazo al ojo
-comamos allí . - - pero no hay buena sombra
+comamos allí . - pero no hay buena sombra
 es que no hay leña
 pero si tú no lo dijiste ; ya tenías que haberlo dicho
 es que no va a dormir a gusto , si bailamos arribita ( dónde el duerme )
@@ -7936,13 +6704,13 @@ al fin que tú no me ayudas
 yo ya no tengo ganas de jugar
 es que no volverás a ser pequeño una segunda vez
 ya ves que nosotros los rarámuri no nos desarrollamos a prisa ; nosotros tardamos en desarrollarnos
-¡ te mueres ! . . . - - ¡ qué me voy a morir . . .
+¡ te mueres ! . . . - ¡ qué me voy a morir . . .
 ¿ te llenarás ? ( hartarás ? ) . - ¡ qué se va a llenar ese ! es un glotón !
-¿ y engendran ? - - ¡ qué van a engendrar esos ! ( los bisexuales )
+¿ y engendran ? - ¡ qué van a engendrar esos ! ( los bisexuales )
 no ; que nos ponemos los zapatos y nos defendemos
-ven acá a meter esta res . - - no que es muy brava
-cigarros . - - te dar una sola ( cajetilla ) . - - dos , que me la acabaré en seguida ;
-cómo es que no viniste el domingo pasado ? - - es que no hay nadie que cuide las cabras
+ven acá a meter esta res . - no que es muy brava
+cigarros . - te dar una sola ( cajetilla ) . - dos , que me la acabaré en seguida ;
+cómo es que no viniste el domingo pasado ? - es que no hay nadie que cuide las cabras
 no ( muy enfático )
 no tengo ni tantito maíz
 no hay peligro de que me indigeste
@@ -7952,7 +6720,7 @@ todavìa no vamos a sembrar ; est muy dura ( la tierra )
 traigan huevos , tarahumares ; me gusta mucho comerlos ;
 ¿ huevos de qué son ?
 no había huevos
-¿ qué traes ? - - huevos de gallina . - - vuelve otra vez con huevos de gallina ( trae otra vez . . . )
+¿ qué traes ? - huevos de gallina . - vuelve otra vez con huevos de gallina ( trae otra vez . . . )
 salírsele los huevos ( a una hembra ) , desovar
 hacer que se le salgan los huevos ( a una hembra ) , que los suelte , que desove
 estar desovada ( una hembra ) , haber perdido , habérsele salido los huevos
@@ -7972,10 +6740,10 @@ esos son vivíparos
 ¡ déjenla ! ¡ quiere poner la gallina !
 la gallina cacarea luego de poner
 se va para arriba , se va pegándose a las peñas , y a los árboles también
-¿ qué es ? - - táscate ; mira cuántos !
-¿ no son viejos ( estos huevos ) ? - - son recién puestos
+¿ qué es ? - táscate ; mira cuántos !
+¿ no son viejos ( estos huevos ) ? - son recién puestos
 ese viejo se parece por los cacahuates ; parece coyote
-¿ cómo se comen los cacahuates ? - - pues quitándoles las cáscaras
+¿ cómo se comen los cacahuates ? - pues quitándoles las cáscaras
 ese ( macho ) sí las hará parir ; tiene grandes testículos
 ¿ qué burla te hago si te gano ?
 te vas a burlar de mí
@@ -7984,9 +6752,9 @@ llvate ese caballo ; lo vendes y le sacas dinero
 el caballo ya va con el hocico abierto ; ya se cansó
 también irá por leña
 y llévenles leña a sus suegras , jóvenes no les dé pereza
-¿ y el viejo ? - - se fue loma arriba a traer leña
+¿ y el viejo ? - se fue loma arriba a traer leña
 y también tengo que acarrear la leña yo , teniendo hijos
-esa codorniz es de las de ( la casa de ) arriba ; déjala . - - no ; es silvestre ; la cogí yo
+esa codorniz es de las de ( la casa de ) arriba ; déjala . - no ; es silvestre ; la cogí yo
 en seguida se hundirá ( el mundo ) , si no lo sostuviere levantado Dios
 no sigamos a que vive abajo
 juntos llorémosle a Dios para que nos dé cabal alimento
@@ -8001,7 +6769,7 @@ yo ya ; antes que David
 ¿ es igual a este ?
 no era tan bueno
 antes era muy buen corredor
-¿ cuántos traes pues ? - - son dos
+¿ cuántos traes pues ? - son dos
 cierto que es una piedra ( el sukiki ) ; pero , así y todo , vuela ; así y todo , chilla muy fuerte
 brujo no es ; sino que tiene un corazón muy miserable
 sí que sería bueno ir a Chihuahua ; pero no tegno dinero
@@ -8011,10 +6779,10 @@ estaba allí en el río
 se juntaron a esas horas
 estabas fuma y fuma , eh ?
 traía cinco pesos
-tengo ganas de jugar : ¿ y tú ? - - yo no
+tengo ganas de jugar : ¿ y tú ? - yo no
 no quiero ; que no quiero
-ven acá muchacho . - - no
-¿ te duele la cabeza ? - - no :
+ven acá muchacho . - no
+¿ te duele la cabeza ? - no :
 yo no sé
 no tengo maíz
 te lo robaste tú : no !
@@ -8031,13 +6799,13 @@ tampoco
 no tanto , no tan
 no le voy a hacer nada
 es que no tengo nada
-¿ lo viste ? - - yo no . - - yo tampoco
+¿ lo viste ? - yo no . - yo tampoco
 aún no he comenzado
 por cierto que te gusta fumar , ¿ no ?
 ¿ pues qué ? ¿ no lo dijiste ?
 yo no dije nada
-no lo viste ? - - no
-¿ qué hay muchos ratones ? - - sí ; por qué no había de haber ?
+no lo viste ? - no
+¿ qué hay muchos ratones ? - sí ; por qué no había de haber ?
 brujo no es ; sino que tiene un corazón muy mezquino
 sí tocaba bien ( el violín )
 se enojará si pierde el sentido
@@ -8049,9 +6817,9 @@ anda mascando chicle
 masqué el chile
 no son tantas ahora las ( cabras ) que están preñadas
 es que no tengo muchas ganas
-si me voy solo , me pierdo . - - no te perderás ( LIT . ) no te perderás tanto
+si me voy solo , me pierdo . - no te perderás ( LIT . ) no te perderás tanto
 no era tan difícil
-si es algo amargo , no mucho . - - no mucho , sí
+si es algo amargo , no mucho . - no mucho , sí
 no le hagas nada a tu mujer : por poco la matas , considera
 ponte retador ; haz la cuenta de tus años ; ¿ a caso vas a durar ciencuenta años ?
 tu mujer , la que murió , ¿ no tenía ningún parentesco con este ?
@@ -8061,9 +6829,9 @@ dicen que le diste una bofetada al chiquillo Faustino , Valerio . - no ; yo no l
 es pariente mío , aunque no muy cercano
 me lo regaló mi hermano nenor el invierno pasado
 el cuerpo donde existe uno ; ( LIT . mi carne , donde yo existo )
-no vas a venir pues ? - - no !
-pues dice que te enojaste mucho . - - te digo que no
-¿ por qué no lo hiciste ? - - pues no ( lo hice ; ya ves que no )
+no vas a venir pues ? - no !
+pues dice que te enojaste mucho . - te digo que no
+¿ por qué no lo hiciste ? - pues no ( lo hice ; ya ves que no )
 zorra tragona ( insulto )
 al medio da le damos esquiate ; el esquiatelo hacemos tostando ( al grano de maíz ) , y luego lo molemos ( haciéndolo masa ) con agua .
 cuando va por allí ( el sol ) , comenzando a declinar entonces bebemos el esquiate
@@ -8075,22 +6843,22 @@ oler a esquiate
 no nos lloverá allí al pie ( de los cantiles ) , si hay una hoquedad
 enferma no está ; solo que se haya contagiado
 brujo no es ; sino que tiene un corazn muy mezquino
-¿ trabajaste tu ? - - no
-¿ le hablaste ? - - no lo vi
+¿ trabajaste tu ? - no
+¿ le hablaste ? - no lo vi
 no tengo maíz
 lo que pasa es que no puedo hablar
 Patricio ni debía hablar ; es muy pendenciero ; ya tendió ( mató ) a uno
 no hagamos , pues , nada
-¿ qué , pues , dices ? - - nada
+¿ qué , pues , dices ? - nada
 aún no , todavía no ; tampoco
 todavía no es tiempo de de sembrar
 todavía no me avisan
-yo no sé nada . - - ¿ y tú ? - - tampoco
+yo no sé nada . - ¿ y tú ? - tampoco
 cierto que no
 yo no sé nada
-¿ es tuyo el burro ese ? - - no
+¿ es tuyo el burro ese ? - no
 el zopilote se fue a olfatear ; por arriba de los cerros anduvo olfateando ; pero no los vio , ni tampoco los rastreó
-¿ y Dolores ? - - está allá en el jacal
+¿ y Dolores ? - está allá en el jacal
 puse un techito en el borde ( del cerro ) para cuidar mi milpa
 en todas partes nos cubre el cielo
 nosotros no sabemos cómo está allá arriba tendido ( como un techo ) el cielo
@@ -8098,13 +6866,13 @@ cuando los arrieros blancos llegan ( al pareje ) en el camino , y viene gran de 
 la chica vive ahora con su abuela materna ; con su abuela materna pastorea las cabras
 algunos andan llevándose las esposas de sus hermanos ( menores ) ; algunos andan llevándose las esposas de otros
 y el ( hermano ) mayor fue a su casa porun hacha
-¿ son cinco ? - - cinco
-¿ qué , pues , trajiste ? - - maíz
-qué ¿ estamos enfermos ? - - sí
-te vas a perder . - - no
-¿ van a danzar hoy los indios ? - - sí van a danzar ; puede que no ; quién sabe . . .
+¿ son cinco ? - cinco
+¿ qué , pues , trajiste ? - maíz
+qué ¿ estamos enfermos ? - sí
+te vas a perder . - no
+¿ van a danzar hoy los indios ? - sí van a danzar ; puede que no ; quién sabe . . .
 hoy , mañana o pasado mañana
-me voy cuando vaya amaneciendo . - - ¿ quién va contigo ? - - quién sabe . . . José o Miguel
+me voy cuando vaya amaneciendo . - ¿ quién va contigo ? - quién sabe . . . José o Miguel
 ¿ te vas mañana ? o ahora ?
 ( ordenan ) que dancen ustedes y ofrezcan ( LIT . pongan ) cuatro quesos ; que vamos a morir vomitando sangre
 ¿ cómo huele ! huele a queso !
@@ -8123,13 +6891,13 @@ váyanles a la mano a sus hijos
 ¿ acaso no nos lo da siempre ? ( el alimento ) cierto que nos lo da sin cesar
 ¿ qué , no mamará de una cabra ?
 ahora hay que jalar , ¿ no ?
-¿ cómo se llamaba ? - - se llamaba Federico , ¿ no ?
-yo no lo he visto . - - ni yo tampoco
+¿ cómo se llamaba ? - se llamaba Federico , ¿ no ?
+yo no lo he visto . - ni yo tampoco
 el lucero de la mañana : sale cuando amanece todavía no bien amanecido
 esta muy dura el hambre ; es cosa de muerte ; dicen que algunos todavía no se mueren ; los de Bekéachi , esos se han muerto muchos
 qué importa que aún no coma yo . . .
 al principio no existía nadie
-¿ quién me está llamando ? - - nadie
+¿ quién me está llamando ? - nadie
 ( a ) la mujer era una zorra pero el hombre no lo sabía
 y abajo en el agua estaba ( reflejada ) una con orejas de zorra ; entonces el hombre miró otra vez arriba a donde estaba la mujer
 y la zorra huyó muy avergonzada , convertida ( otra vez ) en zorra ; ya no era mujer ; era zorra
@@ -8143,9 +6911,9 @@ tantos así ( como esos )
 cuantos , los que , todos los que . . .
 cuantos quiera , todos los que sean
 cuantos quiera , todos los que sean
-¿ cuántos me llevo ? - - llévate cuantos quiera , cuantos se te antoje
-¿ no más esos hijos tienen ustedes ? - - esos ( LIT . tantos así )
-¿ no más esos ( tantos así ) quieres ? - - tantos así quiero
+¿ cuántos me llevo ? - llévate cuantos quiera , cuantos se te antoje
+¿ no más esos hijos tienen ustedes ? - esos ( LIT . tantos así )
+¿ no más esos ( tantos así ) quieres ? - tantos así quiero
 ¿ cuántos años van de cuando la mortandad ? ( habalndo de unos años de peste )
 ¿ cuántas cañaste traigo ?
 cuéntamelos , a ver cuántos son
@@ -8161,7 +6929,7 @@ en las partes que . . .
 en cuales quiera partes , en cuantos sitios sea
 precio
 ¿ a cuánto están los cerillos ?
-¿ cuánto de sal ? - - cincuenta centavos ( LIT . cuatro reales )
+¿ cuánto de sal ? - cincuenta centavos ( LIT . cuatro reales )
 hace muchísimo tiempo , cuando era un niño chiquito
 antes ( hace mucho ) era muy buen corredor
 ms antes ; de ms antes , hace mucho ( enf )
@@ -8191,14 +6959,14 @@ alivia el dolor de estómago
 ya hiciste que me cayera mal mi caballo
 ese caballo me tiene mala voluntad
 en adelante no andemos con odios ; ¿ por qué hemos de vivir enemistados ?
-¿ qué te pasó en la mano ? - - es un grano
+¿ qué te pasó en la mano ? - es un grano
 es a ti quien te ve aml ( LIT . el aborrecido eres tú )
 le salieron granos por todo el cuerpo ; quién sabe que enfermedad le haya pegado
 ( LIT . la podridora ) es una mosca de granos ( querezas ) ; verde
 hay que detestar las pendencias
 dejen definitivamente las enemistades ( los odios )
 es odioso
-Clemente llegó al retinto . - - no hay que prestárselo
+Clemente llegó al retinto . - no hay que prestárselo
 ¡ parece que es Clemente !
 ( a ) cómo es que los otros tienen ocho y tú nueve ! . . .
 ( b ) en 9 sitios , en 9 lugares
@@ -8210,7 +6978,7 @@ novena parte 1/9
 los 9
 ( 9 veces 10 )
 noventa y tres
-ya desgastaste ( luíste ) los pantalones . - - así estaban ya mordiscados
+ya desgastaste ( luíste ) los pantalones . - así estaban ya mordiscados
 está rumiando la vaca
 ( ese ) habla con la boca apretada
 esa cierra la boca
@@ -8218,7 +6986,7 @@ esa cierra la boca
 ( 2 ) ( a ) ¿ en cuántas partes ( lugares ) ?
 en esas ( tantas ) partes , lugares
 no sé yo en cuántas partes has estado
-por cinco lugares ( poblados ) pasé reuniendo a los tarahumares . - - ¿ por esos ( tantos así ) lugares pasaste ?
+por cinco lugares ( poblados ) pasé reuniendo a los tarahumares . - ¿ por esos ( tantos así ) lugares pasaste ?
 en cuántas partes , en cuántos lugares
 tengo mucho hipo
 más ( hacia ) acá , de este lado
@@ -8239,16 +7007,16 @@ manden acá a dos muchachos
 por favor ( kiri ) degüellame esta cabra
 aguanta si eres hombre
 yo comeré frijoles ( con tu permiso )
-tíramelas , - - mejor no !
-ve , pues , también tú . - - mejor no !
-¡ Guadalupe , no te molesta ? - - - é no dice nada ; ese es pacífico
+tíramelas , - mejor no !
+ve , pues , también tú . - mejor no !
+¡ Guadalupe , no te molesta ? - é no dice nada ; ese es pacífico
 no habla , véanlo ustedes , con palabras pacíficas
 ese es bien tranquilo
 tú estate quieta , mamacita ; que el hombre declare primero
 sí , a nuestros hijos , hay que corregirlos con calma
 vivamos en paz
 ¡ qué bueno fuera vivir en paz !
-¡ qué haces ? . - - no hago nada , estoy tranquilamente tomando el sol
+¡ qué haces ? . - no hago nada , estoy tranquilamente tomando el sol
 andaban ocultándomelo cautelosamente
 viene muy despacito , del calor quee trae
 yo soy feliz andando despacito
@@ -8260,21 +7028,21 @@ de largo quem tan largo como ,
 del mismo largo
 de cualquier largo
 de cualquier largo , del largo que sea
-¿ de qué largo quires las estacas ? tan larga así ? - - tan larga como la que está allí , mira
+¿ de qué largo quires las estacas ? tan larga así ? - tan larga como la que está allí , mira
 trae otra del mismo largo
 su pie era del mismísimo tamaño ; tenía el pie del mismísimo largo
 será tan largo como uds . manden
 hay en la peña una poza tan honda como tu estatura ( cuanto te yergues tú )
 es ( se yergue ) tan largo como yo ( es de mi altura )
-¡ cuánto tiempo vas a estar aquí ? - - - mucho !
-¡ cuánto tiempo estuvoste en la cama enfermo ? - - una semana
+¡ cuánto tiempo vas a estar aquí ? - mucho !
+¡ cuánto tiempo estuvoste en la cama enfermo ? - una semana
 ¿ cuánto tiempo ? ¿ por cuánto tiempo ?
 tanto ( tiempo ) así
 tanto ( tiempo ) como
 por el tiempo que sea , tan largo ( tiempo ) como fuere
 ¡ por cuánto tiempo te ha estado forzando ?
-estuve muy poco tiempo con ese hombre . - - ¿ cuánto tiempo ? - - el que sea ( lo que pueda según se ofrezca )
-¿ por cuánto tiempo viviste en nararachi ? - - tanto como Pichardo . - - ¿ tanto así ?
+estuve muy poco tiempo con ese hombre . - ¿ cuánto tiempo ? - el que sea ( lo que pueda según se ofrezca )
+¿ por cuánto tiempo viviste en nararachi ? - tanto como Pichardo . - ¿ tanto así ?
 se llama el Gavilancillo ( un rancho ) porque en tiempos pasados había muchos gavilancillos
 se llama el Gavilancillo ( un lugar ) porque en tiempos pasados había muchos gavilancillos
 es medio moteado como el kirichí
@@ -8283,7 +7051,7 @@ en Creel no está tan caro el maíz
 el Cerro Grande es el más alto de todos ; desde su cima se ve bien para todas partes ; se ve bien el tren humeando en Creel ; se divisa todo al rededor
 entonces Clemente dijo : si vienen los tarahumares , mataremos un toro grande
 ¿ qué tan largo ?
-¿ cómo te llamas ? - - me dicen Quirino
+¿ cómo te llamas ? - me dicen Quirino
 hablaré despacito
 el hombre se fue avcercando muy lentamente a la mujer
 tranquilamente con paz
@@ -8313,7 +7081,7 @@ no digan nada en nombre de Dios , hablando con mentiras
 tenía mucha hambre el perro ; en seguida le clavó los dientes a la carne
 andaba arriba royendo un hueso
 le voy a sacar punta al lápiz a mordidas
-¿ cuántos son ? - - parece que siete
+¿ cuántos son ? - parece que siete
 si te lo encuentro , te los doy por treinta y siete
 en siete lugares , en siete partes , en siete sitios
 los siete , entre los siete
@@ -8327,7 +7095,7 @@ andaba buscando ( viendo ) al cacique , pero no lo enconté ; traía en la boca 
 dicen que murió hace mucho
 antes era muy buen corredor
 cuentan que eso sucedió en tiempos muy antiguos
-¿ cuándo aprendiste el camino ? - - hace mucho , ya va 10 años
+¿ cuándo aprendiste el camino ? - hace mucho , ya va 10 años
 hace ya muichísimo que nos avisaron ; pero de todos modos se nos han quedado
 ándale , cuñado ! que tenemos mucha prisa ! ( canción rarámuri )
 los rarámuris antiguos ; los antepasados
@@ -8337,9 +7105,9 @@ dicen que está pelón
 ¿ dónde crees que es aquí , Lirio ?
 dice que son treinta y seis
 ¿ pues qué creías que era ?
-no será el de Rosa . - - sí : dice que era el de Rosa
+no será el de Rosa . - sí : dice que era el de Rosa
 ya le pegaré yo , si se pone ( LIT . es ) bravo
-¿ te gusta el chile piquín ? - - nada , es muy picante
+¿ te gusta el chile piquín ? - nada , es muy picante
 est picosísimo el chile
 quemar
 ¿ de dónde salíste ayer ? ¿ dónde vives tú ?
@@ -8347,8 +7115,8 @@ tal vez ya jilotea ( el maíz ) en algunas partes
 tal vez hará que nos caiga un rayo
 ya lo cogieron ; pero dice que se escapó
 quién sabe qué diga ; no sé yo
-¿ qué vas a hacer ? - - quién sabe
-¿ qué piensas ? - - quién sabe cómo tendrá que ser
+¿ qué vas a hacer ? - quién sabe
+¿ qué piensas ? - quién sabe cómo tendrá que ser
 cómo dijiste tú que era verdad . . .
 pues lo dijiste tú
 pero es que no duerme uno ( si bebe café )
@@ -8356,52 +7124,52 @@ dices pues que no hay manta
 pues cómo no lo dijiste ! tú tenías que haberlo mandado
 la encina blnaca sí se escarapela ; este en cambio ( el madroño ) , no
 hoy se irá ; mañana atardecerá en Wawatzérare ; pasado mañana se regresará
-¿ no hay manta ? - - manta no hay algunos
+¿ no hay manta ? - manta no hay algunos
 el café rinde mucho ; el azúcar , en cambio , no rinde nada
-este se va a llamar bikó . - - pero es que bikó no es nombre bonito
+este se va a llamar bikó . - pero es que bikó no es nombre bonito
 ven acá tú ; tú quédate allí
 sí ( te ) las haría , pero fajas no sé
 yo primero
 abusó de ella en una borrachera
 Tito no llora
 tú lo tumbaste . - no ! él solo se cayó
-¿ te lo encontrasteen el camino ? - - no
+¿ te lo encontrasteen el camino ? - no
 no le atina !
 yo no tengo marido
 a mí me tocaron dos
 yo no me comeré ; yo no me iré a mi casa
 yo dije que ayer ; yo dije que ayer
 yo no llevo nada
-es que no hay hambre ; hay mucho maíz . - - sí , aquí . . . ( pero en nuestra tierra )
-préstame no más diez pesos ; quiero comprar una cobija . - te prestaré solo cinco . - - ¡ no más cinco !
-no si no se cansa uno . - - no , tú no . . . ( pero nosotros . . . )
-¿ cuántos me vas a dar ? - - dos . - - ¡ dos !
-te llama el jefe . - ¿ para qué ? - - quién sabe para qué . . . ( LIT . qué voy a hacer ? - - quién sabe qué vayas a hacer . . .
+es que no hay hambre ; hay mucho maíz . - sí , aquí . . . ( pero en nuestra tierra )
+préstame no más diez pesos ; quiero comprar una cobija . - te prestaré solo cinco . - ¡ no más cinco !
+no si no se cansa uno . - no , tú no . . . ( pero nosotros . . . )
+¿ cuántos me vas a dar ? - dos . - ¡ dos !
+te llama el jefe . - ¿ para qué ? - quién sabe para qué . . . ( LIT . qué voy a hacer ? - quién sabe qué vayas a hacer . . .
 no te hablaría , si no estuviese informado
 me lo voy a comer ( el dulce ) convidándole al caballo , si no camina
 es que allí al pie ( de los cantiles ) no nos mojará la lluvia , si hay una cueva ;
 es que no vendría , si no me doliese tanto
 le tiró el sombrero
 hasta en el sombrero quisieron anidar las avispas
-¿ no comes ? - - sí comeré , si me dan ( de comer )
-les voy a dar ( de comer ) rastrojo a las reses y los caballos - - y también los burros
+¿ no comes ? - sí comeré , si me dan ( de comer )
+les voy a dar ( de comer ) rastrojo a las reses y los caballos - y también los burros
 hizo enfermara algunas mujeres : algo les habrá dado de comer
 con el atole le dieron ( a comer ) patol ( es que es un veneno )
 no es nuestro el maíz ; somos alimentados del cielo
 ¿ no me regalas una camisa ?
 ¿ si me das la niña luego que se alvie ?
-te gusta el chile piquín ? - - no ; pica mucho ; en cambio el chile colorado sí lo como ; ese no estan picante
+te gusta el chile piquín ? - no ; pica mucho ; en cambio el chile colorado sí lo como ; ese no estan picante
 parece estar muy picante ; nos va a sacar lágrimas
 el sotol es muy picante ; es imposible acabarse una botella
 el quelite cenizono es picante , no más esastringente ( agarroso )
-a mí me toca alimentar a los marranos ( LIT . soy alimentador de los marranos ) : ¿ ya quién más ? - - a Lirio - - ya Lirio está conmigo para alimentar los marranos
+a mí me toca alimentar a los marranos ( LIT . soy alimentador de los marranos ) : ¿ ya quién más ? - a Lirio - ya Lirio está conmigo para alimentar los marranos
 lo chamaco con una piedra ; en la mera frente le pegó
 dijo que se comería así
-¿ comió mucho ? - - no ; comió un poco de zacate
+¿ comió mucho ? - no ; comió un poco de zacate
 usa ( se pone ) sombrero de fieltro ( lanoso )
 ¿ qué estás comiendo ?
 ya está bien picante ; le puse mucho cile
-me dieron un motor . - - ¿ dónde está el motor ?
+me dieron un motor . - ¿ dónde está el motor ?
 y el chiquito ¿ dónde está ?
 es que la camisa ya estaba toda impregnada ( de suciedad y olor )
 sí se impregnó bien
@@ -8414,14 +7182,14 @@ yo no más tomaré pinole en seco ; no lo tomaré con agua
 nos tomará dos días el hacer el pinole
 no está bien hacer pinole en domingo
 aquí tienes un pocode maíz ; ¿ no lo haces pinole ?
-¿ y qué vas a comer ? - - tomaré pinole batido en agua
-¿ y no van a ( ustedes ) a pasar hambre ? - - tenemos mucho pinole
+¿ y qué vas a comer ? - tomaré pinole batido en agua
+¿ y no van a ( ustedes ) a pasar hambre ? - tenemos mucho pinole
 dice que dejaste el pinole
 al llegar batiremos pinole ( tomaremos pinole batido en agua : lokabo )
 te guardaré un poco de pinole
 por montarse al caballo abre uno las piernas
 estaba sentado con las piernas separadas
-¿ tienes una hermana mayor ? - sí ¿ también tienes hermana menor ? - - no ; yo soy el último ( LIT . la punta )
+¿ tienes una hermana mayor ? - sí ¿ también tienes hermana menor ? - no ; yo soy el último ( LIT . la punta )
 ¿ cómo se llama tu hermana ( mayor ) ? ( LIT . de qué nombre tienes hermana mayor ? )
 todavía no saco a comer a los marranos , a los marranos los saco a comer ( alimento ) al medio día
 se va a arrancar la pierna el chancho ( forcejeando por soltarse )
@@ -8430,7 +7198,7 @@ los rábanos blancos no son tan picantes
 un perro tan alto así ( de esta alzada )
 fríjate que anduvimos como un perro ; son los perros los que corren por los arroyos
 ¡ qué sentido tienen los perros bien se escondi el perro para que no lo mataran
-¿ por qué no duermes allí ? - - les tengo miedo a los corucos ( LIT . piojos de las gallinas )
+¿ por qué no duermes allí ? - les tengo miedo a los corucos ( LIT . piojos de las gallinas )
 prima mayor
 ese es hijo de mi hermana ( mayor )
 ¿ sabe tu hermana ( mayor ) tejer cobijas ?
@@ -8441,7 +7209,7 @@ no tengo manteca ; ms bien wes que no tengo marranos
 es que no tengo más que un perro
 un matalote grande ! vamos a bucearlo !
 ¿ cómo me los vas a dar ? tal vez querrás dinero
-¿ cuántos serán ? - - - treinta ; puedeque no lleguen . . .
+¿ cuántos serán ? - treinta ; puedeque no lleguen . . .
 parece que va a llover ;
 parece que no va a haber agua en el camino
 tortilla : acompañamiento de lo frijoles
@@ -8463,7 +7231,7 @@ siéntate con las piernas cruzadas
 está ( acostada ) con la pierna doblada
 todavía no les doy de comer a los marranos
 me muerde el bicho ese
-¿ qué vas a hacer ? - - ¿ en dónde ?
+¿ qué vas a hacer ? - ¿ en dónde ?
 quemando un olote ( hacen el rito del wikubériame )
 me enchilé la lengua
 atajan la bola !
@@ -8476,7 +7244,7 @@ El que vive arriba hizo una cárcel ( o comunidad ) y se fue
 hay que amarrarlo ; hay que ponerlo en prisión
 perseguí a muchos ladrones ; los llevé arribita de la cárcel
 llegaron los policías ( LIT . aprehensores ) ; la van a meter en la cárcel
-tienes muy ahuecado junto al hombro . ¿ cómo ? - - a modo de hoyo
+tienes muy ahuecado junto al hombro . ¿ cómo ? - a modo de hoyo
 los cascos de los ingleses son muy abombados ( los cascos de los soldados )
 plato extendido , plato hondo
 ¡ no le pusiste sal !
@@ -8500,7 +7268,7 @@ alí comimos ; una mujer nos dio de comer ; nos regaló muchas manzanas y durazn
 ya no llueve , cuando sale ( se pone ) el arco - iris
 allí estaba un arco . iris
 ¡ se va a encabritar el caballo ! cuidado , te va a tirar ! apriétate recio con las piernas !
-¿ y cómo vas a montarpara no caerte ? - - pues apretando las piernas
+¿ y cómo vas a montarpara no caerte ? - pues apretando las piernas
 siéntate con las piernas cruzadas
 lo mandé a comer a casa
 ¿ por que
@@ -8511,15 +7279,15 @@ se oye el carpintero picotear el árbol
 me comí un elote crudo
 Se comi muchos niños pequeños ; por eso hay muchos huesos en mitad de los farallones
 y al medio día comimos en Riwirichi
-¿ comiste tú ( de esto ) cuando eras chiquito ? - - jamás lo he comido
+¿ comiste tú ( de esto ) cuando eras chiquito ? - jamás lo he comido
 porque había muchos hombres comiendo allí donde ( estbamos comiendo ) nosotros
-¿ te gusta el chile piquín ? - - no ; es muy picante ; el rojo de rellenar sí lo como ; ese no pica tanto
+¿ te gusta el chile piquín ? - no ; es muy picante ; el rojo de rellenar sí lo como ; ese no pica tanto
 ya me enchilé mucho
 tiene muchas exhalaciones ; son verdes , como los pericos
 lo que la exhalación se lleva es el alma ; el cuerpo queda tendido en casa
 los goremá habitan en los manantiales ; de allì salen a buscar niños
 dormido y soiñando alcanza la exhalación e su morada , abre y va a llamar el alma y la reconduce a su casa ; entonces ( el enfermo ) ya cobra fuerzas
-me hizo moquear el chile . - - ¿ y también te sacó lágrimas ?
+me hizo moquear el chile . - ¿ y también te sacó lágrimas ?
 asado : es carne seca enchilada ( LIT . a la que han puesto chile ) ; se llama así porque se come asada
 estará muy mordente el chile
 chile marisol
@@ -8540,10 +7308,10 @@ enchilar , poner chile
 enchilarlo , ponerle picante
 va a dar la maroma al otro lado
 ¿ vas a robar ( por los ranchos ) del otro lado ?
-¿ dónde andabas pues ? - - andaba buscando maíz por las tierras del otro lado ( de los montes )
+¿ dónde andabas pues ? - andaba buscando maíz por las tierras del otro lado ( de los montes )
 ¿ quién ? Benedicto , el del otro lado
-¿ dónde andabas ? te andan buscando mucho . - - me fui a caminar por el otro lado
-¿ en cuánto compraste ( cuánto te costó ) la camisa ? - - no ; me la dieron de regalo
+¿ dónde andabas ? te andan buscando mucho . - me fui a caminar por el otro lado
+¿ en cuánto compraste ( cuánto te costó ) la camisa ? - no ; me la dieron de regalo
 ahora andan ( por las casas los danzantes ) pidiendo de comer
 dice el niño que ( te ) va a pedir una tortilla
 dice que comeremos dado ( pidiendo limosna )
@@ -8566,11 +7334,11 @@ si se cuaja mucho ( la humedad sobre la peña ) , no pasaré
 yo pensaba que nos íbamos a bailar en la fiesta de Corpus
 Corpus dice que ( él ) también va acelebrar semana santa
 ese lo desea todo es muy codicioso
-¡ pero si tú no te llenas ! - - es que soy muy glotón
-¡ se va a hartar ! - qué se ha de hartar ! - - es un glotón
+¡ pero si tú no te llenas ! - es que soy muy glotón
+¡ se va a hartar ! - qué se ha de hartar ! - es un glotón
 hay que desenterrar los maicitos , ya se borraron ( taparon )
 ven acá también tú , si es que quieres un pedacito
-qué ansias de dinero tienes ! - - si ; me lo voy a tomar con pinole
+qué ansias de dinero tienes ! - si ; me lo voy a tomar con pinole
 tú mismo coge el que se te antoje
 yo también voy a que me den ganas
 esos ( los brujos ) dicen que son muy codiciosos , que andan exigiéndoles ( quitándoles ) cosas ; se dice que se les da todo lo que se les antoja
@@ -8600,7 +7368,7 @@ trabajen duro para quie desquiten la comida
 eso ¿ se come ? ( es comida ? )
 darse un frentazo , descalabrase en la frente de un golpe
 la mujer era una mujer buena ; llevaba falda roja y turbanterojo también
-¿ quién ? - - aquél , el del turbante rojo
+¿ quién ? - aquél , el del turbante rojo
 iba a doblar la pañoleta que me diste el oto día ; iba a usarla de turbante
 hacer un turbante ; ponerse un turbante
 quitarse el turbante
@@ -8634,7 +7402,7 @@ lo sacaré otra vez
 vuelvan a juntar a la gente ( LIT . a los viejos )
 volveré a partir leña
 ¿ pudioste volver a levantarte ?
-¿ cuándo vueves ? - - dentro de unos días ciertamente volveré aquí
+¿ cuándo vueves ? - dentro de unos días ciertamente volveré aquí
 ¿ cuándo te vueves ?
 dar
 devolver , entregar
@@ -8652,22 +7420,22 @@ que nos quite las enfermedades
 entrégamelo , si te lo hallas
 se descosió
 se soltó
-voy a cerrar , está muy molsto el viento . - - cierra .
+voy a cerrar , está muy molsto el viento . - cierra .
 yo me defiendo cuando me regañan los otros
 por eso arrepintámonos
 recogí mi dinero
-ve a llamar a los muchachos , anadan arriba . - - ¿ los llamo a aus casa ?
+ve a llamar a los muchachos , anadan arriba . - ¿ los llamo a aus casa ?
 adiós , pues , ya me voy a casa
 voy a casita a comer tortilla
-¿ dónde está tu hermano ? - - está en la casa
+¿ dónde está tu hermano ? - está en la casa
 gira muy bien la rueda
 vaya ! son grandes ; yo los creía más chicos
 en casa bebamos de a poquito
 mejor los más chicos
 así nos dicen a nosotros , los menores , a los hermanos menores y hermanas menores
 era linda la mujer y espigada , chaparrita , de pies chiquitos
-¿ son de este tamaño ? - - máspequeñitos
-¿ son así de largos ? - - un poco más cortos
+¿ son de este tamaño ? - máspequeñitos
+¿ son así de largos ? - un poco más cortos
 ese me hace guiños ; me tiene mala voluntad
 muérdago de
 ¿ de qué árbol es este muérdago
@@ -8702,18 +7470,18 @@ es mi hijo
 vayan a la mano a sus hijos
 sí , capitanes ; son hijos de ustedes todos los rarámuri que ustedes pastorean ( vigilan )
 que no crezcan malcriados nuestros hijos
-dicen que en Kuchíwachi se heló tida la cosecha ) . - - ¡ qué es muy alto allí ?
+dicen que en Kuchíwachi se heló tida la cosecha ) . - ¡ qué es muy alto allí ?
 ya hace un año que viven separados ; solo de cuando en cuando vuelve y , sin embargo de entonces a acá , ya han tenido un hijo
 nos comerán los gusanos , acabarán con nosotros después de muertos
-¿ cuántos hijos tienes ? - - nomás dos
-¿ nomá eos hijos tienen ? - - no más estos . - - no s ele han muerto algunos ? - - uno solo murió : el primero
+¿ cuántos hijos tienes ? - nomás dos
+¿ nomá eos hijos tienen ? - no más estos . - no s ele han muerto algunos ? - uno solo murió : el primero
 te estoy tratando yo como si fueras mi hijo
 una anciana no tiene hijos ( procrea ) ; un viejo sí los tendrá , si se junta con muchachas
 ahora hemos de advertir bien a nuestros hijos ( LIT . hay que tener a los hijos advirtiéndolos bien ?
 no me ayudó nada a cuidar las cabras
 te mandan saludos los de Norogachi ( LIT . los de Norogachi dicen que Dios te ayude )
 es que tú no me ayudas nada
-¿ qué es el esquite ? - - pues maíz tostado
+¿ qué es el esquite ? - pues maíz tostado
 ya se tostaron todas las tortillas
 ya se tostó
 tostado
@@ -8733,7 +7501,7 @@ tostarle , tostarlos
 tostárselos
 hacer tostar
 hacer tostar
-dice que no le da la gana tostar las tortillas . - - yo haré que las tueste
+dice que no le da la gana tostar las tortillas . - yo haré que las tueste
 me gustan mucho las tortillas tostadas ; ¿ no me ( la ) tuestas ?
 dice que se comió un kujúbiri ; es muy bravo ( dañoso ) ese
 ¿ de dónde sale el agua ?
@@ -8769,9 +7537,9 @@ está sola ; hace poco que enviudó
 el esposo es este ; este es el hermano mayor
 ¿ de quién es marido Rubén ?
 ¿ todavía no es casada y anda retoizando con un hombre ; ¿ qué está bien jugar con los hombres ?
-¿ cuándo tomó esposo esta muchacha ? - - hace poco tomó esposo ; pero aún no es casada ( legítimamente ) ;
+¿ cuándo tomó esposo esta muchacha ? - hace poco tomó esposo ; pero aún no es casada ( legítimamente ) ;
 Serafina se casó ( tomó por marido ) con el nieto de Felipe
-¿ cómo se llama tu marido ? ( LIT . de qué nombre tienes marido ? - - yo no tengo marido
+¿ cómo se llama tu marido ? ( LIT . de qué nombre tienes marido ? - yo no tengo marido
 ¿ es ese su marido ? ( LIT . anda con ese por marido ? )
 el kunuwi es muy blanco antes de criar las alas
 me arrancó cabellos
@@ -8802,24 +7570,24 @@ ya está con los ojos cerrados
 está muy pandeada la rodela ( del huso ) ; está doblada ; no la hicieron bien derecha
 sólo de cuando en cuando me salen ( granos )
 sí he dicho mentiras una que otra vez
-¿ qué traajo hay ahora ? - - solo de cuando en cuando
+¿ qué traajo hay ahora ? - solo de cuando en cuando
 ( 1 ) ¡ ya se trozó en cordel !
 andaré con un cordoncito en lugar de taparrabao , tendido en la entrepierna
 apenas habla
 apenas pude
 apenas ayer llegamos , tenemos mucha hambre
-antier llegaron . - - ¿ apenas antier ?
+antier llegaron . - ¿ apenas antier ?
 apenas se sienta ( un nene )
 lo acabo de ver ( ahorita lo ví )
 hace muy poco que se hayuntaron
 adacbo de terminar dos maracas , mañana sigo con otra
-¿ son viejos ya ? ( unos huevos ) . - - no ; son recién puestos ( LIT . AHCE POQUITO FUERON PUESTOS )
+¿ son viejos ya ? ( unos huevos ) . - no ; son recién puestos ( LIT . AHCE POQUITO FUERON PUESTOS )
 me acabé dos horitas que veníamos por el camino
 mi sobrino ( hijo de mi hermana menor )
 Esperanza es sobrina de Saturnino ; es hija de la hermana menor de Saturnino
-¿ es nuevo ? - - sí , es nuevo
+¿ es nuevo ? - sí , es nuevo
 le voy a dar de comer en casa esquite al niño
-¿ cuándo llegaste ? - - acabo de llegar ( hace un momento llegué )
+¿ cuándo llegaste ? - acabo de llegar ( hace un momento llegué )
 anda , Cuco ! hazle caso ! ahorita lo obedezco
 acabo de llegar , acabo de llegar y aquí estoy !
 son chicos ( cortos ) ; y yo quiero de los más largos
@@ -8829,7 +7597,7 @@ yo quiero el nuevo
 ¿ no quieres una cobija ? es nueva
 yo tengo uno , nuevo
 muchachos ! vamos a jugar a los venados
-habrá que chupar el bote . - - que chupen el bote los muchachos
+habrá que chupar el bote . - que chupen el bote los muchachos
 allá del otro lado andan corriendo los muchachos
 Son muchos los que creen que que unas serpientes se les meten en el vientre a los niños pequeos ( las serpientes qe son cosa de brujería )
 que pongámos en la cruz las cabezas de los corderos
@@ -8839,7 +7607,7 @@ después de hacer la cruz ( de rezar ) nos habíamos de de ir ( no antes )
 mira , padre ! ahí va una agulilla
 el capulín está muy bueno para el pecho , cociéndolo
 unos son de Rareko ( Santiago Areko ) , y uno es de
-¿ quién está tocansdo la guitarra ? - - son unos de Kusárare
+¿ quién está tocansdo la guitarra ? - son unos de Kusárare
 ¿ cuántos elotes tatemáste ?
 voy a tostar carne en manteca
 los mandan saludar los caciques de Kusárare
@@ -8854,7 +7622,7 @@ parecía que ya habían pitado
 el u*mí ( variedad de caña ) , no se pita ; la faluta es de carrizo
 ese ( el wasárowa ) es un palo ; es algo amargo , no mucho
 te voy a pegar con este palo
-¿ qué árbol es aquél ? - - álamo
+¿ qué árbol es aquél ? - álamo
 wstá ladeado , está inclinado el poste
 vamos a ponerle un puntal ( un palo )
 voy a buscar estacas
@@ -8902,8 +7670,8 @@ dswpescozarse , cortarse el cuello
 cortar el pescuezo , degollar , despescozar
 cortarle el cuello
 es que este es muy chico
-¿ dónd está la navaja chica ? - - quién sabe , la traías tú
-¿ lo comiste cunado eras chico ? - - nunca he comido eso
+¿ dónd está la navaja chica ? - quién sabe , la traías tú
+¿ lo comiste cunado eras chico ? - nunca he comido eso
 luego que eles de un poco de postura ( a los burros ) los echaré allá arriba
 dénle ( háganlo ) beber un oco de agua
 ese traía una cobija retejida ; no lo he visto
@@ -8919,13 +7687,13 @@ por favor , degüéllame a la cabra
 ya me despescocé
 ya me despescozaste
 tenía que ser de este largo y tyo lo traje más corto
-¿ estuviste mucho del otro lado ? - - bastante poco
+¿ estuviste mucho del otro lado ? - bastante poco
 incendiaron las vigas
 si había una viga río arriba
 dentro de dos meses habrá que poner las vigas
 tiene muy endurecido el cuello
 se posó allí , en la punta del sauce
-¿ tienes hermana mayo ? - - sí . . - - ¿ y tiene también hermana menor ? . - - no , yo soy el último ( LIT . la punta )
+¿ tienes hermana mayo ? - sí . . - ¿ y tiene también hermana menor ? . - no , yo soy el último ( LIT . la punta )
 se trozó por la punta
 despuntar
 dspuntado
@@ -8941,14 +7709,14 @@ en estíio ya parece que va florecinedo todo el campo
 el pito - real ( pájaro ) canta en tiempo de calores
 ¡ quécalor ! ¡ ya es verano !
 sólo cuando va hcaer calor ( me duelen los ojos )
-¿ qué está diciendo ese pajarito ? - - dice que ya es verano ( o que hace calor )
+¿ qué está diciendo ese pajarito ? - dice que ya es verano ( o que hace calor )
 el venado manzanilla tiene cuernos muy ramosos
 Carlos no me ayuda
 por poco me matan ; pero Luciano vino en mi ayuda ( me salvó )
 ¡ anden , ayuden !
 Dios te ayude , que es el saludo rarámuri
 vamos tarahumares , saluden a este viejo !
-¿ qué dice Marcos ? - - te manda saludar ( LIT . dice que el gran Dios te proteja )
+¿ qué dice Marcos ? - te manda saludar ( LIT . dice que el gran Dios te proteja )
 todos los muchachos te mandan saludar ( dicen que el gran Dios te proteja )
 me saludas a todos los de allí ( LIT . que el Gran Dios ayude a todos los de allá )
 te mandan saludos Justiniano
@@ -8969,10 +7737,10 @@ no juegues con la sangre
 y ahora , ¿ dónde está la sangre ? se perdió esa sangre ( reprendiendo a uno que había herido a otro )
 sangre de zorrillo
 sangre del hierro : herrumbe
-¿ se hacen enfermado muchos río abajo ? - - quién sabe ! dicen que cayeron ( en cama ) algunos
+¿ se hacen enfermado muchos río abajo ? - quién sabe ! dicen que cayeron ( en cama ) algunos
 dame a beber no más que una jícara
 te voy a dar una pedrada en la jícara ( en la cabeza )
-¿ dónde lo pongo ? - - en la jícara
+¿ dónde lo pongo ? - en la jícara
 es que no tengo una hueja
 no tengo una jícara en qué beber el agua
 sae le hincharon mucho las venas , corri ¡ ó mucho ; se le congestionó la sangre ; por eso trae de fuera ( saltada ) la vena
@@ -8986,9 +7754,9 @@ nació en ese tiempo : cuando amarillea el maíz
 me salió sangre de las raíces a media noche
 el pitorrela ( pájaro ) tiene el vientre amarillo rojizo
 un cajetito de pie corto , amarillo brillante
-¿ no tienes dinero duro ( en moneda ) , quiero cambiar . - - blancas ( de plata ) no hay , solo hay cobrízas unas cuantas . - - cobrizas también estarán bien ; no me gustan los papeles
+¿ no tienes dinero duro ( en moneda ) , quiero cambiar . - blancas ( de plata ) no hay , solo hay cobrízas unas cuantas . - cobrizas también estarán bien ; no me gustan los papeles
 no está buena esta atarría ; sangró el l rurro ; parece que no está buena
-le sacaste sangre ? - - ¿ que la sagre no vale nada ?
+le sacaste sangre ? - ¿ que la sagre no vale nada ?
 cierto que este lo sangró
 ¿ lo sangró o no lo sangró ?
 hacemos sangrar a Dios
@@ -9007,10 +7775,10 @@ Lirio , Ropiri te llamaba
 es un hijo de la hermana mayor de Lirio
 no está permitido causar incendios !
 permíteme que me refugie de la lluvia aquí
-uno muy inteligente ¿ podrá cogerla ? - - no , porque aún no está autorizado
+uno muy inteligente ¿ podrá cogerla ? - no , porque aún no está autorizado
 no nos está permitido pasar la noche enojados
 y nos dan de a dos litros
-¿ cuántos litros quires ? - - ¿ cuántos le cabrán a mi trapo ( talego ? ) . . . si le cabrán dos litros
+¿ cuántos litros quires ? - ¿ cuántos le cabrán a mi trapo ( talego ? ) . . . si le cabrán dos litros
 y yo , si ya fueras mayor ( LIT . añoso ) , te haría pasar hambre ; te haría pasar hambre ; te haría , morir ( el jefe a un jóven reo )
 creo que allí lo hicieron pasar mucha hambre
 el hombre dijo ; sí tyengo hambre ; vengo de muy lejos ; por eso tengo hambre
@@ -9026,9 +7794,9 @@ no más debo una güeja ( jícara ) y ya me pongo borracho
 que le den pinole y lo meten a la cárcel
 vas a tardar un mes en tomarlo ( ese pinole : por la gran cantidad
 vamos pues ; vamos a tomar pinole ; eesto dijo la mujer
-será bien sabroso tomar el pinole allí . - - ¿ tomar pinole ? - - sí tomar el pinole
+será bien sabroso tomar el pinole allí . - ¿ tomar pinole ? - sí tomar el pinole
 no más lleguemos vamos a poner pinole a su casa
-¿ todavía no comen ustedes ? - - no
+¿ todavía no comen ustedes ? - no
 me duele mucho , sobre todo después de comer ; sieno una presión que me sube ;
 ya se fuero a comer a sus casas ( lókapia X lókaboa )
 quiero purgarme
@@ -9077,7 +7845,7 @@ date prisa Paulino ! corre !
 corre que te muerde una vívora !
 ahora sí ya ; ya lo torcí
 ya no sé ; es má bien que ya se va olvidando
-¿ ya trajeron los caballos ? - - no .
+¿ ya trajeron los caballos ? - no .
 se irán ustedes el domigo o por la mañana del lunes ?
 ¿ es que estoy oyen , soñando , o tal vex estoy en el ciego ?
 dicen que en tiempos pasados vivía aquí un hombre grande ( gigante ) , o viv 161an varios , no sé
@@ -9096,13 +7864,13 @@ qué vas a sazonar con la sal que compres ? ( LIT . ) comprando sal . - ratones 
 quiero también dinero
 tambié quiero comprarlos cambiándolos ( no sólo regalados
 y me preguntó como me llamaba
-¿ qué más quieres ? - - también pinole
+¿ qué más quieres ? - también pinole
 y comimos allí
-ve por agua tú Wenseslao . - - ¿ Y quién más ?
+ve por agua tú Wenseslao . - ¿ Y quién más ?
 ¿ es este el que huyó ?
 ¡ vaya ! es el mismo que vi hace rato ; yo quería otro
 no tengo una soga con que cogerlo ( Un caballo )
-¿ quién gritó ? - - el que está dando vuelatas ( al molino )
+¿ quién gritó ? - el que está dando vuelatas ( al molino )
 dónde está el camino de Norogachi ? ( LIT . el camino que no es camino a Nogarachi
 yo qué
 tú qué
@@ -9134,7 +7902,7 @@ dice que tiene mucho miedo
 dicen que moriremos vomitando sangre
 dice que maíz no !
 dice que acabó hace tiempo
-¿ qué está diciendo ese pajarito ? - - dice que ya es verano ( que hace calor )
+¿ qué está diciendo ese pajarito ? - dice que ya es verano ( que hace calor )
 dice Lirio que se cansa mucho montando tu caballo
 no te permito que vayas arriba
 ¿ te parece bien que entrémos ?
@@ -9153,14 +7921,14 @@ absolutamente todos somos hermanos ; uno solo es nuestro padre ( LIT . no hay m�
 parecía un oso corriendo
 entonces el hombre tomó ( en brazos ) al pequeño y entonces llorando , se escapó corriendo y llorando como una cría de venado
 ir corriendo
-¿ y no tenías miedo de ir sola ? - - no ; iba corriendo
+¿ y no tenías miedo de ir sola ? - no ; iba corriendo
 , mira , va corriendo
 se quedó sola la agulilla allá en lo alto ; y lo vio que iba corriendo
 ¿ no se caen corriendo ( al correr ) muy fuerte
 tucero : granero de tuzas
 voy a chupar las cañas de donde vive Tranquilino , ya se chupan ( ya están en buena sazón )
 parece que también los tarahumares andan comiendo cañas
-¿ te entró una garrapata ? - - no
+¿ te entró una garrapata ? - no
 se le metió una garrapata
 iba a preguntarle ( a un entomólogo ) si no quiere garrapatas de las reses
 les voy a disparar popotes a los pescados
@@ -9200,8 +7968,8 @@ más afuera
 afuerita
 no sé muy bien
 como dijeron los ancianos antes que eran muy conocedores
-¿ cómo pues , se dice que tú dojiste : voy a matar a todos los que mandaron a amarrarme ? - - yo no sé nada
-¿ es conocido tuyo ese ? - - sí es conocido
+¿ cómo pues , se dice que tú dojiste : voy a matar a todos los que mandaron a amarrarme ? - yo no sé nada
+¿ es conocido tuyo ese ? - sí es conocido
 por favor vete un poco más afuera
 mejor martilleen más afuera
 ¿ por qué lo sacaste ?
@@ -9214,7 +7982,7 @@ ojalá sea wyo el que lo saque !
 sácamelo , después te pago
 hagan que saque en seguida al ternero
 es que hay que beber con moderación
-antes era mucho ( los ¿ que nos disgustabamos ) . - - ¿ ya es poco ahora ? . - - no es tanto ya
+antes era mucho ( los ¿ que nos disgustabamos ) . - ¿ ya es poco ahora ? . - no es tanto ya
 dejémos el maguey ( el mezcal ) , hay que beber en poca cantidad
 pasa por afuera
 es que no vas a entender si no sabes ( tarahumar )
@@ -9223,7 +7991,7 @@ hablando lo sabríamos
 apenas ahora voy sabiendo
 es que ellos conocen a los tarahumares que tal vez quieran vender
 el que vive arriba ( DIOS ) nos conoce bien
-¿ conoces a ese hombre ? - - no lo conozco , no lo he visto
+¿ conoces a ese hombre ? - no lo conozco , no lo he visto
 se diría que veo bien , pero no veo bien
 tuerto ( es ) uno que en un ojo sele forman muchas lagañas , lo tiene muy rojo por dentro , no ve bien
 es que no veo , ya se me oscureció ( lo decía una moribunda )
@@ -9236,11 +8004,11 @@ subimos una lomita desde donde se veía todo el panorama
 el Cerro grande se levanta solo muy alto ; de la cumbre se ve bien a todas partes y se ve perfectamente bien el tren humeando en Creel , se divisa todo el entorno , todo el alrededor se ve
 la pelota rebotó para afuera
 sal pronto !
-salte1 - - métet ! . . . no , salte ! - ¡ qué bien ! ( a un trompo )
+salte1 - métet ! . . . no , salte ! - ¡ qué bien ! ( a un trompo )
 si sucediera manifiestamente
 No es viable ahora ( LIT . no anda manifiestamente ) sí era visible antes de que lo mataran
 están allí afura
-¿ te vas al amanecer ? - - a la salida del sol me voy
+¿ te vas al amanecer ? - a la salida del sol me voy
 ¿ de dónde sale el agua ?
 no más sale de aquí y ya no vuelve a pensar
 nomás llegó , y se puso a buscar por toda la pared a ver si sí salía
@@ -9251,13 +8019,13 @@ se le saliió el recto ( el intestino )
 echésmoslo fuera
 ¡ un marrano ! vamos a sacarlo !
 te haré salir niebla de las naríces
-es que estaba allí afuera . - - ¿ dónde precisamente . . . ?
+es que estaba allí afuera . - ¿ dónde precisamente . . . ?
 ¡ declara pronto ! ¿ qué te han de hacer si hablas claro ? ( en un juicio )
 ¿ qué clase de corazón tienes ? a ver , háznoslo ver
-sin esconder nada ( LIT . las palabras , los acontecimientos ) ; declaren . - - hablarémos claro . - - de ese modo lo vamos a saber
+sin esconder nada ( LIT . las palabras , los acontecimientos ) ; declaren . - hablarémos claro . - de ese modo lo vamos a saber
 ya está fuera del caballo
 Aparicio no ve de un lado , se quemó
-¿ quién es ese ? - - es el que no ve ( el ciego )
+¿ quién es ese ? - es el que no ve ( el ciego )
 luego te aliviarás ; luego volverás a ver
 no ve de un ojo ; lo corneó una vaca
 ¿ desde cuándo no ves ? ( estás ciego )
@@ -9276,11 +8044,11 @@ vuelve mañana aquí mismo , para que llves las señales ( comprobantes ) esas
 puse la mano en el agua
 en adelante apóyate en Dios ( se fiel a Dios ) ; LIT . en el que vive arriba )
 ya que no quiere poner tu mano ( apoyarte ) en las palabras de lo alto . . .
-¡ qué me sucedió ! ¡ me espiné ! - - ¿ dónde pusiste la mano ? ( LIT . poniendo la mano dónde ? )
+¡ qué me sucedió ! ¡ me espiné ! - ¿ dónde pusiste la mano ? ( LIT . poniendo la mano dónde ? )
 no te apoyes , no te pongas la mano ahí
-el brujo causa dolor con solo poner la mano encima . - - sólo si nos da una trompada nos dará dolor
+el brujo causa dolor con solo poner la mano encima . - sólo si nos da una trompada nos dará dolor
 ustdes ya se tocaron las manos allá adentro
-apóyate en tu padre , el de allá arriba . - - yo me apoyaré en él . ( El cacique a una mujer , en un juicio )
+apóyate en tu padre , el de allá arriba . - yo me apoyaré en él . ( El cacique a una mujer , en un juicio )
 tengamos nuestra mano puesta en Dios .
 le dio a tocar al jóven ( el bastón de mando para nombrar capitán )
 ¿ y sí lo hicíste creer ?
@@ -9340,7 +8108,7 @@ hurgando ( con el cucharon ) en el fondo ( de la oya ) , sacarás la carne
 ¿ de qué largo las abro ( las vigas ) ; ¡ de cuatro brazadas ?
 yo voy a pasar corriendo
 que qué quieres !
-trae acaá el lápiz . - - quw ( le lleves ) el lápiz !
+trae acaá el lápiz . - quw ( le lleves ) el lápiz !
 que vengan acá ! ( para llamara la atención de un distraído remolón )
 Carlos ! , Carlos ! , te están hablando !
 vamos anda ! obedece !
@@ -9350,19 +8118,19 @@ parecía ser Margarito
 parece ( ser ) ese
 ¿ pareceque te vas a dormir ?
 parece que ya cerraron
-¿ cuándo terminó ? . - - parece que hace tres días
+¿ cuándo terminó ? . - parece que hace tres días
 parece que ya se fue
 ¿ así es como se haba ? o , ( según el contexto ) ¿ es esos términos está el asunto ? ( LIT . ¿ así es esa palabra ? )
 tú cállate ; a tí no te importa nada
 ¿ a ti qué te importa ?
 ¿ por ventura tengo algo que ver esn eso también yo ? ( acaso me importa también a mi ?
 mi mamá sabe hacer muy bien los puños de la camisa
-¿ de piel de quées la pulsera esta ? - - de venado
+¿ de piel de quées la pulsera esta ? - de venado
 la pulsera del reloj
 estáte quieto ! ¡ qué bien molestas !
 ¿ cuántas cuartas faltan ?
 hace muchos años sí había palomas
-¿ viste la paloma ? - - sí ; por allí pasó
+¿ viste la paloma ? - sí ; por allí pasó
 tiene el vientre blanco color palomo
 ahora ya está bien llovido , y ya florecieron la aceitilla y el maké y también los lirios rojos
 el gavilán ya agarró una gallina
@@ -9383,11 +8151,11 @@ las reses hicieron daños ( comieron el maíz ) en diez campos
 a mí me invitaron a bewber en diez lugares
 cien ( LIT . diez veces )
 me costó ciento treinta y cinco ( LIT . diez veces diez más tres veces diez y cinco )
-ya me voy . - - ¿ por qué ? - - dicen que traigamos gusanos ( de una plaga ) ; voy a coger gusanos
+ya me voy . - ¿ por qué ? - dicen que traigamos gusanos ( de una plaga ) ; voy a coger gusanos
 voy a coger pescados ; sí podré agarrarlos
-¿ cuántos cogiste ? - - nomás cinco !
-¿ cogiste muchos cacahuates ? - - sólo un puñado
-ay ! me machuqué ! - - ¿ dónde ? - - un dedo
+¿ cuántos cogiste ? - nomás cinco !
+¿ cogiste muchos cacahuates ? - sólo un puñado
+ay ! me machuqué ! - ¿ dónde ? - un dedo
 ese tiene muy largos dedos
 pichicuate una culebrita ; tiene pintas negras , de vientre blnaco ; es de cabeza puntiaguda ; vive en el agua
 por diez pueblos pasará el Ingeniero establciendo los caciques
@@ -9395,7 +8163,7 @@ las coles no se arrancan , se las corta por el tallo
 veinte
 nueve
 vamos a comer cañas
-¿ dónde está Lintro ? - - allá va corriendo
+¿ dónde está Lintro ? - allá va corriendo
 corrió el caballo río abajo
 parecía un oso corriendo
 es que me duele mucho al correr
@@ -9404,7 +8172,7 @@ para que no andes escapándote , ahora te vamos a dar unos azotes
 bueno , con tu permiso , me voy
 adiós , ya me voy ( LIT . déjame correr ya )
 ir corriendo
-¿ v no te dio miedo en el amino ? . - - no , iba corriendo
+¿ v no te dio miedo en el amino ? . - no , iba corriendo
 la aguililla se quedó soloa en lo alto ; y lo vio cuando se iba corriendo
 luego que los hayan ensartado conoceremos al horno los pescados
 cocer un hoyo en la tierra , eso es
@@ -9415,7 +8183,7 @@ se enceló mucho conmigo , tuvo celos de mí
 no tengo tan buen marido , se encela mucho conmigo
 me dormí cuando tú te fuiste
 cuando tú dijiste que Chaplin iba a boxear
-¿ a qué hora bebió el caballo ? - - cuando tú me mandaste a que le diera de beber .
+¿ a qué hora bebió el caballo ? - cuando tú me mandaste a que le diera de beber .
 sí traigo en lo que haces ( LIT . donde tú lo eches )
 ¿ cuántos tomo ? ( LITcuántos tú quieras )
 da mucha alegría siempre que vienes tú
@@ -9445,7 +8213,7 @@ mandecir que maten ustedes ( en sacrificio ) una res de tres años , una chiva t
 vámonos pues
 anda ! hazle frente !
 anda , con tu permiso me voy
-¿ cuándo se fue Martín ? . - - cuando yo llegué él se fue
+¿ cuándo se fue Martín ? . - cuando yo llegué él se fue
 vi una casa grade cuando fui a traer otates
 estaba trabajando para un blnaco cuando me encontré contigo , Gachochi
 no hya una soga con que ( yo ) lo coja ( para coerlo )
@@ -9455,7 +8223,7 @@ haz tú como yo
 me gusta ( decir )
 tal como aprendí yo
 parecía que yo tenía el cuchillo , pero no tenía nada
-¿ dónde pongo el atole ? - - pónmelo allí en el rincón
+¿ dónde pongo el atole ? - pónmelo allí en el rincón
 es que mi hermanito no tiene la cara como yo
 volverá a subir ( ponerse : el agua en la noria )
 ya se acumuló ( ya se puso ) mucha agua en la represa
@@ -9470,7 +8238,7 @@ si había mucha gente ahí a donde llegamos a comer
 yo creí que no había nada , por eso lo hice ( sacudió la jarra )
 dice que síhay
 por todas partes hubo batari . . .
-¿ cuándo va a haber tegüiino ? . - - quién sabe cuándo habrá
+¿ cuándo va a haber tegüiino ? . - quién sabe cuándo habrá
 hubo batari en lodas las viviendas ( LT . donde quiera que hay gente )
 haber ( varios recipientes )
 poner un recipiente ( boca arriba ) , líquido de un recipiente
@@ -9479,13 +8247,13 @@ poner los ( varios recipientes boca arriba )
 ponérselos ( varios recipientes boca arriba )
 poner en beneficio a alguien
 voy a ponerles taplextle a los pescados
-¿ quién mató esos pescados ? - - nosotros les pusimos el tupextle y lo matamos
-va a preguntarle a Mabuel si va . - - dice que no va !
+¿ quién mató esos pescados ? - nosotros les pusimos el tupextle y lo matamos
+va a preguntarle a Mabuel si va . - dice que no va !
 dice que corre muy fuerte
 ¿ de què largo las abro ? ( las vigas ) ¿ de cuatro brazadas "
 yo voy a esulcar allá adentro y lo saco
 lo están mordiendo ( picando ) los tábanos
-¿ qué eran tábanos ? - - era huevos ( antes de la metamorfósis )
+¿ qué eran tábanos ? - era huevos ( antes de la metamorfósis )
 ¡ tábanos ! esos muerden los caballos
 quiero una camisa vieja ( desgastada ) ; traigo un peso
 ya voy a echar el pecho al aire , si se rompe la camisa ( voy a andar con el pecho de fuera , descubierto )
@@ -9500,7 +8268,7 @@ yo no corro tan ligero como un ratón
 a la hora que
 desde que
 yo partomleña desde que era niño
-¿ dònde estaba ? - - donde lo dejé ayer
+¿ dònde estaba ? - donde lo dejé ayer
 ¿ vamos a dónde está sombreado ?
 ¿ sdónde están las tunas ?
 donde
@@ -9537,7 +8305,7 @@ para eso vinieron los de bekéachi , para oír misa ?
 le pondré una piedra para que no se lo lleve el viento
 no hay para que andemos afligidos
 se oyó como que hubieram caido dinero
-¿ fue un borracho el que gritó ? - - se oyó como voz de niño
+¿ fue un borracho el que gritó ? - se oyó como voz de niño
 parace es como taparrabo
 cuando quiera en cualquier tiempo
 a cualquier hora
@@ -9548,7 +8316,7 @@ por todas partes
 sí vendré , cuando quiera que me llames
 iré a donde quiera que me mandes
 eyento por todas partes anda llorando
-¿ cuándo lo hiciste ? . - - cuando estuve aquí
+¿ cuándo lo hiciste ? . - cuando estuve aquí
 Pedro llegó cuando nosotros ya nos estábamos yendo
 ¿ cuántos años hace de de cuando se murió la gente ?
 van quince días de que me purifiqué el corazón
@@ -9558,7 +8326,7 @@ cuando me hayan puesto otra vez , dentro ( me hayan readmitido ) , entonces habl
 así pues , cuéntame de esto cuando me escribas
 cuando los muchachos se porten mal , pues habla
 solo cuando va a enir el calor me duelen los ojos
-¿ no la llenas ? la estilográfica - - ahora no ; cuando vaya a escribir
+¿ no la llenas ? la estilográfica - ahora no ; cuando vaya a escribir
 solo de vez en cuando , cuando vamos a trabajar
 cuando yo
 cuando tú
@@ -9574,7 +8342,7 @@ no hay autorización de que anden quemando ( los bosques )
 nosotros mismos somos culpables de que no llueva
 nosotros tenemos la culpa de que el anciando ( Dios ) la haya atado ( la lluvia )
 desde que era chico me ocupo en repartir leña
-¿ a quién llamo , pues ? - - a cual quiera que encuentres
+¿ a quién llamo , pues ? - a cual quiera que encuentres
 todas as mentiras que me contaste ( LIT . cualesquiera que tú me mentiste )
 cualquiera que yo
 cualquiera que tú
@@ -9592,7 +8360,7 @@ componme esto ( una linterna ) ; ¿ no tienes el ojo ? ( el foquito ) ; para ir 
 no tengo con que sacarlo
 no tengo soga para ( con que ) cogerlo ( el caballo )
 quiero mucha sal para ( LIT . con que ) sazonar los quelites
-¿ es veneno eso ? - - no ; es mata pescados para ( con él ) enloquecerlos
+¿ es veneno eso ? - no ; es mata pescados para ( con él ) enloquecerlos
 con que ( para ) yo
 con que ( para ) tú ; ma - ta - gite con que ( para ) nosotros
 con que ( para ) ustedes
@@ -9602,14 +8370,14 @@ Nacho abrió donde iba a arrodillarse el padre
 curó todas las enfermedades ( LIT . todas cuantas enfermedades )
 absolutamente todo lo que comemos nos lo da Dios
 de la misma manera sueñan todos los que ( cuantos ) se gana la comida así
-¿ cuántos quieres ? - - los que ( cuántos ) vpuy a comprar
-¿ cuábndo llegará los arrieros ? - - cuáles ? - - cualesquiera
-¿ por dónde vana llegar klos arrieros ? - - ¿ cuáles ? - - cualesquiera
+¿ cuántos quieres ? - los que ( cuántos ) vpuy a comprar
+¿ cuábndo llegará los arrieros ? - cuáles ? - cualesquiera
+¿ por dónde vana llegar klos arrieros ? - ¿ cuáles ? - cualesquiera
 voy a andar por todos los ( lugares donde hay ) pueblos
 ahora hay batari en cuantas partes hay gente
-¿ que no hay un camino por la cumbre de la otra banda ? - - parece que sí
+¿ que no hay un camino por la cumbre de la otra banda ? - parece que sí
 parece como si estuviera trabajando mucho con la cabeza
-¿ de què es esta huella ? - - poarece ser de venado
+¿ de què es esta huella ? - poarece ser de venado
 por ejemplo , si te hubiera sorprendido tu esposa , te hbaía cogido a pedradas
 por ejemplo , si se muere ersta muchacha , te quedarás tú solo
 ven acá también tú , si es que quieres un pedacito de tierra ; también a ti te darán es decir , si es que tú no tienes trierras
@@ -9638,24 +8406,24 @@ dice que me va a llevar hasta donde está Miguel Alemán
 se veía todo hasta donde hay casas ( toda la ciudad )
 no soy tan ligero como los ratones
 un poco lejos , tanto como de aquí a Weráachi
-¿ Qué tan lejos ? como de aquí a Riwirichi ? - - no tanto
-tan vueno así ? - - tanto como Clemente
+¿ Qué tan lejos ? como de aquí a Riwirichi ? - no tanto
+tan vueno así ? - tanto como Clemente
 eso narraban los ancianos a los muchachos al tiempo que ya eran capaces de entender
 a la hora que , al tiempo que
-¿ pues cuándo llehgaste ? - - a la misma hora que tú
+¿ pues cuándo llehgaste ? - a la misma hora que tú
 yo soy como los patos ¿ por qué los patos no hande mojarse ? yo no me mojaré
 el ui*mí es parecido a la jicamilla , es pequeña
 es como venado
 y la constelación de la cruz , ¿ la conoces ? , es como una cruz pequeña
 y las mujeres cuidarám ¡ n florfes preciosas y perfumadas como incienso
 coge de los que quieras ( de cualquiera quen desees )
-cualquier leña con tal de que esté seca , arderá enseguida . - - esta es manzanilla . por eso mismo
+cualquier leña con tal de que esté seca , arderá enseguida . - esta es manzanilla . por eso mismo
 manga
 calzón , cubrepierna
 máscara , tapaboca
 Serafina es mi hija
-¿ quién está enfermo ? . - - mi hija !
-¿ cómo se llama la otra ? - - la . . . la hija del curandero ?
+¿ quién está enfermo ? . - mi hija !
+¿ cómo se llama la otra ? - la . . . la hija del curandero ?
 sacudir el brazo contra el costado , haciendo sonar la axila
 dioa luz gemelos
 despaletarse
@@ -9673,14 +8441,14 @@ Fíjate , tú tuviste por padre a un jefe . Nunca te dio buenos consejos ( el ju
 ¿ pero tiene alguna hija ?
 Mira que estoy hablando como si esta fuera mi hija , como si tú también fueses hijo mío ( LIT . como teniendo a esta `por hija . . . )
 sí tenía una hija pero ya murió
-¿ es hija tuya ? - - no , no tengo hija
+¿ es hija tuya ? - no , no tengo hija
 es mi papá
 atiende ( LIT . observa ) los pensamientos de tu padre , atiende los pensamientos de tu padre ( el juéz de una acusada )
 mantente con la mano apoyada en tu Padre ( Dios ) de lo alto
 y tú , muchacha , ten consideración de tru padre
 tenía dos reses pero ya le quitó una su papá
 ¡ cinco ! falata uno para que sean ños seis !
-¿ cuántos meses tendría la niña ? - - ahoea tendría como cinco semanas
+¿ cuántos meses tendría la niña ? - ahoea tendría como cinco semanas
 nomás cinco
 los cinco
 los cinco
@@ -9691,8 +8459,8 @@ quinto , el cinco
 quinta parte , un quinto
 hay cinco cascadas ( LIT . en cinco lugares hay cascadas )
 voy a pasar por los cinco pueblos juntando a los tarahumares
-¿ Quién lo dijo ? - - Pepito - María
-¿ y por ué buscas venaditos ? - - ¿ qué eres muy malo tú ?
+¿ Quién lo dijo ? - Pepito - María
+¿ y por ué buscas venaditos ? - ¿ qué eres muy malo tú ?
 por el monte había un hombre buscando crías de venado
 pasado el ( día de ) Santiago suele parir las venadas , echan fuera los venaditos
 ¿ Dónde está María Antonia ? con ( en casa de su papá )
@@ -9703,7 +8471,7 @@ a ver qién es más velóz , házlo correr ( tu caballo )
 ¿ cuántos ( peces ) cogiste con la mano ? , nomás cinco !
 es mi papá
 ¡ cómo se llama el papá ?
-dijeron que teníamos que echar cinco viajes ! - - yo ya eché cinco viajes !
+dijeron que teníamos que echar cinco viajes ! - yo ya eché cinco viajes !
 cincuenta ( LIT . cinco veces diez )
 cincuenta y seis
 María Antonia es cuñada de Nemesio
@@ -9716,7 +8484,7 @@ Wenseslao ya se acabó el elote !
 es que las ovejas las esquillo en marzo
 el martes muy de mañana se fue a Ta ¿ laltelolco a llamar al sacerdote ; se fue directamente
 Martín , nosotros aquí !
-¿ Dónde está María Anrtonia ? - - con su papá
+¿ Dónde está María Anrtonia ? - con su papá
 los tamales maruchi se hacen de elote
 no me quito una pluma ( para flecha )
 que tiene plumas alado
@@ -9754,7 +8522,7 @@ ya me voy
 ¿ cómo es que se endurecen las ollas ? , estrujando ( amasando el barro )
 hizo las tortilas amasándolas y las coció con caor ( calentándolas )
 ¿ con qué lo hacen ? ¿ qué le mezclas ? se baten con la masa de maíz y uego se aprieta con un fierro
-¿ y cómo quierescogerlo a oscuras ? . - - tentaleando
+¿ y cómo quierescogerlo a oscuras ? . - tentaleando
 Jorge lo cogió a tientas ( un pez entre las piedras )
 anda a tientas , parece que no ve
 la muela es lo que me duele mucho , dice mi mamá que estó ya está muy careado
@@ -9781,12 +8549,12 @@ este habla como nosotros
 ¿ qué aquí traen gusanos de maíz ?
 Antwes no podía con el metate ( la muchacha ) . Es que la gente de allá tiene petates muy malos
 el materí es muy bueno de beber , da flores blancas
-gracias ! , - - de nada !
+gracias ! , - de nada !
 y démosle las gracias
 digámosle un gran gracias !
 flechas , gracias ! luego las vuelvo a traer .
 no me siento capaz de llevarlas en hombro
-¿ lo vas a llevar arrastrando no ? - - no ( puesto ) en el hombro
+¿ lo vas a llevar arrastrando no ? - no ( puesto ) en el hombro
 hombro , hombrera
 tener hombro , tener , hombreras
 chocar , golpear con el hombro
@@ -9797,7 +8565,7 @@ tener , levar al hombro
 caminar llevando al hombro
 sí le vamos a hacer hombreras ( a la camis )
 lo llevaré al hombro allá
-¿ en qué lo vas a llevar ? - - lo voy a llevar en el hombro
+¿ en qué lo vas a llevar ? - lo voy a llevar en el hombro
 dénse prisa ustedes que saben
 ustedes son los que tine que decirle eso
 es que eso es lo que ustedes acaban e decirme
@@ -9813,11 +8581,11 @@ mira , no está bien ser correlón ( huidizo )
 vimos muchos animales , leones , osos y muchos más
 entonces todos se la echaron encima para atraparlo y otro león también les ayudó
 entonces el león metió la mano , sin sospechar nada
-¿ es maguey eso ? . - - sí , es maguey .
+¿ es maguey eso ? . - sí , es maguey .
 dejémos el maguey ( el mezcal ) ; hay que beber con moderación
 ve a traer arena ; pero bien limpia
 del mismo modo sueñan ( para adivinar ) todos los que se ganan la comida así
-¿ llegará al decalitro ) - - no tanto ;
+¿ llegará al decalitro ) - no tanto ;
 no se mojó tanto la tierra , se humedeció muy por encima
 ¿ qué tan hondo está ?
 ¿ qué tan lejos es ?
@@ -9830,9 +8598,9 @@ yo traje
 nosotros trajimos
 Bianchi , ¿ voy por el pinole ?
 ve a traer arena , pero bien limpia
-ve tú por las vacas . - - ¿ y quién más ?
+ve tú por las vacas . - ¿ y quién más ?
 yo voy con Fernando a traer las tortillas
-¿ y mi caballo ? . - - acabo de traerlo
+¿ y mi caballo ? . - acabo de traerlo
 es que haciendo tales cosas , asesinamos a Dios
 mata ( tú )
 mátalo bien porque se volverá alevantar
@@ -9852,17 +8620,17 @@ va a tardar un mes bebiendo ese pinole ( para acabertelo )
 ¿ d quèn dicen que es este mes ?
 es que el muchacho es pastor de cabras durante un mes ( tiene que pastorear un mes )
 pa ya ( LIT . recibe ) dos meses
-¿ cómo se llama este mes ? . - - Agosto
+¿ cómo se llama este mes ? . - Agosto
 ¿ cuántos meses tiene un bebé - tiene solo tres semanas ( LIT . tiene los días de 3 semanas )
 me han dado tres en el mes
 dicen que sí subió a la luna un hombre
 hasta el ( Arroyo de la Luna ) vamos a traer la palmilla
 hasta en el sombrero quieren anidar las avispas
 ( Todavía no tienes el mes , ha cumplido solo dos semanas )
-de cuántos mese era la niña ( merta ) ? - - - ahora tendría cinco semanas
+de cuántos mese era la niña ( merta ) ? - ahora tendría cinco semanas
 aquí en la cárcel te quedqrás un mes , si no entregas la paga
 vamos a caminar a oscuras ! es que no hay luna
-¿ cuántos meses tiene ? - - dice que nomás uno
+¿ cuántos meses tiene ? - dice que nomás uno
 ya tiene enfermo tres meses
 me chamusqué completamente el vello de la mano
 cuidado lo vas a ahcer papilla a golpes
@@ -9895,7 +8663,7 @@ a largo intervalos ( LIT . de lejos en lejos )
 algo lejos
 lejano , alejado , distanciado
 ¿ qué tan lejos es ?
-¿ sabes a Riwirichi ? . - - sí . - - pues más lejos
+¿ sabes a Riwirichi ? . - sí . - pues más lejos
 no viajo yo muy lejos
 estos los blancos nos aventajan mucho ( nos dejan lejos atrás )
 pidámosle una larga felicidad
@@ -9905,7 +8673,7 @@ los de más lejos ( oriundos de regiones distantes , son extraños , son apartad
 ¿ qué tan distantes ( en parentezco ) si pueden casarse ?
 sin ir muy lejos nos cansamos
 también los que vive lejos ( algo lejos ) debe ayudar
-¡ y lo vas a echar muy lejos ? - - ¿ a dónde lejos ? díimelo pues pronto
+¡ y lo vas a echar muy lejos ? - ¿ a dónde lejos ? díimelo pues pronto
 destrocé un hueso
 tepeguaje : ese es distinto
 lo puse en el banquito
@@ -9922,17 +8690,17 @@ vete ya , yo ya no más estoy perdiendo
 ¿ perdiste el dinero que apostaste ?
 tiene espolones
 es cuñada de Nemesio
-¿ Nemesio ? - - acaba de irse
+¿ Nemesio ? - acaba de irse
 mucha tierra ; anda , tráetela por favor
 es que no gano mucho ; no me alcanzará para comprar la comida
-¿ te duele mucho ? - - no tanto
+¿ te duele mucho ? - no tanto
 no tanto ; no está tan cabal
 ya traje ( arreando ) la res ; ven , vamos a verla
 traigan todos ( los burros ) que encuentren
 Valerio trajo las cabras
-en Creel , no está tan caro el maíz - - no tanto pero , sí
+en Creel , no está tan caro el maíz - no tanto pero , sí
 Bianchi , voy por el pinole ( LIT . iré a traer el pinole )
-¿ no es trabajoso conducir un camión ? - - no , si uno aprende . - - pues cómo hace tiempo yo manejé uno en Wachohi
+¿ no es trabajoso conducir un camión ? - no , si uno aprende . - pues cómo hace tiempo yo manejé uno en Wachohi
 ¿ ya lo espantaste ? - ya lo ahuyenté a pedradas
 échalo a pedradas
 échalo ( que se vaya ) con la soga arrastrando
@@ -9946,13 +8714,13 @@ ve a traerlos acá
 los capitanes los arrearan picándolos con sus lanzas
 trae aquí los cabaloos , allí andan
 no sabe montra muy bien , tampoco sabe hacer andar ( llevar el caballo )
-¿ no es trabajoso conducir un camión ? - - no si uno aprende . - - pues como hace tiempo yo maejé uno Wchochi
+¿ no es trabajoso conducir un camión ? - no si uno aprende . - pues como hace tiempo yo maejé uno Wchochi
 mira ! esto no es un espantajo de adrillas !
 ¿ no hay una batea para recogerlo ? ( recibiéndolo )
 el chamaco va recibiendo las migajas ( el acólito que lleva el platillo al distribuir la comunicón )
 voy a estar recibiéndolas ( en el hueco de las manos ) por debajo , para que no caigan en el suelo
 allí está el que los va a traer ( los animales )
-¿ qué tan hancha tierra siembran ustedes ? - - bien angostas están pegadas al cerro
+¿ qué tan hancha tierra siembran ustedes ? - bien angostas están pegadas al cerro
 también yo vivo en Merochi , junto , es muy cerquita
 ¡ cómo se llama el actuale médico ( curandero ) de Riwirichi ? - el que es médico ? el que es médico ? , sí , se llama Librado el que vive en Merochí
 pero luego lo traiga me tienes que dar alguna cosilla
@@ -9988,7 +8756,7 @@ está rastrero
 andan tumbando casas ; dicen que van a hacer casas nuevas .
 ¡ me machuque con una piedra !
 ¡ se machuco la cabeza !
-¿ qué paso ? - - me machuqué
+¿ qué paso ? - me machuqué
 machucar
 machucarlo , machucarle
 hacer machucarse , hacer que se machuque
@@ -9997,9 +8765,9 @@ un leño rebotó hacia acá al partirlo
 ¿ no me cortas un poco de leña ? Quiero dormir con lumbre
 yo te lo parto
 ¡ hay que cortar mucha leña !
-¿ ya partió la leña ? - - no , no hay ( leña cortada )
+¿ ya partió la leña ? - no , no hay ( leña cortada )
 está partiendp leña el chabochi ; se oyó un solo golpe
-¿ será muy difícil hacer el camino ? - - no , es sólo desmontar
+¿ será muy difícil hacer el camino ? - no , es sólo desmontar
 no hay leña partida
 mi papá dice que si va a cortar .
 partirle , hachearle
@@ -10017,8 +8785,8 @@ extiende ( sentado ) las piernas .
 lo destrozó a hachazos
 por poco también me corta con un hacha .
 no hay leña partida , por eso estamos partiendo .
-¿ a dónde , pues , llevas esos burros ? - - voy a pasear ( en ellos ) a las muchachas
-parece muy bravo el toro - - ya se oye que lo van arreando
+¿ a dónde , pues , llevas esos burros ? - voy a pasear ( en ellos ) a las muchachas
+parece muy bravo el toro - ya se oye que lo van arreando
 no quieren dejarse llevar ( los caballos ) ] ; se escapan mucho
 tráelos acá tú , el que vives en el pueblo de Ba´wichiki ( trae a los tarahumares ) .
 me va a querer
@@ -10041,10 +8809,10 @@ aquella es la montaña de Saparéachi
 yo creía que habias pasado por allá arribita , por la ladera
 andaba allá tras el cerro
 si me meto allá debajo ( de la tierra ) , no me verán
-¡ allí está ! - - ¿ dónde ?
+¡ allí está ! - ¿ dónde ?
 ahí va mi carta
-¿ dónde hay tesgüino ? - - allá donde yo vivo
-¿ qué es eso ? - - qué ? ¿ esto ?
+¿ dónde hay tesgüino ? - allá donde yo vivo
+¿ qué es eso ? - qué ? ¿ esto ?
 por Ba´wichiki va sonando el trueno
 no es lejos : un poco más allá de Nakéchi , no más arríba
 ¡ anda , piernas prietas !
@@ -10074,26 +8842,26 @@ ahí no más está
 ¿ es ahí cerquita ?
 tambien yo allí cerquita ( del hoyo , en el juego del tejo )
 está muy mojada la tierra
-¿ quién manda este papel ? - - deallá de arribita
+¿ quién manda este papel ? - deallá de arribita
 y por poco no los encuentro , porque andaban allá arriba
 apenas al anochecer llegamos a Chihuahua
 allí no más
 más allá
 aún más allá
-el gato montés se come las gallinas - - ¿ y qué más come ? - - quién sabe qué más comerá… tal vez ratones ; no sé muy bien .
-¿ y cuándo florece el jaboncillo ? - - un poco más tarde , casi por las piscas , también ya cuando se despunta el maíz .
+el gato montés se come las gallinas - ¿ y qué más come ? - quién sabe qué más comerá… tal vez ratones ; no sé muy bien .
+¿ y cuándo florece el jaboncillo ? - un poco más tarde , casi por las piscas , también ya cuando se despunta el maíz .
 adiós , pues ya ; más tarde volveré a escribir
-¿ y cuándo florece el jaboncillo ? - - un poco más tarde , casi por las piscas
+¿ y cuándo florece el jaboncillo ? - un poco más tarde , casi por las piscas
 yo sí sabré , dentro de poco
 se va a venir abajo ( una pared ) , porque se humedeció
 está muy húmedo
 un poco más allá ( donde le dicen ) Basonéachi , ya paró la lluvia ; ya era de noche
 así de lejos será , un poco más allá de Nakéachi , no más subiendo
 adiós , pues , ; un poco más tarde ( después ) te escribiré otra vez .
-¿ aquí ? - - más allá , todavía más allá
-¿ dentro de una semana ? - - más después
+¿ aquí ? - más allá , todavía más allá
+¿ dentro de una semana ? - más después
 allí no fruta mucho
-¿ dónde lo hallaste ? - - allí . - - ¿ dónde allí ? - - en la falda del cerro
+¿ dónde lo hallaste ? - allí . - ¿ dónde allí ? - en la falda del cerro
 ya está afuera el caballo
 si habrá ( batari ) en alguna parte
 vendrá ( probablemente ) mañana
@@ -10105,7 +8873,7 @@ irán a beber mañana , o pasado mañana ?
 voy a traerte la carta , a ver como tiene que ser
 a mí me tocaron mil doscientos ( pesos en la repartición de utilidades agrarias ) .
 ¿ no tienes mata pescados ? ( cartucho de dinamia para matar pescados )
-¿ para qué es eso ? - - es mata - ardillas .
+¿ para qué es eso ? - es mata - ardillas .
 cojo de aquí un arco y te mato
 no quiero ir , temo que me maten
 esque no te vamos a matar para sacartelo , si no lo dices
@@ -10115,9 +8883,9 @@ anden pues , mátenme a palos
 por ejemplo , si sueño que me han matado ( es señal de que9 enfermaré y moriré
 no pudieron matarme
 mátalo bien , porque va a volver a levantarse
-¿ qué llevas ? - - una ardilla voladora . - - ¿ dónde la mataste ? - - la maté allá del otro lado ( del cerro )
+¿ qué llevas ? - una ardilla voladora . - ¿ dónde la mataste ? - la maté allá del otro lado ( del cerro )
 las liebres , nunca se hace danza ( de ofrenda ) cuando se las mata
-¿ no quieres carne de res ? - - la mataste tú , o murió de enfermedad ? - - no , se despeñó
+¿ no quieres carne de res ? - la mataste tú , o murió de enfermedad ? - no , se despeñó
 morirán los tres hombres : el asesino , el que lo mandó y el que fue asesinado .
 los rarámuris dicen mirímuka al estar sentadi en un rincón mientras llueve
 estoy muy quieto resguardandome del agua , esta lloviendo mucho .
@@ -10126,7 +8894,7 @@ mañana por la mañana despacho a uno a avisarte
 el bagre tiene muchas espinas ; es de cabeza aplastada ; tiene unas como barbitas y unos como cuernos .
 yo voy a asar una mazorca tierna
 ya no hay mazorcas tiernas ; ya se secó bien el maíz .
-préstame un cortapapeles - - ¿ ( se ) podrá bien con esto ? - - ¿ no tienes mas bien unas tijreras ?
+préstame un cortapapeles - ¿ ( se ) podrá bien con esto ? - ¿ no tienes mas bien unas tijreras ?
 quiero decir , la piedra , la piedra de la trampa
 ¿ y cómo lo vamos a atrapar pues ?
 ¿ con qué voy a armar la trampa ? No hay piedra
@@ -10135,7 +8903,7 @@ si seria bueno poner trampas
 yo jamás pongo trampas a los ratones
 atrapó ratones por la otra orilla del arroyo
 por allá te atrapará , si te envía
-un pájaro muerto . - - cayó en la trampa
+un pájaro muerto . - cayó en la trampa
 un leño saltó hacia acá cuando lo estaba cortando
 Guadalupe se enojó mucho porque le ganaron
 ojalá volvieran a ganar !
@@ -10171,7 +8939,7 @@ escalera
 portamonedas , billetera , caja de dinero
 acabo de encerrar las ovejas
 vuelve a meterlos en el talego
-¿ cómo es que no viniste el domingo pasado ? - - - es que no tengo quien me cuide las cabras . - - ¿ y quién las cuida ahora ? - - las dejé encerradas
+¿ cómo es que no viniste el domingo pasado ? - es que no tengo quien me cuide las cabras . - ¿ y quién las cuida ahora ? - las dejé encerradas
 los aguachiles son los que cuidan a los presos
 no puedo aprender los números ( las cuentas )
 te son dadas las palabras de arriba ; pero no las captas
@@ -10189,7 +8957,7 @@ sobre la tierra , en el suelo , sobre la superficie de la tierra
 hay lumbre en el suelo
 lo deje en el techo de la casa
 el siguiente , el de encima
-¿ de quién es esposa la madrastra ? ( LIT la poco madre ) - - se nos instala después , una vez muerta la primera , si es que uno toma mujer después .
+¿ de quién es esposa la madrastra ? ( LIT la poco madre ) - se nos instala después , una vez muerta la primera , si es que uno toma mujer después .
 pondré aquí encima ( de este ) una piedra , no sea que se lo lleve el viento
 yo encimé dos ( tejos ) ; tengo muy buena puntería .
 el próximo domingo vuelvo y hablaremos otra vez
@@ -10197,19 +8965,19 @@ estará bien hacer lo mismo el año que entra
 dice que allá para la semana próxima
 entonces , así será la próxima ( vez ) , si lo vuelve a hacer
 el muchacho es hijastro ( LIT . no es tan hijo ) ; y la mujer es madrastra ( LIT . poquito madre ) , vino después , ( LIT . se instaló después )
-estaba encima . - - ¿ dónde encima ? ( dónde es precisamente )
+estaba encima . - ¿ dónde encima ? ( dónde es precisamente )
 ¡ mira ! Está encima !
-¿ dónde estaba pues ? - - allí , arriba ( de la mesa ) .
-¿ lo pongo aquí sobre esto ? ( LIT . se lo encimo ? ) . - - sí , pónselo encima pues .
+¿ dónde estaba pues ? - allí , arriba ( de la mesa ) .
+¿ lo pongo aquí sobre esto ? ( LIT . se lo encimo ? ) . - sí , pónselo encima pues .
 la arriera es una hormiga colorada
 cuantísimos pájaros se posaron !
-¿ dónde están los caciques ? - - están allá parlamentando
+¿ dónde están los caciques ? - están allá parlamentando
 que estemos aguardando aquí
 parece que ya van estando tranquilos otra vez
-¿ qué dicen en Basiáwari ? - - no se dice nada , se está ( está la gente ) en paz
+¿ qué dicen en Basiáwari ? - no se dice nada , se está ( está la gente ) en paz
 había muchas piedras ; no limpiaronaron ) bien los frijoles .
-parece que no tienes maíz . - - si hay un poco
-y tus papás ¿ se murieron ya ? - - si viven
+parece que no tienes maíz . - si hay un poco
+y tus papás ¿ se murieron ya ? - si viven
 después de permanecer dos semanas , . Nos regresamos
 estuvimos casi una semana
 pónganse ( estén ) en paz
@@ -10232,7 +9000,7 @@ ponerle , ponerlos , sumarle , agregarle
 ponérselos
 dos chamacos están jugando ( sentados y moviéndose )
 estaban labrandobolas ( sentados y moviéndose con el movimiento de las manos al trabajar )
-pasado mañana voy al otro lado ( del cerro ) . - - ¿ qué vas a hacer ? - - dicen que se va a tener una sesión para el jíkuri
+pasado mañana voy al otro lado ( del cerro ) . - ¿ qué vas a hacer ? - dicen que se va a tener una sesión para el jíkuri
 ta amaneció ; levantémonos ya
 ¿ eso es para poner dinero ( LIT . coloca - dineros : monedero , billetera , caja , etc )
 Andrés puso otros allá
@@ -10273,7 +9041,7 @@ después , Juan subió
 si somos buenos , iremos a lo alto
 va a subir exageradamente mi deuda
 es cansadísimo subir
-¿ por qué pues no mataste un venado ? - - es que no tengo parque
+¿ por qué pues no mataste un venado ? - es que no tengo parque
 Nicolás tenía mucho parque
 ¿ cuánto cuestan las pilas de una lámpara ?
 una cobija grande , que llegue hasta aquí , sde lleva seis vellones : la urdimbre cuatro y la trama dos .
@@ -10327,7 +9095,7 @@ Vidal ! todavía no han recogido ( cosechado ) los nabos !
 Lupe sembró nabos
 la gamuza es ( una piel ) ya perfectamente despellejada
 préstame un cuchillo ; vpy a cortar un cuero
-acerté ! - - yo voy a encimar otro ! ahí va ! ( en el juego del tejo )
+acerté ! - yo voy a encimar otro ! ahí va ! ( en el juego del tejo )
 ya se va aflojando el cabo ( del hacha )
 no asienta bien el botón ; se zafa
 pero apriétalo bien , de modo que no se zafe
@@ -10335,7 +9103,7 @@ se te ha de salir del alma , considéralo ( algún día morirás )
 ¿ acaso el alma no se desprenderá de nuestro cuerpo ?
 allí está Gervasio , el de la cachuchita ( LIT . el tocado con la cachuchita )
 tiene puesta la corona
-pónganse pronto la corona ( para iniciar la danza ) , porque tiene mucha prisa ! - - ¡ que se pongan pronto la corona !
+pónganse pronto la corona ( para iniciar la danza ) , porque tiene mucha prisa ! - ¡ que se pongan pronto la corona !
 corona , gorro
 ponerse la corona , el gorro
 ponerle a otro la corona , el gorro ; darle a otro una corona de danzante
@@ -10343,7 +9111,7 @@ estar con la cabeza cubierta con la corona de danzante , un gorro , etc
 quitarse la corona , quitarse la gorro
 quitar a otro la corona , el gorro , descubrir la cabeza
 quitarle la corona , el gorro
-¿ para qué compras ese papel ? - - voy a ponérselos a mi corona
+¿ para qué compras ese papel ? - voy a ponérselos a mi corona
 se lo pusieron a la corona
 traía la cabeza tocada con una calabaza ( casco ? )
 el chivo se sube mucho aquí
@@ -10355,8 +9123,8 @@ mi yerno está en Basigochi
 ¿ no tienen ustedes yerno ?
 ¿ esqueno tienen ustedes un yerno ? pronto consíganse uno , para que les cuide el ganado .
 ¿ es que no tienen ustedes ningun yerno ?
-¿ cómo se llama tu yerno ? - - Rubén ( LIT . ¿ de qué nombre tienes yerno ? )
-¿ dónde vives pues ? - - soy yerno de Ba´wichiki ( e . d vivo con mi suegro en Ba´wichiki
+¿ cómo se llama tu yerno ? - Rubén ( LIT . ¿ de qué nombre tienes yerno ? )
+¿ dónde vives pues ? - soy yerno de Ba´wichiki ( e . d vivo con mi suegro en Ba´wichiki
 ¿ por qué he de hablar mal al que es mi yerno ?
 te voy a mover
 ya lo van moviendo
@@ -10448,8 +9216,8 @@ hacer que se tizne , que se llene de hollín
 enhollinar , tiznar
 tiznarlo , enhollinarlo
 nosotros vivimos entre el tizne ; tenemos casas muy miserables
-¡ qué importa que me llene de hollín ! - - no te vas a enhollinar
-¿ no tienes cigarros ? - - quiero fumar - - te vas a llenar de hollín el pecho . - - y qué que me enholline !
+¡ qué importa que me llene de hollín ! - no te vas a enhollinar
+¿ no tienes cigarros ? - quiero fumar - te vas a llenar de hollín el pecho . - y qué que me enholline !
 ya se ahumó
 la leña verde ( LIT . húmeda ) da mucho humo
 hay mucho humo aquí
@@ -10471,7 +9239,7 @@ está acostado con la cabeza en una piedra
 ya esán uncidos ( con el yugo en la cabeza ) los bueyes .
 ¿ de plumas de qué es esta almohada ?
 parece ser un yugo
-¿ qué cogiste ? - - mo más un papel , para ponérselo de almohada
+¿ qué cogiste ? - mo más un papel , para ponérselo de almohada
 ¿ para qué le echaste arena ( al esquitero ) ? - pues para que no se queme
 ¡ ya se está quemando el esquite !
 está sentada haciéndose las trenzas
@@ -10479,7 +9247,7 @@ tiene agujas en la cabeza el mo'techeri ; el dorso negro y el vientre de un caf�
 así justamente es : jaspeado ; como un gallo jaspeado
 no está nada gordo el ( toro ) cuatezón , y sin embargo le tienen miedo ( los otros toros )
 el ( toro ) cuatezón es fuertísimo para la pelea
-¿ y entonces se hirío la cabeza el niño ? - - ( ella ) lo hizo que se golpeara la cabeza ( cayendo )
+¿ y entonces se hirío la cabeza el niño ? - ( ella ) lo hizo que se golpeara la cabeza ( cayendo )
 Jorge me dio un empellón ; por poco le doy un golpe en la cabeza a la muchacha , al abrir la puerta ; ella estaba limpiando el piso
 ya encaneciste , ya estás viejo
 ¿ cómo es pues que se le quitaron las canas ?
@@ -10495,18 +9263,18 @@ llegamos a Creel cuando el sol iba subiendo al zenit
 hay que subirlo mejor arriba
 los tarahumaras dicen esto : por ejemplo , si uno por acaso robo mucho maíz , no puede subir al cielo , porque el maíz pesa mucho .
 ¿ volverás enseguida ?
-¿ vas a comer cocido ? - - voy a comer cocido
+¿ vas a comer cocido ? - voy a comer cocido
 ¿ tienes una faja ?
 la ardilla está encondida en su madriguera
 le unté chuchufate
 el estafiate no se come ; es medicina ; se machaca y se lo unta uno , cuando tiene calentura .
 hay que untarlo inmediatamente , para que no se entiese ( el músculo enfermo )
-¿ se come ? - - no ; es untura
+¿ se come ? - no ; es untura
 úntale la medicina en toda la espalda
 ¿ no escoges nada tú ?
 escoge el que se te antoje
 a escoger ( al piscar , indicando que sogerá las mazorcas que más le gusten )
-¿ quién te bautizó ? - - - no sé nada ; fue siendo yo un bebito
+¿ quién te bautizó ? - no sé nada ; fue siendo yo un bebito
 en una cueva fue dado a luz el nene ese ; en los ramajes fue parido ;
 acostaron al chiquito emvuelto en trapos , para que no se entiesara ( de frío )
 ( el gigante ) arrastraba a los niños pequeños ensartados de las orejas , los asaba y se los comía
@@ -10515,8 +9283,8 @@ y tú , ¡ qué tal desvergonzado !
 y tú , niña , no eches a un lado a tu jesucristo ; ¿ o es que no está hermosamente ddentro de ti tu jesucristo ? ( el cacique amonestando a una muchacha que había comulgado )
 eres tú el que tiene que vestirla ; tú el que la alimentes con tu trabajo
 ¿ son collares de mujer ?
-tú sabes bien . - - yo no , y tú tampoco
-¿ es tuyo el cesto este ? - - no ; parece ser de aquí
+tú sabes bien . - yo no , y tú tampoco
+¿ es tuyo el cesto este ? - no ; parece ser de aquí
 pues lo dijiste tú
 yo te lo dije
 ¿ y quién te dio la bofetada ?
@@ -10532,18 +9300,18 @@ sefuro que va a sangrar
 es el cono para transportar gallinas ; todo se lleva en él .
 era una hermosa mujer , espigada
 la mujer no es culpable , si la fuerzan
-¿ lo hiciste tú ? - - no ; lo hizo la mujer
+¿ lo hiciste tú ? - no ; lo hizo la mujer
 durante veinte días no voy a hacer nada con mi mujer
 esto dice la ( mí ) mujer : ya te impregnaste todo ( de mal olor ) , dice
 y dice que nos darán un
 y dice que nos darán un buey ( toro ) y una hembra , para que se reproduzcan
 sí era hombre , pero luego se hizo mujer
 ¿ cómo se esperja a un niño muerto ?
-un pajaro muerto . - - cayó en una trampa
+un pajaro muerto . - cayó en una trampa
 nosotros no somos varones ; uno solo es varón , el que no es mortal ; nosotros , nosotros somos mortales .
 es cosa de muerte meterse entre tantas enemistades ( LIT . que lo combatan a uno tantos )
 diciendo esto , se murió
-te vas a morir esta noche . - - ya se me enterrará
+te vas a morir esta noche . - ya se me enterrará
 ya ( se oye que ) se va a morir
 eres digno de muerte
 hizo eso porque quería morirse
@@ -10555,7 +9323,7 @@ mereces azotes , reo de azotes , uno que será azotado
 reos de cárcel , que merecen ser encarcelados
 casaderos : los que se van a casar
 hace ya muchísimo que se le murió el hombre
-¿ cuántos hijos tienes ? - - cuatro . - - ¿ no se te han muerto algunos ? - - uno sólo se me murió
+¿ cuántos hijos tienes ? - cuatro . - ¿ no se te han muerto algunos ? - uno sólo se me murió
 ya se le murió la mamá ; es un huérfano de madre .
 si sorprende a un hombre insolente ( insultando ) , lo hará morir Dios .
 ese , si se enfurece , hace morir .
@@ -10566,13 +9334,13 @@ le habrá hecho beber algo mortal ( venenoso )
 es la mula negra
 ya se metieron entre las piedras los pescados
 la ardilla está escondida en su guardia
-¿ y también frijol sembraste ? - - y es bien ancha ( mi siembra )
+¿ y también frijol sembraste ? - y es bien ancha ( mi siembra )
 aún no voy a sembrar el frijol
 en dos sitios sembré frijol
 hay frijol sembrado allí dentro ?
 el frijol también lo ofrecen ( a Dios ) cuando van a comenzar a comer
 hay frijol limpio ( LIT . despedrado , sin pedrezuelas )
-¿ cómo pues te acabaste tu maíz ? - - pues cambiándolo por frijol
+¿ cómo pues te acabaste tu maíz ? - pues cambiándolo por frijol
 allí en los frijoles vamos a cocerle revueltos patoles , para matar a ese hombre ladrón .
 quiere ( un americano botánico ) frijol de muchas clases ; uno se llama pinto ; otro , ojo de cabra ; otro frijol es el mantequilla ; hay también el trepador , ese que sube para arriba enredado en una estaca ; el frijol café es distinto .
 tener frijol
@@ -10589,7 +9357,7 @@ frijol bordal
 ( corrupción de ) bayo rata
 frijol café
 ojo de cabra
-¿ qué les vas a dar de comer a las reses ? - - paja de frijol y raastrojo
+¿ qué les vas a dar de comer a las reses ? - paja de frijol y raastrojo
 ¡ qué bien huele a frijoles ! ( que agradable olor a frijoles ! )
 no tengo nada de frijol
 se desbarató la ( carga de ) y la mula se asustó ; y cuando me acerqué , volvió a escapar corriendo
@@ -10614,7 +9382,7 @@ la espiga es la que sirve
 ¿ es espiga de qué ?
 allá por el rio arriba se puso amarillenta la siembra ; ya tiene espiga
 nació cuando los maices estaban en espiga
-¿ no me haces un cesto con tapa ? . - - sí te lo hiciera , pero cestos con tapa no sé .
+¿ no me haces un cesto con tapa ? . - sí te lo hiciera , pero cestos con tapa no sé .
 las tortugas : se dice que las hay en el agua , en las corrientes .
 es cerca , nada lejos
 cerquita , bien cerca
@@ -10649,7 +9417,7 @@ yo andaba por allí cerca , por eso lo vi
 acércate aún más
 por ejemplo , los hijos de mi hermano , esos son ( parientes ) bien cercanos
 los ( oriundos ) de regiones lejanas , esos son extraños , son gente aparte ; los de muy cerca estamos emparentados
-¿ es bastante cerca , así como El arenal ? - - mucho más cerca todavía .
+¿ es bastante cerca , así como El arenal ? - mucho más cerca todavía .
 vamos , pregúntale ; a ese muchacho que está más cerca
 tú también párate allí cerquita
 no me ayudan nada los de por aquí cerca ; así vamos a ser unos salvajes
@@ -10672,7 +9440,7 @@ hacer que cargue , echar la carga a algo
 arrear bestias cargadas
 llevar , caminar cargando
 estar cargado
-¿ cuánta ( leña ) partiste ? - - le eché ( al burro ) unos cuantos ( leños ) ; es que no tengo hacha
+¿ cuánta ( leña ) partiste ? - le eché ( al burro ) unos cuantos ( leños ) ; es que no tengo hacha
 cargamos de postes la troca
 en seguida cargamos ( el camión ) , y luego nos fuimos a donde vivía el hombre aquel .
 sí correremos la bola ( al ir de camino ) , si es que no llevamos algo a cuestas
@@ -10682,12 +9450,12 @@ trae acá la silla
 lo van a dejar prensándose
 me apachurró uncaballo ( cayéndome encima )
 estaba apachurrándolo ( sentado encima )
-¿ qué tan doloroso será que lo aprieten a uno prensándolo ? - - mucho
+¿ qué tan doloroso será que lo aprieten a uno prensándolo ? - mucho
 se apachurro ( prensándose )
 murió aplastado ( prensado )
 no anda ( por aquí ) ; ya se perdió
 to no oí
-¿ qué tan bonoto es ? - - no mucho , como Narárachi
+¿ qué tan bonoto es ? - no mucho , como Narárachi
 no le atina !
 levántenme ( con las manos , para alcanzar a ver bien
 por eso ( Dios ) tiene el mundo en la mano
@@ -10697,7 +9465,7 @@ será bueno tomarlos de nuevo en brazos ( a los niños )
 llevar en brazos un borreguito , por compasión
 no más llegues , nos pondremos felices ; no más llegues , te daremos un abrazo , porque te tenemos mucho cariño
 te saludo de un abrazo
-¿ y el pequeño ? - - ya se lo llevaron ( en braazos )
+¿ y el pequeño ? - ya se lo llevaron ( en braazos )
 ya va un torrente de lágrimas , como va grande el agua en las crecientes ( LIT . cuando es abundante )
 dos costales ( de maíz que me prestaras ) sería bueno ; así , si no cosecho mucho este año , te los devolveré el siguiente .
 demasiado que es así
@@ -10715,8 +9483,8 @@ las gallinas encluecan en el verano y se reproducen mucho
 dice que nos darán también un toro yuna hembra , para que procreen
 si los castran , no procrean
 no lo quiere para cría ( LIT . no quiere hacer que se multiplique )
-¿ qué vas a hacer con el marrano ? Lo vas a engordar ? - - lo quiero para cría ( LIT . lo voy a hacer reproducirse )
-el mío ya brotó . - - el mío ya se pudrió
+¿ qué vas a hacer con el marrano ? Lo vas a engordar ? - lo quiero para cría ( LIT . lo voy a hacer reproducirse )
+el mío ya brotó . - el mío ya se pudrió
 ya se pudrieron por comoleto las vigas
 si llueve mucho , en seguida se pudren las raices ; es bien brava el agua ; se empantanan los maizales
 voy a guardar el maíz en la troje ; no se pdrirá , si no se moja
@@ -10786,7 +9554,7 @@ y de allí nos fuimos a donde fue represada el agua ( a la presa )
 está acorrlado , atajado
 padre , ¿ por qué se le cierra a uno la garganta ?
 voy a pulir una horqueta
-allí está ( tirada ) una horqueta . - - sí , allí está
+allí está ( tirada ) una horqueta . - sí , allí está
 horquetudo , en forma de horqueta
 La Horqueta ( topon )
 haber o tener hoqueta ( s )
@@ -10809,25 +9577,25 @@ no te embarres de lodo
 debe de haberse contagiado de alguna cosa , de alguna enfermedad , o de algo
 párense aquí muy juntos ! ( no desparramados )
 ¿ escribimos apretado ? ( no separando las leras )
-¿ sí puedo tocar el agua ? - - todavía no . - - yo penzaba que me lavaría la cabeza , ( un convaleciente )
+¿ sí puedo tocar el agua ? - todavía no . - yo penzaba que me lavaría la cabeza , ( un convaleciente )
 no hay que tocar el peyote ; se vuelve loco uno
 los pájaros van a picotear con el pico
-¿ qué van a hacer pues ? - - van a juzgar a uno
-algunos les dicen na'chúpiara . - - yo no hablo así ; yo ( digo ) na'chúpara
+¿ qué van a hacer pues ? - van a juzgar a uno
+algunos les dicen na'chúpiara . - yo no hablo así ; yo ( digo ) na'chúpara
 broches para juntar papeles ( así llamaron a los clips )
 tianguis : este cura la diarrea de sangre
 nos vamos a repartir por mitad la ganancia
 reparte ( tú ) por partes bien iguales
 eso no se reparte
 ¿ qué tan grande la distribución ? ( ¿ qué tanto le tocó a cada uno ? )
-voy a repartirles cigarros a las mujeres . - - reparteles , pues .
+voy a repartirles cigarros a las mujeres . - reparteles , pues .
 el pájaro nos embarró la sangre
 ¿ lo contagiaste ?
 anden ! ¡ hagan que se junten apretadas las ovejas !
 y vimos ( en un museo ) , medidas , cocedores , grúas ( LIT . elevadores ) , prensas para metales , escalpelos y microscopios
 atiza la lumbre ; ya se va apagando
 le atizaré mucho para que haga espuma
-¿ quién , pues , dijo que lo había tirado ? - - la chamaca , que estaba mirando
+¿ quién , pues , dijo que lo había tirado ? - la chamaca , que estaba mirando
 ¿ por qué estuviste viendo ?
 levanta la cabeza ( LIT . párate mirando arriba )
 caminemos con la cabeza levantada , ( LIT . mirando arriba )
@@ -10836,10 +9604,10 @@ yo duermo con los ojos abiertos
 nos dieron cuatro toneladas de maíz
 hubieramos comido aquí !
 yo pisé ( puse el pie ) aquí
-aquí está muy caro el maíz . - - en cambio , en Waeatzérare parece que no cuesta tanto
-¿ a dónde vas pues ? - - aquí no más
+aquí está muy caro el maíz . - en cambio , en Waeatzérare parece que no cuesta tanto
+¿ a dónde vas pues ? - aquí no más
 aquí mismo venden maíz
-te mordieron las pulgas . - - no , aquí no hay pulgas ; son granitos ( es una erupción )
+te mordieron las pulgas . - no , aquí no hay pulgas ; son granitos ( es una erupción )
 luego echamos fuera las lumbritas que estén humeando
 dame lumbre ( p . ej . un cerillo )
 ¡ pronto ! trae la lumbre
@@ -10899,10 +9667,10 @@ se están invitando
 de todos modos acudamos muchos ; qué importa que no hayan llegado los capitanes
 no iremos tantos ( muchos )
 ¿ en sus cinco sentidos ? ¿ cómo ? ¿ o borracho ? ( LIT . bebiendo )
-¿ cuándo te vas a casar ? - - es preferible entre semana , no es domingo
+¿ cuándo te vas a casar ? - es preferible entre semana , no es domingo
 los tarahumares no hacen nada ( malo ) cuando no andan ebrios
-¿ te golpeó la borrachera ? - - no , andando cuerdo
-¿ en una borrachera fue cuando se apartaron ? - - no ; estando cuerdos
+¿ te golpeó la borrachera ? - no , andando cuerdo
+¿ en una borrachera fue cuando se apartaron ? - no ; estando cuerdos
 conviden algunos más para perseguir al oso
 nos llamamos igual , somos tocayos
 somos tocayos , por eso los dos tienen un mismo nombre
@@ -10962,9 +9730,9 @@ rascarse las orejas
 estar o ponerse sordos
 sordo
 sordo
-la Oreja : esa se da en los arroyos ; es de hojas grandes . - - ¿ y qué medicina es ? - - para el dolor de dentro del corazón ( de pecho )
+la Oreja : esa se da en los arroyos ; es de hojas grandes . - ¿ y qué medicina es ? - para el dolor de dentro del corazón ( de pecho )
 sordo tú , no oyes
-cómo pues no te acordaste ayer de traer leña . - - vaya ! soy muy distraido !
+cómo pues no te acordaste ayer de traer leña . - vaya ! soy muy distraido !
 ¿ qué te sucederá ? te ensordecerá ?
 ya otra vez haré que te pongas sordo
 se volvieron sordas las mujeres
@@ -11002,7 +9770,7 @@ vamos a añadirlos
 los hizo ( unos dibujos en la pared del templo de Chogita ) con una lanza , poníendole una cabeza de trapos ; eran dos las lanzas , añadidas .
 anda , vamos a uncir ya
 eran dos lanzas añadidas
-¿ cuántas yuntas tienes tú ? - - no más una
+¿ cuántas yuntas tienes tú ? - no más una
 ¿ y la que anudaste ?
 ya se hizo nudo
 nudo
@@ -11019,35 +9787,35 @@ nosotros mismos andamos desavenidos unos con otros ; dejen esa conducta
 hagámoslos pelear no más por que sí , hagámoslos que se vean mal
 sice que quiere irse mañana , pero yo no la dejo que se vaya
 no te permitiré que vayas arriba
-ve a preguntarle si su papá le dará permiso de que entre aquí . - - dice que sí querrá , que él mismo lo mandó ( un niño al internado )
-¿ qué dirá Ropiri ? . - - ya tengo ( me fue dado el ) permiso
+ve a preguntarle si su papá le dará permiso de que entre aquí . - dice que sí querrá , que él mismo lo mandó ( un niño al internado )
+¿ qué dirá Ropiri ? . - ya tengo ( me fue dado el ) permiso
 no está permitido que andemos con excesos
 lo están mordiendo los tábanos
 ¡ me están mordiendo ( picando ) las pulgas !
 en días pasados dijo que sí quería
 no más quería cosechar
 ¿ quieres de los de a cinco ?
-¿ qué ( dice que ) quiere ? - - quién sabe… dice que te llama
-¿ van a danzar esta noche ? - - quién sabe…si quieren…
+¿ qué ( dice que ) quiere ? - quién sabe… dice que te llama
+¿ van a danzar esta noche ? - quién sabe…si quieren…
 el arco requiere una cuerda bien resistente
 no sirve esta chimenea , necesita unos adobes
 no quiero ir
 yo ya tengo ganas de ser sabio
 el Faustinillo lloró mucho allá arriba , no quería quedarse
 ayer no teniamos ningunas ganas de ir ; fui muy apenas
-pues que no lo venda , si no quiere . - - es que elDientes - pela - dos lo hará querer a azotes
+pues que no lo venda , si no quiere . - es que elDientes - pela - dos lo hará querer a azotes
 voy a añadirle a la barra
 si hacen cosas ( obran mal ) , los pleitistas no llegarán arriba , al cielo
 van a caminar enlazados
 no tienen ganas de pelear !
 y allá por nuestros campos peleamos mucho ; ya murió uno , fíjense
-los gallos se pelearon . - - ¿ y cuál ganó ? - - el grande
+los gallos se pelearon . - ¿ y cuál ganó ? - el grande
 muchachos ! Los toros tienen ganas de pelear ! ¡ vamos a verlos !
 pelearon mucho cuando estaban aventando el frijol
 ¿ porqué lo pones sesgado ?
 la bola va curveando al que se la tiran ( al que la recibe )
 es una como piedra con rostro ( el sukiki ) , de labios rojos , como nosotros ; tiene una cola torcida a modo de gancho
-anda ! Vamos a hacerlos pelear ! . - - vamos pues .
+anda ! Vamos a hacerlos pelear ! . - vamos pues .
 hagámoslos pelear no más porque sí , pongámoslos en discordia
 ustedes hacen pelear en lo alto a Dios con el diablo
 dejemos esas pendencias
@@ -11066,20 +9834,20 @@ vamos a cambirlo por sal
 a ver , vamos cambiándonolos
 yo te lo cambio allá adentro
 vamos cambiandonos los sombreros ( intercambiandolos )
-¿ pues cómo acabaste con tu maíz ? - - cambiándolo por frijol
+¿ pues cómo acabaste con tu maíz ? - cambiándolo por frijol
 también los que viven lejos deben cooperar
 no me ayudan nada los de por aquí cerca ; así vamos a ser unos salvajes
 ; nadie me ayuda , quiero decir , de los subalternos ( el jefe principal , hablando de sus auxiliares )
 todos los deTawichi son partidarios de Patricio
 el pinole es bien sabroso revolviéndole chancaca ( piloncillo )
 quedarás tú en vergüenza si se vuelven a golpear
-¿ y tu papá ? - - ya murió también
+¿ y tu papá ? - ya murió también
 acaba de caerse un pino
 se me caerán los dientes
 iba dando tumbos ; se levanta , y volvía a rodar por tierra ( un borracho )
 sí , se vendrá abajo este mundo nuestro
 hace muchísimo que murío
-¿ y tu papá ? - - ya murió
+¿ y tu papá ? - ya murió
 por ejemplo : si tú te mueres ¿ quién va a ver por esta niña ?
 hacer caer , hacer desplomarse
 hacerlo caer , hacerlo venirse a tierra
@@ -11099,7 +9867,7 @@ las echó por tierra y el agua arrastró las milpas
 aún no se le han caído los dientes
 yo estaré con ustedes hasta que el mundo se desquicie
 Dios desquiciará ( a sacudidas ) el mundo
-¿ cómoi cogiste el asdillón ? - - pues tumbando el pino
+¿ cómoi cogiste el asdillón ? - pues tumbando el pino
 pero sin tumbarlo ( sin hacerlo caer )
 que se paren en dos filas ( LIT . dos veces encimados )
 la casa tenía muchos pisos ( lit . estaba muchas veces encimada )
@@ -11107,12 +9875,12 @@ la casa tenía muchísimos pisos ( LIT . estaba muchísimas veces encimada )
 voy a hacer una cosa
 ahora te voy a decir otras cosas
 ¿ por qué , pues , hemos de golpear a uno que no dice nada ? ( que no nos ofende )
-¿ qué , no te crea dificultades Guadalupe ? - - pues no dice nada ; ese es pacífico
-¿ vas a ir a la borrachera ? - - no
+¿ qué , no te crea dificultades Guadalupe ? - pues no dice nada ; ese es pacífico
+¿ vas a ir a la borrachera ? - no
 de ninguna manera iba yo a abrir
-¿ cómo se le hace aquí ? - - de ninún modo
-¿ qué tal dormiste ? - - ningún tal
-no han llegado los tarahumares - - hay muchos ahí arroyo abajo
+¿ cómo se le hace aquí ? - de ninún modo
+¿ qué tal dormiste ? - ningún tal
+no han llegado los tarahumares - hay muchos ahí arroyo abajo
 andan revueltos muchísimos perros
 ¿ es que no tienen ustedes un yerno ? Consíganse uno , para que les cuide los animales
 andaba buscando animales , como suelen hacerlo todos los tarahumares ; es que comen animales que buscan , animales del monte
@@ -11129,14 +9897,14 @@ no te ayudaremos nosotros si El te lo ordena ( ir al infierno )
 no traigo jícara en que beber el agua
 no me dolía , pero si tenia muy calientes los pies
 no es diner mío
-no estaba fria . - - yo creía que estaba fría
+no estaba fria . - yo creía que estaba fría
 no quiere detenerse
 ¿ no estaba bonito ?
 quien sabe que diga la mamá… - ella dirá ( LIT . según puense ella )
 parece que esa es la mamá
 es mi mamá
 con esto le van a pegar a Venancio
-a ver , Venancio ! ¿ Qué pasó ? - - hay que echarlo el agua .
+a ver , Venancio ! ¿ Qué pasó ? - hay que echarlo el agua .
 y si somos cuatro , ¿ terminaremos pronto ?
 préstame cuatro reales ( cincuenta centavos )
 hacemos cuatro días , si es que caminamos a buen paso
@@ -11156,12 +9924,12 @@ ya se borraron las huellas ; el viento las borró
 ya se borró el camino
 ya se va opacando , ya se va ensombreciendo , porque andan las nubes
 ya se volvió a nublar
-¿ y tu papá ? - - ya se murió
-y cuando se los lleva ( el gigante ) , ¿ qué hace ? - - desaparecen los niños ; se los come
+¿ y tu papá ? - ya se murió
+y cuando se los lleva ( el gigante ) , ¿ qué hace ? - desaparecen los niños ; se los come
 ya se me olvidó
 ya lo borré ( aterré el surco )
 ya ( el agua ) los borró ; ha llovido mucho
-¿ Qué hiciste ? - - lo taché - - ¿ por qué ? - - tú dijiste " táchalo " ; no dijiste " limpialo " ( bórralo ) ; eso habías de haber dicho
+¿ Qué hiciste ? - lo taché - ¿ por qué ? - tú dijiste " táchalo " ; no dijiste " limpialo " ( bórralo ) ; eso habías de haber dicho
 podría venir el jueves con el maíz ( LIT . cargando el maíz )
 será la vispera del jueves de Corpus
 fue el jueves pasado , un poco más acá ( pasando el úñtimo jueves )
@@ -11202,11 +9970,11 @@ con orégano es bien sabroso ( LIT . si es muy saberoso poniéndole orégano )
 sí las vamos a añadir ( cosiéndolas )
 súbele la camisa ( LIT . ponle la camisa hacia arriba )
 ponle pronto la camisa
-¿ quién te dio esa camisa tan linda ? - - me la dio mi mamá
+¿ quién te dio esa camisa tan linda ? - me la dio mi mamá
 moja la camisa
 me estás jalando para arriba la camisa !
 esque la camisa toda impregnada ( mugrosísima )
-mira , ya se ensució ( ennegreció ) la camisa ; habrá que lavarla . - - sí conseguiré lavarla
+mira , ya se ensució ( ennegreció ) la camisa ; habrá que lavarla . - sí conseguiré lavarla
 ponerle la camisa
 poner o dar camisa a otro
 quitarse la camisa
@@ -11238,7 +10006,7 @@ quiero café , y también azúcar
 ¿ cómo es que los otros tienen ocho y tú nueve ? … ¿ qué más traes tú ?
 también la mujer recibió sus golpes
 quiero cigarron y tambien cerillos
-¿ con qué lo vas a beber ? - - pues junto con sotol
+¿ con qué lo vas a beber ? - pues junto con sotol
 dinero junto con maíz
 todavía no se han ayuntado
 quizás me mate , si me junto con otro
@@ -11284,7 +10052,7 @@ trozando las éspigas del maíz cuando brotan : se comen asadas
 no , que no tengo pañoleta
 ¿ no tienes lienzo ( para pañoleta ? ) ; iba a enrollarlo para hacerme un turbante
 está bien cobijado
-¿ por qué andas con sombrero ? - - es que no tengo lienzo para hacerme un turbante
+¿ por qué andas con sombrero ? - es que no tengo lienzo para hacerme un turbante
 estando en sus cinco sentidos ( no borracho ) lo mató
 yo me sumí hasta aquí y yo me sumergí hasta aquí ( sobre la cabeza )
 se nos va a tapar la cabeza ; parece estar muy hondo
@@ -11310,9 +10078,9 @@ ya vete a descansar , no llores
 cuando estaba cantando , entonces lloró
 estoy tristísimo de vivir solo ; no dormí en la noche ; amanecí llorando ( uno al que le robaron su mujer )
 viviremos llorando ( penando por los castigos ) , por culpa de ustedes
-¿ quiénes ganaron ? los de Nar´´arachi , o los de Sarabéachi ? - - ganó Pablo , el de Sarabéachi
+¿ quiénes ganaron ? los de Nar´´arachi , o los de Sarabéachi ? - ganó Pablo , el de Sarabéachi
 es que sí hay templo tarahumar , allá en Narárachi ; en muchas partes hay
-¿ por qué andas triste , viejo ? - - añoro mucho a losde Narárachi
+¿ por qué andas triste , viejo ? - añoro mucho a losde Narárachi
 ya va a ser mucho tiempo desde que no ves a los de Narárachi
 hicieron llorar mucho al niño
 no lo hagan llorar a golpes
@@ -11320,10 +10088,10 @@ juntos lloremosle a Dios , para que nos dé cabal el alimento
 llorémosle allí
 en caso de que quiera , le preguntaremos a su tío
 iba a pregunatrle si quergarrapatas de reses
-¿ dónde vive ese ? - - quién sabe dónde …no le he preguntado
+¿ dónde vive ese ? - quién sabe dónde …no le he preguntado
 vamos , pregúntale ; a ese muchacho que está más cerca
 ninguno quiere ir ; son muy tozudos
-no le han querido entregar su tierra - - ¿ a quién no se la quieren dar ?
+no le han querido entregar su tierra - ¿ a quién no se la quieren dar ?
 te vengo a llamar , por si quieres ir
 so lo sé bien , no más que no quiero decir
 recíbemelo pues ; ya me cansé !
@@ -11332,24 +10100,24 @@ ustedes fueron saludándose
 te mandan saludar los otros muchachos
 saludemos la cruz
 pasé la noche allí donde en días pasados me encontré contigo
-no más uno me encontré ( por el camino ) - - no más uno te encontraste , así es
+no más uno me encontré ( por el camino ) - no más uno te encontraste , así es
 ¿ cómo se llama esto ? . . se llama …este… espuelilla
 parece como … como hoja de guaje
 Tranquilino esta muy barbón ; parece , este … un pez barbudo
 ven acá , Hermenegildo … quiero decir , José !
-¿ dónde vives pues ? - - en , este …en Puerto Rojo
+¿ dónde vives pues ? - en , este …en Puerto Rojo
 voy a … al Carrizal
-¿ con quién vas ? - - voy con …con Rodrigo
+¿ con quién vas ? - voy con …con Rodrigo
 voy a prender lumbre con … con cerillos
 tienen allá arribita los . . los bultos
 ¡ Wenceslao ! ya se acabó el … el atole
-¿ y quién más ? - - también … Beto
+¿ y quién más ? - también … Beto
 y en invierno ¿ cuántas horas hay sol ?
-¿ que van a hacer ustedes ? - - pues … vamos a matar pescados
+¿ que van a hacer ustedes ? - pues … vamos a matar pescados
 dijiste que hoy nos ibas a contar el … el chivo
-¿ estaba en la tienda ? - - no ; allí al otro lado
+¿ estaba en la tienda ? - no ; allí al otro lado
 párence abajito . al otro lado
-tráete el recogedor - - no está aquí - - tal vez allá al otro lado
+tráete el recogedor - no está aquí - tal vez allá al otro lado
 lo metieron al otro lado
 hacia el otro lado
 por el otro lado
@@ -11367,12 +10135,12 @@ el lobo tiene la huella boluda , el coyote elíptica , un poco
 los muchachos andan corriendo por el otro lado
 vamos , ve a preguntar esta noche
 va preguntando : ¿ dónde va José Bianchi ?
-ve a pregutarle a Manuel a ver si va - - dice que no va
+ve a pregutarle a Manuel a ver si va - dice que no va
 ya alguna vez te pregunté cuándo irías
-¿ a dónde se fue el burro ? - - allá al otro ladoi ( detrás de la casa )
-¿ dónde estaba ? - - estaba allí al otro lado
+¿ a dónde se fue el burro ? - allá al otro ladoi ( detrás de la casa )
+¿ dónde estaba ? - estaba allí al otro lado
 Bianchi , mejor pinole
-¿ quién ? ¿ el hijo ? - - no , el yerno
+¿ quién ? ¿ el hijo ? - no , el yerno
 diles mejor tú ; a mí no me van a hacer caso
 que digan mejor ellos ; nos vamos a quedar roncos de tanto litigar
 les tengo mucho miedo a los animales , principalmente a los leones
@@ -11402,12 +10170,12 @@ me tienen mucho miedo ; soy muy veloz , por eso nadie quiere competir conmigo
 vamos a ponernos con los borrachos ; ganaremos de seguro
 que también los consuegros se visten de cuando en cuando
 fornicar es acostarse con muchas en las borracheras
-¿ serán muchos ( vendrán muchos ) los tarahumares ? - - ¿ por qué no han de abundar ? Usan mucho de las mujeres
+¿ serán muchos ( vendrán muchos ) los tarahumares ? - ¿ por qué no han de abundar ? Usan mucho de las mujeres
 no los invitaría si fuesen enemigos
 si la embruja
-lo hiciste tú . - - no ; tú lo hiciste ; así disputan los tarahumares
+lo hiciste tú . - no ; tú lo hiciste ; así disputan los tarahumares
 no anden altercando
-¡ viejo perezoso ! - - sí , soy perezoso
+¡ viejo perezoso ! - sí , soy perezoso
 no seríamos tan flojos , si no fuésemos tan pobres
 parece que era muy perezoso
 yo soy muy indolente
@@ -11416,19 +10184,19 @@ no vendrá Valerio ; dice que tienen mucha pereza
 pero tú ya sabes qué pereza me cargo ahora
 comiendo , se engorda bien ; flojeando se muere uno ; hay que trabajar duro
 ¡ que flojera !
-pero ¿ por qué se huyeron ? ( unos niños del internado de Sikirichi ) - - son muy operezosos ; son muy perezosos para leer ; ya me han cansado
+pero ¿ por qué se huyeron ? ( unos niños del internado de Sikirichi ) - son muy operezosos ; son muy perezosos para leer ; ya me han cansado
 ¿ estará bien ser perezoso ?
 es que es bien indolente ese Ruben
 me comí tortilla y media
 me tocó la mitad
 es mitad del invierno
 ¡ y tampoco te da pena de andar por en medio !
-con permiso , voy a pasar por en medio - - pasa
+con permiso , voy a pasar por en medio - pasa
 dice que llegó a la media noche
 cuando el sol vaya a la mitad
 medio más de la mitad
 dice que acabaron el miércoles
-hoy en miercoles verdad ? - - sí - - ¿ hace tres días fue domingo ?
+hoy en miercoles verdad ? - sí - ¿ hace tres días fue domingo ?
 hay muchas flores , que florecen ( de colores ) muy mezcaldos
 a pesar de lo cual , mataste una res
 ya echaste a perder el papel ; estaba muy bueno
@@ -11440,7 +10208,7 @@ andan revueltos los tarahumares
 así se enreda todo el asunto ( hablando todos a la vez )
 ese chabochi habla todo revuelto
 los tarahumarasya se mezclaron con los blancos
-¿ no comen ustedes juntos su tortilla ? - - no .
+¿ no comen ustedes juntos su tortilla ? - no .
 mezclado , revuelto
 mezclado , revuelto
 mezcolanza , enredo
@@ -11477,7 +10245,7 @@ me hace pensar muy mal
 está muy resistente el huarache , agujéramelo , por favor
 para agujerearlo tirándole ( al blanco )
 de veras lo traspasé con la flecha ; así le hice ; por eso lo perforé
-¿ con el rigle lo agujeraste ? - - sí , con el rifle
+¿ con el rigle lo agujeraste ? - sí , con el rifle
 agujéramelo aquí
 los borregos arrancan corriendo de lejos y chocan ( de frente , en sus peleas )
 lo desmayó de un puñetazo en la cara .
@@ -11491,7 +10259,7 @@ si pierde el sentido , se va a enojar mucho
 voy a dormir profundo ; no me daré cuenta de nada
 estabas profundamente dormido
 anoche murió uno , un chiquito , el hijo de Servando , a la media noche se murió
-habrás pensado mucho , por eso estás cansado . - - yo no he pensado nada
+habrás pensado mucho , por eso estás cansado . - yo no he pensado nada
 acuérdate de mi ( LIT . anda pensándome )
 imposible pensar
 así estaba cuando llegué al uso de la razón ( siempre , que yo recuerde , ha estado así )
@@ -11512,12 +10280,12 @@ allí se llama Natáwachi ( el agujero , el Cerro Agujerado )
 así pues , por favor , si en otra ocasión vuelvo a pensarlo , hazme pensar rectamente .
 voy a estar con mucha nostalgia en Soguichi ; voy a andar pensando .
 llegaron unos muchachos con las narices ensartadas ( con unos palillos : en el cine )
-el mío ya está ensartado . - - el mío todavía no
-en Creel no es tan caro el maíz . - - no tanto , no .
+el mío ya está ensartado . - el mío todavía no
+en Creel no es tan caro el maíz . - no tanto , no .
 más valioso que todas las cosas
 no valen nada el General ni el jefe ?
 eso es la paga
-pasarás aquí un mes ( en la cárcel ) , si no entregas el precio ; te cobran quince . - - sí acabalaré tantos así
+pasarás aquí un mes ( en la cárcel ) , si no entregas el precio ; te cobran quince . - sí acabalaré tantos así
 no me dieron la paga
 sí le daré el valor ( el precio ) a ese
 ¿ si le vas a dar el precio ?
@@ -11526,7 +10294,7 @@ anda muy apenada la muchacha porque se le murió su vaquilla
 ya se compadecieron
 Dios se apiadará
 es que ahora están teniendo lástima , ve
-ese era para dar lástima . - - así es
+ese era para dar lástima . - así es
 somos de dar lástima
 lleva en brazos el borreguito , con gran ternura
 y tú muchacha , ten consideración con tu padre
@@ -11544,16 +10312,16 @@ esta pañoleta está muy cara
 esta ¿ cuánto vale ?
 quién sabe sabe cuánto cuesto uno doble . .
 no debía costar diez centavos , está chiquito
-aquí está muy caro el maíz . - - en Wawatzérare , en cambio , parece que no cuesta tanto
+aquí está muy caro el maíz . - en Wawatzérare , en cambio , parece que no cuesta tanto
 los niños importan supremamente ; cuídelos bien
 ¿ qué importa más , tu hijo o una res ?
 lo sangraste , ¿ qué , no vale ( importa ) nada la sangre ?
-¿ y cuándo pues los vas a pagar ? - - no más que consiga dinero
+¿ y cuándo pues los vas a pagar ? - no más que consiga dinero
 en caso de que no les paguen …
 me pagan cinco pesos por día
 ( algunos ) se salen ( se van ) debiendo ; no acabalan cuando les pagan
 y cuando ya llegábamos de regreso a la casa , muchos salieron a encontrarnos
-no más a uno me encontré . - - a uno solo encontraste , así es
+no más a uno me encontré . - a uno solo encontraste , así es
 era un blanco al que le hacía el trabajo , cuando te salí al encuentro en Ganochi
 en ese tiempo abusan mucho de las doncellas
 nos vamos a pasar la noche parlamentado
@@ -11579,11 +10347,11 @@ andar enfermo
 estar enfermo
 estar enfermo , haber enfermedad
 enfermar a otro
-¿ de qué se enfermo ? - - quién sabe… y también temblaba
+¿ de qué se enfermo ? - quién sabe… y también temblaba
 es que enfermó por haber comido chilicote
 crecerá mucho ( alto ) , si no se enferma
 y al llegar de vuelta a su casa el gigante , comenzó a enfermarse
-¿ quién manda esta carta ? - - de allá río arriba
+¿ quién manda esta carta ? - de allá río arriba
 ya envié con orden de juntar hiebas ; vamos a revolverles quelites a los frijoles
 envió el agua ( la lluvia )
 este pozo tiene enfermedad ; yo no bebo de allí
@@ -11620,15 +10388,15 @@ las mujeres andaban sacando las raíces ( las patatas )
 ¿ qué raíces andas sacando ?
 los rarámuri no quieren enviarlo
 entonces ( Dios ) ) envió el sol que pasara más bajo para que quemara a esos tarahumares perversos
-¿ acabas de llegar ? - - acabo de llegar
+¿ acabas de llegar ? - acabo de llegar
 es que tenía que venir acá
-¿ me sentiste cuando llegué ? - - no me di cuenta
-¿ cuántos meses tiene el crío ? - - nació cuando se secaban las milpas
+¿ me sentiste cuando llegué ? - no me di cuenta
+¿ cuántos meses tiene el crío ? - nació cuando se secaban las milpas
 nació cuando jiloteaba el maíz
 fue dado a la luz ( nació ) siendo su madre ya de edad ( LIT . anciana )
 si un becerro está muy piojoso y lo untan con nawé , se morirán los piojos
 los peces mueren enseguida , si los matan con nawé
-¿ cómo se pelearon ? - - a chicotazos
+¿ cómo se pelearon ? - a chicotazos
 ahora el Presidente no quiere que los azotemos
 esos lo apalearon mucho
 ese tiene raíces muy largas
@@ -11638,7 +10406,7 @@ allí hablo con eso que llaman micrófono , porque así no más no alcanzaba ( l
 dijiste que hoy nos ibas a contar la historia
 así contaban los viejos
 ese no dice nada ; es el miedo
-¿ qué se cuenta hov , maestro ? - - una muy mala noticia
+¿ qué se cuenta hov , maestro ? - una muy mala noticia
 una noticia no muy buena
 ¡ qué discurso tan largo !
 ¿ esos son cuentos ?
@@ -11652,7 +10420,7 @@ gustoso me llego a tí
 no más están ustedes al rededor : ¿ por qé no se acercan ?
 nos llegará la tos ; es que el que vive arriba es el que nos hace toser ( el que nos manda la enfermedad )
 el hombre se acerco ( se le llegó ) a la mujer ; y la mujer era muy recatada
-¿ ya le vino otra ves ? - - ya , desde hace casi dos semanas
+¿ ya le vino otra ves ? - ya , desde hace casi dos semanas
 ¿ dónde nació ?
 ¡ pónganse en fila !
 pongan en fila , alineados , a los tarahumares
@@ -11669,10 +10437,10 @@ pasando ese número de días caí enfermo
 ¡ ya hiciste que se escaparan los peces !
 ¿ desde cuándo está enfermo ?
 algo le dio de comer y lo puso enfermo
-¿ qué se dice arribita ? - - se dice que se está muy enfermo
+¿ qué se dice arribita ? - se dice que se está muy enfermo
 dicen que por el río arriba hay mucha enfermedad
 no beban ese líquidi : los pone malos ( LIT . es enfermador )
-yo creía que no . - - yo ( que ) sí
+yo creía que no . - yo ( que ) sí
 ya tengo hambre
 yo no tengo marido
 sí lo traigo yo , sí tengo burros
@@ -11690,17 +10458,17 @@ déjenlos , para que vengas acá conmigo
 fue arribita a enseñar tarahumar
 adiós , pues
 siéntate pues !
-anda pues , vamos a bautizar al crío . - - es que ya no hay padrinos ( LIT . no hay quien lo tome )
+anda pues , vamos a bautizar al crío . - es que ya no hay padrinos ( LIT . no hay quien lo tome )
 anda , habla de una vez ( a un acusado )
-voy a repartirles cigarros a las mujeres . - - repártelees pues
-de todos modos lo compro . - - cómpralo pues
+voy a repartirles cigarros a las mujeres . - repártelees pues
+de todos modos lo compro . - cómpralo pues
 mira qué grande ( pez ) cogio Vidal
 mira ! el mío ! mira !
 dice que va muy lejos
 he dicho ( punto final del discurso )
 ¡ si que se asusto !
 vaya ! se le cerró el camino !
-es de Nevares . - - ¿ por qué ?
+es de Nevares . - ¿ por qué ?
 ni siquiera el jefe ha venido
 no viene
 ¿ no se ha visto ( no ha venido ) mi muchacho , Maclovio ?
@@ -11712,8 +10480,8 @@ cuando dijiste que Fernando de iba a pelear a puñetazos
 ¿ por qué hemos de abofetear a uno que no dice nada ?
 yo también bebo ; ¿ por qué he de reprender las borracheras ? Dice Plancarte , fíjate !
 soy yo solo ; nadie me ayuda , digo , de los subalternos
-¿ es tuyo ? - - mío no es
-¿ dónde son más dadivisos los tahumares ? - - en Ba
+¿ es tuyo ? - mío no es
+¿ dónde son más dadivisos los tahumares ? - en Ba
 voy con mi hija a Chihuahua ; pediré allí ; allí son muy generosos
 ¿ quién más que El nos da ( el alimento ) ?
 el Padre es nuestro jefe , nos da pensamientos ( nos aconseja ) , igual que nuestros padres
@@ -11724,17 +10492,17 @@ yo no como , yo me voy a ir a mi casa
 yo , cierto que no me quedaré
 padre , cúrame
 dame pan
-tíramela . - - no .
+tíramela . - no .
 ¿ por qué no obedeces ?
 por fin hagamos caso
 es fuerza obedecer
 no respndas , cuando alguien te hable andando por el monte
 hagan caso bien
-¿ y Verónica ? - - allí está . - - ¿ le estás enseñando ? - - es que no hace caso
+¿ y Verónica ? - allí está . - ¿ le estás enseñando ? - es que no hace caso
 sean bien dóciles
 córtamele las orejas a este niño , por desobediente cuando le mandan algo
-¿ cómo te voy a hacer aprender desobendientísimo ? - - pues haciéndome sentir sabroso ( dándome algún dolor )
-pero ¿ te harán caso ? - - quién sabe lo que hagan . . . ¡ qué caso han de hacer !
+¿ cómo te voy a hacer aprender desobendientísimo ? - pues haciéndome sentir sabroso ( dándome algún dolor )
+pero ¿ te harán caso ? - quién sabe lo que hagan . . . ¡ qué caso han de hacer !
 diles mejor tú , a mí no van a hacer caso
 yo ya fui , en obediencia a ti
 estaba no más mirándome ; pero yo no le respondí nada , no más agaché la cabeza
@@ -11742,7 +10510,7 @@ estás escardando con mucho apuro
 hay que obrar con mucha actividad
 yo soy de Bakéachi
 me duele mucho al correr fuerte
-¿ cómo se llama ese hombre ? - - igual que yo
+¿ cómo se llama ese hombre ? - igual que yo
 tengo mucho quehacer en , soy fiestero
 heló muy fuerte ; todo se puso blanco
 ¿ aún no acabas de barrer ? porque estás mu atareada barriendo
@@ -11765,7 +10533,7 @@ yo no peleo
 ¿ no eres capaz de aguantarte sin pelear si te sorprenden besando ?
 por aquí corría guerreando El Hachero ( el cacique Teporaka )
 yo quiero irme ya mismo a la guerra
-Vidal , tú anduviste peleándote por la otra orilla . - - es que soy muy hombre
+Vidal , tú anduviste peleándote por la otra orilla . - es que soy muy hombre
 anda viendo los burros
 está mirando
 es que están usando la carretilla arribita , andan acarreando lodo
@@ -11781,7 +10549,7 @@ anda viendo a un hombre ( fui a entrevistarme con un hombre )
 le vi la garganta ( a un perro )
 asistiremos ( veremos ) a la misa con distintivo
 hay muchas palabras ( en un papel )
-y esta ¿ qué tan alegadora y ofensiva es ? - - la mujer , muchísmo
+y esta ¿ qué tan alegadora y ofensiva es ? - la mujer , muchísmo
 porque algunos hablan mucho ( son muy alegadores y ofensivos )
 ese tiene muy suelta la lengua
 ( sabía ) sólo el lenguaje ( idioma ) de aquí
@@ -11817,12 +10585,12 @@ vamos a tirar piedras
 o no lo llamé
 ¿ vendrá a llamar a Bianchi ?
 ¿ cuándo me vas a cobrar ?
-¿ quién me llamó ? - - te llamó Juan Rico
+¿ quién me llamó ? - te llamó Juan Rico
 nos llamó para hoy
 los culpables son los que los convidaron ( llamaron ) a cortar los elotes
 yo iré cobrándoles a los que viven por los ranchos
 quién sabe qué multa le ponga el juez de allá
-pasarás un mes aquí ( en la cárcel ) si no pagas el precio ; te piden quince . - - sí acabalaré tanto como eso .
+pasarás un mes aquí ( en la cárcel ) si no pagas el precio ; te piden quince . - sí acabalaré tanto como eso .
 cobrarle
 andar cobrando
 hacer cobrar
@@ -11835,7 +10603,7 @@ mucho que es así !
 a toda costa hay que abandonar ese proceder
 ¿ qué , no valen nada ni el General ni el Cacique ?
 ¿ qué es de ti ?
-¿ qué va a ser de ti este ? - - va a ser mi ahijado
+¿ qué va a ser de ti este ? - va a ser mi ahijado
 no me satisfache de dormir ; ya dormiré a satisfacción esta noche
 es que no se hartaba de comer , es un glotón
 trisabuela , la abuela de mi abuela
@@ -11851,7 +10619,7 @@ ustedes van a jalarle los cabellos a su padre , van a jalarle los cabellos a su 
 es que es ( anda de ) pastor
 es que el niño fue pastor de las cabras durante un mes
 de buena gana cuídale los rebaños a tu suegro
-¿ qué trabajo te dio el blanco ? - - me puso a cuidar las cabras
+¿ qué trabajo te dio el blanco ? - me puso a cuidar las cabras
 sólo Dios nos cuida ( nos pastorea )
 siempre anda apestando ; cuida cabras , por eso ya se impregnó
 pastoreé un mes y no me pagaron
@@ -11870,9 +10638,9 @@ dice que lo cogió ( fue cogido ) por la mano ; parece que lo estaba disuadiendo
 refrénalo tú ( tú eres el que debe disuadirlo ) ; hay que amonestarlo con energía
 no te tengo mala voluntad ; lo que hago es aconsejarte ( que no hagas así )
 él . Dios , baja y nos disuade ( de obrar mal )
-¿ qué es esto ? - - es para hacer casas
+¿ qué es esto ? - es para hacer casas
 ¿ quién lo hizo ?
-¿ y Juan Rico ? - - se nos adelantó
+¿ y Juan Rico ? - se nos adelantó
 mucho te aventaja este , porque es jefe
 ya le pasó adelante , ya lo sobrepasó el corredor
 es muy disoluta la mujer , ya se separó ( de su marido )
@@ -11886,7 +10654,7 @@ sí , caigamos en la cuenta
 ¿ por qué nosotros sentimos ( nos parece ) que le dan vueltas ?
 lo pisé y no lo sentí
 písalo , no lo vas a sentir
-quién sabe qué haya hecho yo , no me doy cuenta . - - ¡ cómo no has de darte cuenta !
+quién sabe qué haya hecho yo , no me doy cuenta . - ¡ cómo no has de darte cuenta !
 luego luego desaprece el faisán , es muy ligero
 no se veía , no era visible
 al tercer día ya no apareceremos ( ya estaremos muertos )
@@ -11918,7 +10686,7 @@ vivan rectamente , hasta que los llame ( necesite ) Dios
 cuando hayamos sido necesitados ( al morir ) , Dios no les hablará bonito ( a los perversos )
 está bien visible
 se ve ningún indio ( no ha venido nadie )
-¿ aún no vienen los muchachos ? - - no me he enterado
+¿ aún no vienen los muchachos ? - no me he enterado
 porque el templo está hecho para que pidamos perdón
 pues cómo no se veía ( LIT . no era visible )
 por ejemplo , si es sorprendido en cópula ese hombre , a ese habrá de azotar
@@ -11938,7 +10706,7 @@ ni , ni siquiera , no
 entonces ( almacenándolas ) , las tuzas no se acabarán las papas , ni tampoco se pudren
 están ocupando arriba la carretilla ; andan acarreando lodo
 y también parece que lo provocas
-¿ qué tan grande es la que está enferma ? - - la que anda conmigo , mi mujer
+¿ qué tan grande es la que está enferma ? - la que anda conmigo , mi mujer
 ¡ grandísimo embustero ! ( LIT . tú que eres siendo gran embustero )
 el menudo es como lo que es chorizo
 ¿ quién acarrea la arena ?
@@ -11948,16 +10716,16 @@ es que están usando la carretilla arribita , andan acarreando lodo
 ¡ ya es medio día !
 ¡ mira ! una mariposa va volando !
 mira ! no pocas moscas !
-fíjate cómo se ensució ya ; habrá que lavarla . - - sí alcanzaré a lavarla
+fíjate cómo se ensució ya ; habrá que lavarla . - sí alcanzaré a lavarla
 está muy bueno ese cuchillo
 se te saldrá tu alma , considera
 anduviste como los perros , fíjate , los perros corren por las cañadas
 no tiene marido , no quiere casarse , tiene mucho miedo
 no tengo ni un grano de maíz
-lo cogiste tú . - - no !
+lo cogiste tú . - no !
 y el zopilote se fue a olfatear ; anduvo olfatenado sobre el cerro , y no los encontró , ni tampoco les siguió el rastro
 no tengo ni un grano de maíz
-lo cogiste tú . - - no !
+lo cogiste tú . - no !
 y el zopilote se fue a olfatear ; anduvo olfatenado sobre el cerro , y no los encontró , ni tampoco les siguió el rastro
 me quiere abofetar
 por poco me corta las orejas
@@ -12000,19 +10768,19 @@ me va a prestar quinientos
 es muy provocativo
 no quiero provocarlo así
 ahí en el camino te alcanzo
-yo llevo ocho . - - y yo once . - - en seguida te alcanzo ; ya te alcancé
+yo llevo ocho . - y yo once . - en seguida te alcanzo ; ya te alcancé
 ya nos volvió a alcanzar
-pasarás un mes aquí ( en la cárcel ) si no entregas la paga ; te cobran quince . - - tantos como eso sí los acabalo
+pasarás un mes aquí ( en la cárcel ) si no entregas la paga ; te cobran quince . - tantos como eso sí los acabalo
 ya lleva tres hombres ( ya son tres con los que ha andado esta mujer )
 yo te dije que si tendrías mucha prisa
 tú eres la que me tiene mala voluntad
-¿ muerde ? - - no podría ; no tiene grandes dientes
-es una serpiente . - - ¿ qué clase de serpiente ? no muerde
+¿ muerde ? - no podría ; no tiene grandes dientes
+es una serpiente . - ¿ qué clase de serpiente ? no muerde
 la víbora de cascabel muerde ; la pulga , el piojo , la chinche , muerden , la mosca muerde también
 estará muy mordente el chile
-¿ le ayudaste tú ? - - yo no le ayudé
+¿ le ayudaste tú ? - yo no le ayudé
 lo escribí yo solo , nadie me esta ayudando
-¿ qué dice ? - - te saluda mucho ( LIT . dice que Dios te ayude )
+¿ qué dice ? - te saluda mucho ( LIT . dice que Dios te ayude )
 es muy incómoda esta camisa grande
 ¡ cómo estás molestando !
 voy a ayudarle a tu hermano Ropiri
@@ -12048,14 +10816,14 @@ mañana habrás de estar de regreso
 así no se puede tratar nada
 ¡ cómo es posible beber eso ! está calientísimo !
 ¿ pero es que se puede aprender cuando se es viejo ?
-mañana vendré a llamarte . - - está bien
-cien costales de maíz voy a cosechar . - - ¿ sí ?
-es que así es . - - sí
+mañana vendré a llamarte . - está bien
+cien costales de maíz voy a cosechar . - ¿ sí ?
+es que así es . - sí
 sí sería bueno , pero marranos no tengo
 sería bueno preguntarle
-¿ dónde te lo agujero ? - - podría ser aquí
+¿ dónde te lo agujero ? - podría ser aquí
 te quitaré el corazón
-¿ a quién buscas ? - - pues te busco a ti
+¿ a quién buscas ? - pues te busco a ti
 para ti , por ti
 contigo
 ahora Silvino ya se fue para ser diputado
@@ -12065,7 +10833,7 @@ dejémosle la venganza de nuestro Padre
 defiéndete
 ¿ así se defiende uno ?
 ¿ acaso el que vive arriba ( Dios ) se niega a darnos el alimento ?
-ahora no obedece nada ; se defiende ( recalcitra ) muchísimo . - - ¿ por qué hemos de resistirnos ? no hay que recalcitrar ( el esposo y el juez en un juicio )
+ahora no obedece nada ; se defiende ( recalcitra ) muchísimo . - ¿ por qué hemos de resistirnos ? no hay que recalcitrar ( el esposo y el juez en un juicio )
 defender
 defender
 defenderlo
@@ -12081,7 +10849,7 @@ es más el bien catarro ; traigo un catarro molestísimo
 dice que nos va a dar más bien maíz
 yo lo que quiero es manta
 ese es el que habla más mal
-¿ este ? - - cualquiera , con tal que se leña seca , en seguida arde . - - esta es manzanilla - - por eso mismo
+¿ este ? - cualquiera , con tal que se leña seca , en seguida arde . - esta es manzanilla - por eso mismo
 que no anden haciendo mal
 ese no coopera nada , perjudica mucho
 nos tratan muy mal
@@ -12092,7 +10860,7 @@ molesta mucho ese hombre , habla muy mal
 no hagamos males allá por nuestros campos
 dice que las lombrices de aquí no son sabrosas
 parece que nosotros estaremos primero aguardando ( que llegaremos primero )
-¿ hay gente ? - - sí , dicen que están aguardando
+¿ hay gente ? - sí , dicen que están aguardando
 ahora los muchachos de aquí dicen que te están aguardando de vuelta
 estuve aguardándote una semana y no viniste
 cada dos ; de dos en dos
@@ -12114,8 +10882,8 @@ yo estoy en lugar del jefe
 ya pagué yo por mi suegro
 parece muy envanecido
 anda bien orondo porque se puso corbata
-mira ! qué fachoso fumando ! - - cierto que sí
-¿ a quién le entrego esto ? - - al padre Gallegos , - - en nombre tuyo ?
+mira ! qué fachoso fumando ! - cierto que sí
+¿ a quién le entrego esto ? - al padre Gallegos , - en nombre tuyo ?
 somos muy echadores ; no nos las echemos tanto
 ya andaba muy orondo ( muy finchado )
 lo fachoso que andas con ese turbante !
@@ -12152,11 +10920,11 @@ ahora estoy muy contento , porque ya se casó mi hermano mayor
 es que la quiero mucho ; la echo mucho de menos ; no estoy contento viviendo solo ; me pasé la noche llorando
 sí me di cuenta cuando tú saliste
 ¿ cómo te sientes ? ¿ qué tienes ? ( a un enfermo )
-qué tienes ? - - tengo mucho sueño
-¿ qué tienes ? - - nada
+qué tienes ? - tengo mucho sueño
+¿ qué tienes ? - nada
 ¿ ciál de estas tres cosas te gusta más : ser religiosa , o tener marido o ser soltera ?
 no me harías que me hiciera bueno , si pudieras
-¿ lo vas ha hacer ( que se haga ) nuevo ? - - no
+¿ lo vas ha hacer ( que se haga ) nuevo ? - no
 hacer feliz , dar contento , bienestar
 de nuevo harás feliz pues es tu esposa
 si hay ( allí ) templo tarahumar ; en muchas partes los hay
@@ -12168,10 +10936,10 @@ arroyo abajo ¿ hay sal ?
 ojalá que haya muchos piojos
 abusamos mucho haciendo tesguino , como si no hubiera agua
 dice que no hay
-y Dios ¿ fue creado ? - - no , él existe por sí mismo
+y Dios ¿ fue creado ? - no , él existe por sí mismo
 es de aquí
 quiero pescado de lata ( LIT . de los que son de bote )
-¿ de dónde los trajeron ( estas cosas ) ? - - son de Chihuahua
+¿ de dónde los trajeron ( estas cosas ) ? - son de Chihuahua
 sean bien dóciles
 sean hijos de buen padre , sean buenos cristianos
 uno me dijo que me iba a embrujar , pero no tengo miedo
@@ -12181,7 +10949,7 @@ este todos los días viene a acabarse la comida ; entonces los niños no se llen
 por ejemplo , si ustedes no pueden ( cooperar con trabajo ) , den bastimento ( a los trabajadores )
 iré a trabajar por la otra semana , es que todavía no tengo bastimento
 vendré bien provisto de bastimento ( LIT . teniendo mucho bastimento )
-¿ no te vienes ahora a caballo ? - - me i´re después a pie ; al fin que no llevo bastimento ( es decir : ninguna carga que me estorbe )
+¿ no te vienes ahora a caballo ? - me i´re después a pie ; al fin que no llevo bastimento ( es decir : ninguna carga que me estorbe )
 Carlos se fue con bastimento ; se lo hicieron por la mañana
 no traigo nada de bastimento , cómo de limosna
 Carlos llevó bastimento , ( le ) hicieron bastimento por la mañana
@@ -12191,7 +10959,7 @@ este es el mío ( LIT . de mí ) , este el tuyo
 ¿ de quién es este huarache ?
 ese hombre parece es muy rico
 esos ( los witaru ) se dice que son a modo de hombres poseedores de cosas cuantas no las hay en ninguna parte aquí en la tierra
-véndeme esto . - - no , que no es mío ( LIT . no lo poseo yo )
+véndeme esto . - no , que no es mío ( LIT . no lo poseo yo )
 no tengo dinero
 si hubiese trabajado , tendría dinero
 si tuviese maíz , si te daría
@@ -12199,12 +10967,12 @@ si yo fuera casado . . .
 esos que no se casan , que andan así no más
 mi mamá me regaló carne
 sí , ofrezcámosle comida al que vive arriba ( Dios ) , él nos dará alimento a nosotros
-¿ es casado ya ? - - ya
+¿ es casado ya ? - ya
 tú eres casado ; si se hubiera muerto tu esposa , hubiera estado bien volver a tomar mujer ; los dos se tienen miedo
 si yo fuera casado . . .
 algunos no quieren casarse
 ¿ qué tan lejanos ( en parentesco ) sí pueden casarse ?
-Jose Murillo ya se casó ? - - con quién ? ( LIT . con una que se llama cómo ? )
+Jose Murillo ya se casó ? - con quién ? ( LIT . con una que se llama cómo ? )
 ya brilló el rayo , ahora sonará el trueno
 parece que va a llover , ya van sonando los relámpagos ( es decir : nrillan los rayos y suenan los truenos )
 se los van a hacer los muchachos
@@ -12212,7 +10980,7 @@ se los van a hacer los muchachos
 los hicieron para nosotros
 ¿ no hay otro que se vaya a casar ? ( otro casadero )
 y entonces ¿ qué vas a hacer ? de limosna tendrás que conseguir el maíz para comer
-¿ a dónde vas ? - - voy a Okochichi buscando maíz
+¿ a dónde vas ? - voy a Okochichi buscando maíz
 tengo nostalgia ; yo me voy a volver a mi casa
 sólo de vez en cuando me da tristeza ( nostalgia )
 después me entró la nostalgia
@@ -12221,10 +10989,10 @@ es que esa pieza ( de música ) siempre me trae nostalgia
 ahora no tengo ganas de trabajar , es mucha nostalgia
 ya me entró tristeza ( nostalgia )
 ustedes los que se van casar , ustedes mismos siéntense cerca
-¿ quién me hace una cobija ? - - yo te la hago
+¿ quién me hace una cobija ? - yo te la hago
 hazme un escrito en nombre mío , para defenderme
 ¿ no casas a un muchacho ? viven así no más , pero ya quieren casarse
-¡ qué bonito cintila esa estrella ! - - preciosamente
+¡ qué bonito cintila esa estrella ! - preciosamente
 no cogí ( con la mano ) el pescado , se escapó
 y luego que lo echaron al fogón , huyó , se escapó del fogón
 ¡ se escapó ! se trozó la soga !
@@ -12236,7 +11004,7 @@ pero una vez el hermano mayor sintió grande ansia de ganar
 el compra con mucha ventaja
 parece que ya lo cogieron , pero dicen que se volvió a escapar
 es mi hijo
-¿ a quién se lo diste ? - - pues a Valente , tu hijo
+¿ a quién se lo diste ? - pues a Valente , tu hijo
 hijos varones
 tener hijo varón
 ser hijo varón
@@ -12250,11 +11018,11 @@ me siento muy hombre ( ufano )
 no le vuelvan a tocar su tierra a esa mujer ; ya déjenla en paz ( LIT . háganla descansar )
 por poco no lo encuentro
 por poco se cae
-por poco me caigo - - ¿ es que se movió la piedra ? - - no ; me resbalé
+por poco me caigo - ¿ es que se movió la piedra ? - no ; me resbalé
 así no se moverán
 ¡ estate quieto !
 ya se están moviendo
-por poco me caigo - - ¿ es que se movió la piedra ? - - no ; me resbalé
+por poco me caigo - ¿ es que se movió la piedra ? - no ; me resbalé
 ( siento ) como que se mueve el pino al tocarlo ( cogerlo )
 la estrella se movía , como llamando a los Magos
 mueve la pierna así
@@ -12265,7 +11033,7 @@ no es por virtud nuestra por lo que vivimos aquí sobre la tierra
 no me muevas
 ya lo van moviendo
 ¿ cómo saldría el sol si no existiese Dios ? ¿ quién lo movería ?
-¿ bailarán hoy ? - - quién sabe qué hagan ! …creo que no . . . Quién sabe !
+¿ bailarán hoy ? - quién sabe qué hagan ! …creo que no . . . Quién sabe !
 ¿ qué vamos a hacer ?
 a ver qué tan hombre ( LIT . machos ) son los que hacen eso , dijo
 algunos tarahumares hacen eso
@@ -12285,14 +11053,14 @@ hay que dejar ese proceder
 Dios aborrece ese comportamiento
 así han hecho
 voy a ver allá ( aquello )
-déjalo . - - no más lo estoy mirando
+déjalo . - no más lo estoy mirando
 los blancos van a ver a los muchachos ; var a ser contemplados los tarahumares
-¿ qué , no las viste en días pasados ? - - aún no .
+¿ qué , no las viste en días pasados ? - aún no .
 yo quiero sal
-¿ quién ? ¿ el hijo ? - - no : la nuera
+¿ quién ? ¿ el hijo ? - no : la nuera
 mi hijo , el que yo engendré ( LIT . mi parto )
 el hijo de Ventura era ( hermano ) mayor
-¿ de dónde traen ( son traídas ) estas cosas ? - - las traen de Chihuahua
+¿ de dónde traen ( son traídas ) estas cosas ? - las traen de Chihuahua
 ¡ qué mal hablas tú ! ¿ de dónde traen ustedes tales palabras ?
 ¿ de dónde pues , trajimos nuestra alma ? Tenemos un alma que es de arriba ( LIT . ¿ tenemos un alma que trajimos de dónde ? . . . )
 traje dos metros de manta
@@ -12306,13 +11074,13 @@ me da mucho escozor cuando está nublado
 no vamos a acertales a los pecados , está muy nublado
 esta nublado muy oscuro ( hay nubes muy negras )
 no sé yo en cuántos lugares estuviste . . . pero a ti sí te sé ( conozco )
-es que ustedes dijeron eso en una borrachera . - - pero en las borracheras no vale tanto ( lo que se diga )
+es que ustedes dijeron eso en una borrachera . - pero en las borracheras no vale tanto ( lo que se diga )
 pero el alma no muere
 pero no importa ; cueste lo que cueste estará bien
 ya maté mi res , sino que lo que me faltan son tortillas
 cierto que es una piedra ; pero , con todo , vuela , con todo , chilla muy fuerte
 llegamos hasta donde andaban las nubes , y no se veía nada
-¿ quién hizo las hubes ? - - ellas mismas se levantaron desde el agua
+¿ quién hizo las hubes ? - ellas mismas se levantaron desde el agua
 ya se va poniendo borroso , ya se va ensombreciendo , porque pasan ( andan ) las nubes
 llegará ( el papalote )
 y en la cumbre se divisa todo…todo alrededor se ve ; completamente en torno se divisa
@@ -12325,9 +11093,9 @@ no vino a convidarlos a beber
 el domingo que viene volveré ( LIT . vendré otra vez ) y volveremos a hablar
 parece que nadie vendrá ; es que no fue el correo ( LIT . el que va congragando , el que lleva los avisos de las reuniones )
 no vendría , si no me doliera tanto
-me engañaste ! - - pero te hice venir
+me engañaste ! - pero te hice venir
 ya se va opacando ( el ambiente ) ya se va ensombreciendo , porque paran las nubes , porque se van haciendo las nubes
-ya hace mucho sol ! - - luego se nublará
+ya hace mucho sol ! - luego se nublará
 Dios y los que viven abajo ( los demonios ) también pelean en la semana santa
 hace poquito tuvimos vacaciones ( LIT . descansamos ) , porque ya iba a llegar la semana santa ; también trabajamos en las siembras
 arréglame eso ( una linterna de mano ) ¿ no tienes el ojo ? ( el foco )
@@ -12349,11 +11117,11 @@ no tan lejos ; a las tres vueltas
 ya se oculta el sol , se fue por allá arriba tras los montes
 Fernando dice que también él va a Norogachi
 son norogachenses
-¿ a dónde se fue ? - - a Norogachi - - ¿ allá se fue ?
+¿ a dónde se fue ? - a Norogachi - ¿ allá se fue ?
 tengo muchísimas ganas de conocer Norogachi , porque nunca he ido allá
 hay arcos arriba
 pónganse aquí en rueda
-¿ quién es ese ? - - es ( uno ) de Noróachi
+¿ quién es ese ? - es ( uno ) de Noróachi
 la aguililla sube a lo alto girando ( en giros )
 ya se perdió de vista
 murió ( dobló el recodo ) con muchos ahijados ( LIT . habiendo bautizado muchos )
@@ -12362,7 +11130,7 @@ por poco te matan
 no desperdicies el café , que está my caro
 no se muere
 no quiero echarme a perder
-¿ dónde estuviste trabajando ? - - no trabajé , andaba viendo a un fulano
+¿ dónde estuviste trabajando ? - no trabajé , andaba viendo a un fulano
 en cuanto a mí , cierto que yo no me quedaré : ¿ Porque , qué me quedaria haciendo ? trabajando , pudiera ser
 trabajé mucho enterrando papas
 no les daremos comida a los que no hagan caso cuando les manden trabajar
@@ -12373,7 +11141,7 @@ trabajarle , trabajar para
 hacer trabajar , dar trabajo
 soler trabajar
 yo sí voy a tentar el papel
-¿ qué trabajo hay ahora ? - - solo de cuando en cuando
+¿ qué trabajo hay ahora ? - solo de cuando en cuando
 ando buscando trabajo
 no me interesa el dinero , me interesa el trabajo
 no es ningún problema echar un discurso en rarámuri
@@ -12402,7 +11170,7 @@ traer gusanos
 quitar los gusanos
 ya se agusanó el pinole
 ya ( te ) cuelga como gusano ! ( el moco de la naríz )
-¿ lloraste mucho cuando te clavaste la espina ? - - no tanto ; no más me quejé
+¿ lloraste mucho cuando te clavaste la espina ? - no tanto ; no más me quejé
 gime mucho
 gime mucho por lo duerte del dolor
 los dos dan órdenes : el capitán y el jefe de danza
@@ -12419,7 +11187,7 @@ Dios nos lo ordenó desde el principio
 allí abajo está el que te mandó ( hacer eso ) ese te hizo fornicar
 esta vez no nos mandan que hagamos
 quiero hacer una camisa ; se la voy a encargar a mi mamá
-¿ quién te encargó esa leña ? - - no me la encargó nadie ; la corté por mi cuenta
+¿ quién te encargó esa leña ? - no me la encargó nadie ; la corté por mi cuenta
 ¿ dónde esta Daniel ? Le ordené que me aguardara aquí
 te mandé que tatemaras elotes
 cuando tu me mandaste que le diera de beber al Pescado ( un caballo )
@@ -12427,20 +11195,20 @@ a ese le ordenan , le mandan que dance
 eso es mandamiento de Dios
 por eso , déjame que vaya ; luego vendré para llevar tus órdenes ; mañana vendré corriendo
 todavía no le comunicó las órdenes de la mujer que había venido del cielo
-qué desgracia ! No hay pinole ! - - si hay , yo guardé
+qué desgracia ! No hay pinole ! - si hay , yo guardé
 mi mamá guardó en reserva elotes asados
 estoy ahorrando , porque luego se ve uno muy apurado de dinero s lo malbarata así
 y otro ( cesto ) de lo que el difunto había guardado cuando todavía no le pasaba nada
 no te guardé atole
-no está Jorge ; ( le ) voy a guardar unas tunas . - - sí , guárdenselas
+no está Jorge ; ( le ) voy a guardar unas tunas . - sí , guárdenselas
 te voy a guardar un poco de pinole
-¿ qué medicina te aplicaste ? - - no me he curado ( LIT . no me curo )
+¿ qué medicina te aplicaste ? - no me he curado ( LIT . no me curo )
 ¿ cómo te curas ?
 las cabras lo lamen todo
 pero cumplan de verdad
 seamos sensatos
-¿ lo entendieron todo ? - - toditito lo entendimos
-¿ los tábanos qué eran ? ( antes de metamórfosis ) - - pues eran huevos
+¿ lo entendieron todo ? - toditito lo entendimos
+¿ los tábanos qué eran ? ( antes de metamórfosis ) - pues eran huevos
 es muy activa la hierba del zorrillo ; pero en los sentidos : con diarrea y vómitos ( purgante y vomitivo )
 ( es ) para cuando duelen los ojos y se enlegañan : medicina para los ojos
 ¿ quién lo descompuso ? ( LIT . lo hizo mal )
@@ -12453,7 +11221,7 @@ toditos
 ese tiene perros muy bravos
 ya se van haciendo bravos los cachorrillos ; se va poniend muy brava la chata , ladra mucho
 esos son de muy mal genio , son insoportabloes
-antes no eran bravos los perrillos , y ahora son muy bravos . - - es que Chilo los hizo bravos
+antes no eran bravos los perrillos , y ahora son muy bravos . - es que Chilo los hizo bravos
 son anchísimas las hojas
 pero toma los consejos de ahora en adelante
 de una vez por todas pongámonos a vivir en paz
@@ -12474,7 +11242,7 @@ hay muchos huesos en mitad de los relices
 no viven los huesos de ese
 vayánse chupando el hueso
 me iré reyendo el hueso
-y tu abuelo paterno ¿ cómo se llama ? - - no conozco a mi abuelo paterno
+y tu abuelo paterno ¿ cómo se llama ? - no conozco a mi abuelo paterno
 es cría de chapulín
 voy a perseguir y coger al chapulín
 nosotros los culpables de que el anciano ( Dios ) la haya atado ( la lluvia )
@@ -12484,18 +11252,18 @@ andaremos llorando , y la culpa la tendrán usted , las mujeres
 me quiere abofetear
 abofetéate a ti mismo
 me dio de puñetazos antes de que estuvieras tú
-me dio de puñetazos . - - en las nalgas . - - le di un puñetazo en la espalda
+me dio de puñetazos . - en las nalgas . - le di un puñetazo en la espalda
 ya se pegó la mosca
 se quedaron pegadas
 un día se le pegó una cola , y así se iba a ir cuando nos íbamos a rezar
 lo voy a pegar allí
 ya las pegaron bien
-no tengo con qué pegarlo . - - ¿ chaute ? - - ese ; ahora ya no hay , ya se secó ; en las aguas pasadas hubiera sido bueno
-eso duele mucho . - - ¿ qué ? - - la bofetada
+no tengo con qué pegarlo . - ¿ chaute ? - ese ; ahora ya no hay , ya se secó ; en las aguas pasadas hubiera sido bueno
+eso duele mucho . - ¿ qué ? - la bofetada
 ¿ quién los hizo llegar a sazón ?
 les curó toda enfermedad
 ese lo curó
-¿ vendes maíz ? - - aquí lo traigo , para que bendigas ( cures ) tú el maíz
+¿ vendes maíz ? - aquí lo traigo , para que bendigas ( cures ) tú el maíz
 voy a bendecir ( curar ) el frijol
 ya sazonaron bien las cañas , ya están bien maduras
 cuando hay hayan sazonado , estarán bien dulces las cañas
@@ -12505,15 +11273,15 @@ yo me marcho , están crudas las papas
 corcomeca ( ? ) : es curación para las ollas , para que no se rezumen , curándolas
 padre , cúrame ; me machuqué
 yo no voy a que me curen
-quiero petróleo , véndeme . - - ¿ para qué ? - - voy a curar ( lubricar ) mi rifle
+quiero petróleo , véndeme . - ¿ para qué ? - voy a curar ( lubricar ) mi rifle
 ya se oye que se levanta la lluvia
 se va elevando
 ya se levantó
 claro que voy a sembrar ; ya contraté algunos ( ayudantes )
 ya se levantaron ( subieron ) las nubes
-¿ y la enferma que fuiste a ver a Apajichi ? - - está malísima - ¿ parece que se aliviará ?
+¿ y la enferma que fuiste a ver a Apajichi ? - está malísima - ¿ parece que se aliviará ?
 mátala bien , porque va a resucitar
-muérete ! - - ya resucité
+muérete ! - ya resucité
 a ver , burro , levántala
 vamos a levantar ( tratar ) un asunto bien importante
 levanta ahora , no hay que desanimarse ; ya asentó
@@ -12528,15 +11296,15 @@ deja colgado mi sombrero
 ¿ dónde está el hoyo ? Yo soy muy certero ( tengo buena punteria )
 ¿ a qué le tirams ? ( apuntamos )
 ¿ a qué le atino ? ( ¿ a qué quieres que le dé ? )
-¡ qué bien salta ! - - le atina muy bien ( LIT . es muy certero )
+¡ qué bien salta ! - le atina muy bien ( LIT . es muy certero )
 mira qué atinado es Pedro !
-¿ le atinarás al pescuezo ? - - ! a que le voy a atinar !
+¿ le atinarás al pescuezo ? - ! a que le voy a atinar !
 parece que tengo buena puntería
-¿ a dónde le tiro yo ? - - quien sabe !
+¿ a dónde le tiro yo ? - quien sabe !
 ¿ qué , no le atinaremos ?
 tengo cinco ; quita , quedan tres ; quita dos ; queda uno ; quita uno , no queda nada
 cuando tenga tiempo , lo desgrano y te lo entrego ( el maíz )
-¿ a dónde mero tiraste ? - - tiré allí , mira - - tiraste desparramado . - - desparramado
+¿ a dónde mero tiraste ? - tiré allí , mira - tiraste desparramado . - desparramado
 te duele mucho la cabeza
 de todos modos voy a trabajar ; ¿ o mejor mañana ?
 ¿ o es que lo dijiste tú ?
@@ -12567,7 +11335,7 @@ llorarle
 enjugar las lágrimas
 enjugarle las lágrimas
 no demos dolor a Dios , no lo hagamos sangrar ; por qué ha de estar derramando lágrimas Dios ?
-me hizo moquear el chile . - - ¿ y también te sacó las lágrimas ?
+me hizo moquear el chile . - ¿ y también te sacó las lágrimas ?
 está lleno de pinos
 florecerán bien todas las semillitas
 tiene granitos en la garganta
@@ -12579,11 +11347,11 @@ un poco de frijol ( LIT . unos cuantos frijoles )
 busco un poco ( unos pocos ) de maíz
 le cayó un rayo al pino
 poniendo como poste un pino grande ( poniendo un poste grande de pino )
-¿ el bisonte ataca al hombre ? - - sí - - ¿ y si sube uno a un pino ?
+¿ el bisonte ataca al hombre ? - sí - ¿ y si sube uno a un pino ?
 me resguardaré de la lluvia debajo de un pino ( LIT . en un pino )
 cómetelo tú mismo
 tengo una sola hermana menor y dos hermanas mayores
-y las gentes de allí ¿ no te robarán alguna vez si pasan hambre ? - - no ; son hermanas mías mayores
+y las gentes de allí ¿ no te robarán alguna vez si pasan hambre ? - no ; son hermanas mías mayores
 ya hicieron morir a los perros chiquitos
 quiere enojárseme el perrillo
 ese tiene dos mujeres , es un perro
@@ -12598,7 +11366,7 @@ con dolor ; a nosotros se nos caen los dientes con dolor
 pronto ( al rato ) me va a doler
 poniéndose en la mano un cuero grande , un cuero blando , no duele al coger la pelota , poniéndole lana por dentro ( un guante de beisbolista )
 dice que te lo comas tú mismo
-y luego que ( el gigante ) se apodera de ellos , ¿ qué hace ? - - desaparecen los niños , se los come
+y luego que ( el gigante ) se apodera de ellos , ¿ qué hace ? - desaparecen los niños , se los come
 aquí tienes unos cuantos huevos ; para que los cuezan y se los coman
 mi hermano se comió el veneno
 ( me ) va a comer los pies
@@ -12631,7 +11399,7 @@ no causen dolor a su madre
 hecho tortilla no da dolor ( el peyotl )
 me dieron mucho dolor los rasguños ( LIT . rasguñándome )
 es pura gamuza , no duele nada
-¿ duele mucho eso ? - - ¿ qué ? - - la espina
+¿ duele mucho eso ? - ¿ qué ? - la espina
 el okowí es medio moteado ( como la variedad de gavilán llamada kirichí )
 el okowi dice " we orabo " y también " bo'wá kúmi " , poasado en las ramas ( indicando las palabras que sugiere su canto )
 eran dos lanzas añadidas
@@ -12641,17 +11409,17 @@ los dos
 en dos lugares
 dos veces
 segundo ( LIT . el dos )
-queda sólo un poco ( pocos granos ) de sal , toda tenrrosa . - - no le hace que sea poca ; me hace mucha falta
+queda sólo un poco ( pocos granos ) de sal , toda tenrrosa . - no le hace que sea poca ; me hace mucha falta
 traje un poco de maíz desgranado ( LIT . unos pocos : el tarahumar considera la cantidad de granos ; por eso dice pocos , donde nosotros decimos un poco de )
 dame muy poquitos , más pocos
 este viejo te ha dado unos pocos pensamientos ( consejos )
 está bien , ciertamente
-¿ no emborracha ? - - no , no tengas cuidado
-no ha nada . - - seguro que sí ; se metió aquí
+¿ no emborracha ? - no , no tengas cuidado
+no ha nada . - seguro que sí ; se metió aquí
 cierto que vendré con pinole ( trayendo pinole )
 en dos partes anduvo apagando ( el incendio )
 en dos lugares hicieron vivienda las hormiguitas
-¿ en cuántas partes sembraste ? - - en dos
+¿ en cuántas partes sembraste ? - en dos
 yo tengo dos cargos ; soy cacique y comisario ( de policia ) , ( wirimea )
 yo sé habla en dos lenguas
 yo sé ( hacer simultáneamente ) las dos cosas : comer y escuchar
@@ -12701,11 +11469,11 @@ cuando estaba ya delgado por los cortes del hacha , es decir , cuando estaba ade
 tengamos cuidado de todo nuestro mundo ; de verdad somos nosotros los pilares del mundo ( LIT . estamos apuntalando este mundo )
 ustedes nos impidieron hacer la fiesta
 sí iré a hacer la fiesta , de seguro
-porque el mes que viene hay que hacer la fiesta . - - sí , hay que hacer la celebración
+porque el mes que viene hay que hacer la fiesta . - sí , hay que hacer la celebración
 todos los años celbramos ( esa ) fiesta , en julio , cuando ya llueve
 ¿ hay danzas ( LIT . se danza ) cuando hay fiesta ?
 cerca de las piscas es ( LIT . pasará ) la fiesta ( de la Virgen ) del Pilar
-es la fiesta ( onomástico ) de Venancio el chico ; por eso le dieron pan . - - sí , por eso
+es la fiesta ( onomástico ) de Venancio el chico ; por eso le dieron pan . - sí , por eso
 es aquí en el pueblo donde hay que hacer las celebraciones
 ¿ es que vamos a dejar las fiestas ? ¿ es que vamos a dejar la asistencia a la misa ?
 porque ella , a la que hacemos fiesta hoy , ellá bajó allá donde le dicen México
@@ -12743,7 +11511,7 @@ da mucha pesadumbre hacer eso
 es que hay que hablar blandamente a sus nueras
 deseoso de mujeres , lujurioso
 las mujeres andaban desenterrando raíces , ( bulbos , p . ej . papas )
-voy a repartirles cigarros a las mujeres . - - repárteles pues
+voy a repartirles cigarros a las mujeres . - repárteles pues
 las mujeres de los rarámuri son muy recatadas
 voy a comprar cuatro reales ( 50 cvs ) de sal
 quiero mucha sal para sazonar la verdura
@@ -12756,7 +11524,7 @@ ese cura también las llagas ( una hierba )
 ¿ ese es tu papá ? ( LIT . ese padre tienes )
 ¿ cómo se llama tu papá ? ( LIT . ¿ de qué nombre tienes padre ? )
 ¡ mira ! dice que va a vivir aquí !
-suena a lluvia . - - vaya ! ya va llegando
+suena a lluvia . - vaya ! ya va llegando
 ese niño no tiene papá
 sean hijos de buen padre ; sean gente de bien ( LIT . buenos cristianos )
 no hay ( maíz ) desgranado ; le echaré mazorcas
@@ -12769,7 +11537,7 @@ si no tengo sal , ¿ qué te voy a vender ?
 no está permitido que pasemos la noche enojados
 quien gana es la ira
 me lo dijo mi papá
-¿ y ahora dónde vive el muchacho ? - - otra vez donde su papá
+¿ y ahora dónde vive el muchacho ? - otra vez donde su papá
 ser padre
 ( el que es ) padre ; Dios
 tener padre
@@ -12778,21 +11546,21 @@ padrino
 está muy irritado Patricio , me dio de bofetadas
 también yo hubiera ido a Nonoava !
 no quieran mal a quien vive en la casa de su padre ( de ustedes : a la esposa que vive en casa de su suegro ) ;
-¿ ahora donde vas estar ? - - otra vez en casa de mi papá .
+¿ ahora donde vas estar ? - otra vez en casa de mi papá .
 los muchachos lo andaban cogiendo
-¿ danzaron tutuguri río arriba ? - - quién sabe qué hayan echo . . . Yo no he ido río arriba ;
+¿ danzaron tutuguri río arriba ? - quién sabe qué hayan echo . . . Yo no he ido río arriba ;
 ¡ mira cómo están haciendo !
 hacen así ;
-¿ dónde cogiste los pescados ? - - donde hicimos presa ( donde represamos el arrollo : LIT . donde cerramos ) ;
-¿ dónde estaba ? - - donde las muchachas suelen lavar ropa ;
+¿ dónde cogiste los pescados ? - donde hicimos presa ( donde represamos el arrollo : LIT . donde cerramos ) ;
+¿ dónde estaba ? - donde las muchachas suelen lavar ropa ;
 limo : la tierra que suelen acarrear las aguas ;
 no más de Chihuahua los traen ;
-¿ cómo contaban los meses los tarahumares ? - - no más pensaban ( es decir : mentalmente )
-¿ quiénes son ? - - de Nonoava
+¿ cómo contaban los meses los tarahumares ? - no más pensaban ( es decir : mentalmente )
+¿ quiénes son ? - de Nonoava
 el papá lo mete en pretina ; ese lo hara entrar en razón
 el papá no es ese ; ( es ) aquél
 mi papá dice que si cortara ( leña )
-ve a preguntarle si su papá le dio permiso de ingresar aquí , - - dice que sí querra ; que él mismo lo mando ;
+ve a preguntarle si su papá le dio permiso de ingresar aquí , - dice que sí querra ; que él mismo lo mando ;
 ¿ es peor Rodrigo que su papá ?
 padrino es un hombre , si ha bautizado .
 dispénseme , padres y madres míos , ( palabras del cacique de Wawatzérare al terminar su discurso ) .
@@ -12816,7 +11584,7 @@ por la cara , parece muy bravo
 yo busco una mujer de las mejores , de las que no son de mal carácter
 no quiero ponerme bravo
 era muy agresivo el u'ribi ( monstruo legendario )
-hoy ando de muy mal genio . - - porque te quitaron un cobertor
+hoy ando de muy mal genio . - porque te quitaron un cobertor
 dicen que comio un kujúbiri ( variedad de saltamontes ) ; es muy bravo ese ( hace mucho daño )
 se pondrá furioso si le duele
 ya van haciendose bravos los perrillos , se va poniendo muy brava la Chata ( una perra ) , ladra mucho .
@@ -12844,11 +11612,11 @@ luego luego brinca uno , si no quiere recibir el golpe .
 no se llena el cesto
 luego luego se llenó el recipiente
 bueno , ¿ y haciéndolo brincar ? ( al caballo )
-¿ dónde esta Llaguno ? - - donde suele él acostarse ( en su dormitorio )
+¿ dónde esta Llaguno ? - donde suele él acostarse ( en su dormitorio )
 voy a estar ( acostado ) muy inquieto por falta de sueño ( LIT . sin ganas de dormir )
 Pedro está ( acostado ) chiflando !
 ¿ pues cómo estaba ? ( tendido el violín )
-¿ solías acostarte sola para dormir ? - - sola ; por eso se me acercó en la noche
+¿ solías acostarte sola para dormir ? - sola ; por eso se me acercó en la noche
 no puedo dormir ; no más dos vuelcos ( por la cama )
 estuve tendido enfermo ( estuve en cama )
 arranquen los quelites
@@ -12871,27 +11639,27 @@ qué es ?
 ¿ quién sabe a dónde se habrá ido ?
 probablemente ya te imaginas qué estoy pensando yo
 y Tranquilo ¿ qué hace ahora ?
-¿ no tiene ? - - ese sí tiene !
+¿ no tiene ? - ese sí tiene !
 ¡ que buen filo tiene el hacha !
-¿ está fuerte esta sal ? - - sí , esta bien fuerte
-¡ ya llueve ! ( LIT . ya van cayendo ( las gotas ) - - ya llueve , sí !
-ladrón ! - - ¡ te robé !
-no quieres ir , pues , - - no .
-¿ qué andas haciendo pues ? - - no más ando
+¿ está fuerte esta sal ? - sí , esta bien fuerte
+¡ ya llueve ! ( LIT . ya van cayendo ( las gotas ) - ya llueve , sí !
+ladrón ! - ¡ te robé !
+no quieres ir , pues , - no .
+¿ qué andas haciendo pues ? - no más ando
 ¿ por qué , pues , me guiñas el ojo ?
 ¿ y por qué andas buscando venaditos ? ¿ qué , eres muy malo tú ?
 pero el gigante no sabía por qué se sentía así ; pensaba que se había enfermado él mismo
-quién sabe qué haya hecho yo . . . No me di cuenta . - - ¡ cómo no habías de darte cuenta !
-¿ no te gustan las naranjas ? - - cómo no han de gustarme ! si son sabrosísimas
+quién sabe qué haya hecho yo . . . No me di cuenta . - ¡ cómo no habías de darte cuenta !
+¿ no te gustan las naranjas ? - cómo no han de gustarme ! si son sabrosísimas
 tengo cinco pesos
 tráela acá si no tiene filo , la vamos a afilar
-¿ cuándo vas a traer el maíz ? - - no más que acabe de desgranarlo , pasado mañana .
+¿ cuándo vas a traer el maíz ? - no más que acabe de desgranarlo , pasado mañana .
 ¡ qué mal te portas tú !
 tiene espolones
 la víbora de cascabel tiene dientes filosísimos
 préstame una navaja , pero de las filosas
 es muy enérgica la hierba - del - zorrillo ; pero en los dos sentidos ; con diarrea y vómitos ( como purgante y como vomitivo )
-¿ está buena ( la sal ) ? - - sí , está bien fuerte
+¿ está buena ( la sal ) ? - sí , está bien fuerte
 todavía no desgrano el maíz ; será dentro de una semana
 no hagamos nada pues
 ¿ qué hay que hacer ahora ?
@@ -12918,18 +11686,18 @@ hay que matar bien a ese , porque tiene dinero
 Nicolas tenia mucho parque
 dice que no tiene dinero
 dice que no tiene dinero
-¿ está bien buena la sal ? - - sí está bien fuerte
+¿ está bien buena la sal ? - sí está bien fuerte
 ¿ está bonita mi tarea ? ( mi obra )
 no está muy filosa el hacha , es que la afilé muy precipitadamente
-¿ tiene buen filo la navaja ? - - no parece muy filosa
+¿ tiene buen filo la navaja ? - no parece muy filosa
 menospreciaban ustedes la sangre de su padre , la sangre de su madre ( LIT . hacían miserable . . . )
 iba a pedirte uan soga para amarrar aquí el rastrojo
 iba a hablarte ( de ) algunos ( asuntos ) ; ( o , según el contexto : iba a hablarles a algunos )
-¿ a dónde pues se fue mi caballo ? ( LIT . mi animal ) . - - por el faldeo arrollo abajo hay huellas
+¿ a dónde pues se fue mi caballo ? ( LIT . mi animal ) . - por el faldeo arrollo abajo hay huellas
 no hay ninguna huella
 ¿ no tienes sal en grano ?
 frijol en grano
-¿ no compras maíz en mazorca ? - - en mazorca no ; lo quiero solo en grano
+¿ no compras maíz en mazorca ? - en mazorca no ; lo quiero solo en grano
 y también le manda ( el brujo ) exhalaciones
 no había huellas
 antes tenían la punta de obsidiana
@@ -12954,8 +11722,8 @@ nos molestan mucho ( LIT . se nos hace mucha molestia )
 Chilo ! Que desgranemos maíz !
 todavía no lo desgrano
 maíz desgranado
-¿ a cómo pagas el maíz en mazorca ? - - a tres pesos el decalitro . - - ¿ y desgranado ?
-¿ lo trajiste en mazorca ? ( el maíz ) - - ya está desgranado .
+¿ a cómo pagas el maíz en mazorca ? - a tres pesos el decalitro . - ¿ y desgranado ?
+¿ lo trajiste en mazorca ? ( el maíz ) - ya está desgranado .
 andamos aborreciéndonos entre nosotros mismos ; dejen ese modo de proceder
 algunos andan arrancando elotes ; dejemos ese comportamiento
 eso será una ofensa ( una acción ofensiva )
@@ -12966,7 +11734,7 @@ no ; pero así se les hace a los animales del monte
 para eso
 no sirve para nada
 ¿ para qué tan largo hablar ?
-¿ para eso es ese rifle ? - - para eso es
+¿ para eso es ese rifle ? - para eso es
 dice que no tiene dinero
 dice que no tiene
 ¿ son collares de mujer ?
@@ -12982,7 +11750,7 @@ ya comí mucho
 sí pasará bien , bebiéndola con mucha agua
 ¿ de a cuántas ( hojas ) escribes ?
 escribe bien otra vez
-dijo que dos veces . - - yo ya eché dos viajes ( LIT . dos veces eché viaje )
+dijo que dos veces . - yo ya eché dos viajes ( LIT . dos veces eché viaje )
 por dos veces estuve a punto de muerte , ( LIT . meramente me morí )
 a mi me pegaron dos veces
 ocho ( LIT . dos veces cuatro )
@@ -13007,7 +11775,7 @@ parecía que este lo había escrito
 ponle el nombre de José Ramírez
 tíramelas
 échales rastrojo
-¿ cómo bordaste la faja ? - - pues bordándola
+¿ cómo bordaste la faja ? - pues bordándola
 ya he bordado cobijas muchas veces
 yo no sé bordar
 escríbeles a algunos que todavía conozcas
@@ -13017,7 +11785,7 @@ te he escrito , porque me clavé ( un pie ) cuando se quemó la casa
 ¡ las habas , pues !
 ahora te voy a poner ( LIT . verter ) unas cuantas palabras en este papel
 no lo anotaste ( LIT . no lo tendiste en el papel )
-ve la carta , - - trae acá pues , - - voy por ella ( LIT . enseguida la traigo )
+ve la carta , - trae acá pues , - voy por ella ( LIT . enseguida la traigo )
 hazme un escrito ; se lo voy a llevar al grande ( al Gobernador ) para defender mi tierra
 estarás tú aguardando mi carta
 ¿ no tienes un papel ? quiero envolver esto
@@ -13030,7 +11798,7 @@ escríbeme un papel ( hazme un documento )
 ¿ a quién le vas a escribir ?
 así pues , vuelvo a escribirte , porque hace ya mucho tiempo que no te escribo .
 me lo escribió en este papel
-dibújamelo pues . - - dibújamelo también a mí .
+dibújamelo pues . - dibújamelo también a mí .
 vete , yo ya no más estoy perdiendo
 y yo misma accarreo la leña , a pesar de tener hijos
 dice que hizo tres días
@@ -13042,7 +11810,7 @@ durante veinte días no haré nada con mi mujer
 ¿ qué vas a hacer en Narárachi ?
 ¿ le enseñaste ?
 y también por poco me corta con un hacha
-¿ no la vuelves a llenar ? ( de tinta , la pluma fuente ) . - - ahora no , hasta que vaya a escribir
+¿ no la vuelves a llenar ? ( de tinta , la pluma fuente ) . - ahora no , hasta que vaya a escribir
 si me hubiera dado un puñetazo , no escribiría bien
 yo tenía muchas ganas de escribir muchas hojas
 yo pensaba que tú habías escrito aquí
@@ -13087,7 +11855,7 @@ esa mujer ha largado a muchos ; no son pocos a los que ha largado
 tú mismo di cuánto debe soltar ( pagar ) este ; y la muchacha también , cuánto ha de soltar
 nosotros los tarahumares estamos bien abandonados ( LIT . se nos suelta , se nos tira , se nos desecha )
 tan hondo así está ( el río ) , cuando la piedra sobresale ya un poco ( del agua )
-¡ quá lástima ! ¡ ya está el sol ! - - luego se va a nublar
+¡ quá lástima ! ¡ ya está el sol ! - luego se va a nublar
 algunas gallinas ponen cada tercer día
 mandan decir que maten reces viejas y cabras y gallos viejos también
 yo creía que el padre estaba colgado
@@ -13103,7 +11871,7 @@ crecer , envejecer
 hacer crecer
 se le atoró un hueso al lobo al roerlo
 hay algunas que ya tienen hijos grandes ( sin bautizar )
-¿ son viejos ya ? ( unos huevos ) - - no , son recién puestos
+¿ son viejos ya ? ( unos huevos ) - no , son recién puestos
 así dice este viejo
 en tiempos antiguos también habitaban aquí en la tierra algunas gentes ; así dicen algunos ancianos
 nosotros ya hemos envejecido largamente
@@ -13130,7 +11898,7 @@ dice que estaba curando a un enfermo
 dijiste que me ibas a curar
 no quiero que me curen
 mejor con la mano izquierda
-¿ por dónde está el camino de Sogichi ? - - por la izquierda
+¿ por dónde está el camino de Sogichi ? - por la izquierda
 yo tengo dos grandes
 sí hay muchas cuevas , porque hay ( se levantan ) muchos peñones enormes
 son grandes , ovaladas ( las huellas )
@@ -13149,7 +11917,7 @@ sólo Dios es macho ( poderoso )
 del brujo ,
 solamente el medico sabe sacarlas de nuevo ; soñando va tras ellas .
 Si fue a llamar al curandero para que lo curara , pero ya no faltaba nada para que perdiera el conocimiento
-¿ cómo se llama la otra ? - - la . . . la hija del culrandero ?
+¿ cómo se llama la otra ? - la . . . la hija del culrandero ?
 ¿ como se llama el médico que hay ahora en Riwirichi ?
 quiero un remedio ; no me siento nada bien .
 muy listo el cuervo , se las sospecha todas , nunca le pegan
@@ -13159,10 +11927,10 @@ hacen la curación vertiéndolo en un cajete ; se trata del jugo del maguey , qu
 y también está dando dos litros por cabeza
 si pierde el sentido , se va a enfurecer
 él nos reúne todos los domingos
-uno de los jefes no se porta muy bien - - ¿ cual ? - - Gabino ; trató muy mal a una mujer , " lárgate de aquí " le dijo .
+uno de los jefes no se porta muy bien - ¿ cual ? - Gabino ; trató muy mal a una mujer , " lárgate de aquí " le dijo .
 ! cuidado ! que lo vas a hacer enojar !
 dos
-¿ por qué llora ( está abatido ) ese hombre ? - - porque uno se enojó con él .
+¿ por qué llora ( está abatido ) ese hombre ? - porque uno se enojó con él .
 ya estoy satisfecho
 vamos pues , enjuágenlos
 echate la leña a la espalda
@@ -13179,11 +11947,11 @@ no quiero entregarle mi siembra
 las reses se metieron en mi siembra
 en algunas partes ya jilotea ( comeinza a frutar el maíz ) .
 probablemente ya van brotando los elotes en algunas partes ;
-no me haces tamales de elote ? - - no tengo elotes ;
+no me haces tamales de elote ? - no tengo elotes ;
 mira , está enjarrando
 no te recargues en esa pared
 voy a parchar ( lo ) el dinero
-¿ porqué le llaman ? - - pues porque gotea el agua .
+¿ porqué le llaman ? - pues porque gotea el agua .
 viértelo gota a gota
 vamos a hacer el pozo aquí , mana muy bien el agua .
 esto le dije a Marcelina , que hiciera el pinole cirniéndolo para que no pasara el tamo
@@ -13211,7 +11979,7 @@ del otro lado andan corriendo los muchachos ; por arriba , mira !
 vamos mejor arriba
 allí arribita , más arriba va
 no te dejaré ir arribita
-allí arribita andaba hace rato . - - ¿ dónde arribita ?
+allí arribita andaba hace rato . - ¿ dónde arribita ?
 dame pan
 sí se le hincharon las plantas de los pies
 le dieron a comer patol con el cocido de carne ; le pegaron con una frazada y le tiraron con bolas de lana .
@@ -13222,7 +11990,7 @@ decían que lo trajo Clemente
 ¿ por qué me tiraste piedras esta mañana ?
 ¿ y tú , pues , no le tiras ?
 préstame una soga , luego te la vuelvo a traer .
-¿ a qué le vas a echar esa hierba ? - - a los marranos
+¿ a qué le vas a echar esa hierba ? - a los marranos
 dice el vidente que Dios nos va a echar un dolor de pecho ; que maten reses blancas
 yo no sé . echarle la montura al caballo ; échamela tú
 le tiró al sombrero
@@ -13232,11 +12000,11 @@ rémojamelo allí
 los quelites se remojan para cocerse , remojandolos así en el agua ; ustedes no remojaron los quelites para cocerlos ; se nos estropean los dientes si no se remojan
 remójalo bien en agua caliente
 ! cómo huele a zorrillo !
-¿ que suena ? - - suena que arrastran postes
+¿ que suena ? - suena que arrastran postes
 si caen goteras , se va a podrir el maíz
 lo tiraré yo
-¿ y si bebiera veneno ? - - se moriría
-¿ es veneno el maguey ? - - no ; es mata - pescados , para enloquecerlos
+¿ y si bebiera veneno ? - se moriría
+¿ es veneno el maguey ? - no ; es mata - pescados , para enloquecerlos
 mi hermano se comió el veneno
 le puse veneno
 me empujó y me hizo tirarlo
@@ -13261,20 +12029,20 @@ lo metí ahí dentro
 y mi aliento también se fatiga mucho en mi interior por tanto hablar
 yo quiero la que está más adentro
 adentro casi no se ve , pero más adentro no se ve absolutamente nada .
-¿ dónde está el padre ? - - se metió adentro . - ¿ dónde adentro ? - - adentro , al dormitorio .
+¿ dónde está el padre ? - se metió adentro . - ¿ dónde adentro ? - adentro , al dormitorio .
 ¿ no me das pues ?
 ¿ cuándo , pues vas a acabar ?
 declara pronto ; ¿ que te han de hacer , pues , si declaras ?
 ! caray ! qué cansancio !
 te lo entregaré , pues , luego que lo desgrane
-¿ cuándo le escribes a tu papá ? - - si ya le escribí en días pasados
+¿ cuándo le escribes a tu papá ? - si ya le escribí en días pasados
 hasta la tarde
 bueno , adiós ; hasta mañana
 hasta pronto , hasta dentro de un rato
 hasta dentro de cinco años
 ¿ no lo llamaste pues ?
-¿ y por qué buscas tus venaditos ? ¿ es que eres muy malo ? - - no ; sino que para eso son los animales del monte
-¿ ya le vino ? - - ya ; en días pasados , hace casi dos semanas
+¿ y por qué buscas tus venaditos ? ¿ es que eres muy malo ? - no ; sino que para eso son los animales del monte
+¿ ya le vino ? - ya ; en días pasados , hace casi dos semanas
 ¿ es que no tienen ustedes un yerno ? consíganse pronto uno , para que les cuide el ganado
 ahora no voy a decirles muchas cosas ; es que ustedes no saben oír .
 dicen que los de pa'wichíki hacen carreras .
@@ -13283,10 +12051,10 @@ dice que vayamos a batir pinole allí abajito , al pozo
 saqué el agua del pozo
 el payóchari son frijoles ablandados ( majados ) , y la carne también
 el payóchari son bolas de frijol ; la carne es payóchari
-¿ qué tan lejos ? ¿ cómo Riwirichi ? - - no tanto
-¿ vas a llorar ? - - no lloraré ( ! qué voy a llorar ! )
-¿ todavía no comen ustedes ? - - no
-¿ has ido tú a Sogichi ? - - no
+¿ qué tan lejos ? ¿ cómo Riwirichi ? - no tanto
+¿ vas a llorar ? - no lloraré ( ! qué voy a llorar ! )
+¿ todavía no comen ustedes ? - no
+¿ has ido tú a Sogichi ? - no
 ¿ no hay cigarros aquí ?
 ¿ no tienes un papel para envolver ( llevar ) esto ?
 ¿ no hay manta ?
@@ -13297,18 +12065,18 @@ si me duele , un poquito
 pronto , por la tarde
 luego nos vemos , a la tarde
 por eso soy medio pariente
-¿ y lloraste ? - - no más me quejé
+¿ y lloraste ? - no más me quejé
 no es que se haya hinchado ; no más le duele por dentro el cuerpo
 no le hablé , no más lo vi de lejos
 sí lo sé bien , sólo que no quiero decir
 en cambio , aquí , donde sólo tarahumares viven , no es tan agradable ; porque yo ya me acostumbre a las grandes poblaciones .
 lo escondió Valerio ; mira cómo está aguantando la risa
 el quelite no es picante , es agarroso
-¿ cómo te llamas ? - - me dicen Quirino
+¿ cómo te llamas ? - me dicen Quirino
 una como máquina se iba para abajo haciendo así , mordiendo donde estaban las piedras
-¿ que fuiste a hacer ? - - fui a bautizar
-¿ son tuyos estos cestos ? - - no ; parece que son de aquí
-¿ te duele ? - - un poco
+¿ que fuiste a hacer ? - fui a bautizar
+¿ son tuyos estos cestos ? - no ; parece que son de aquí
+¿ te duele ? - un poco
 llovió un poco y también nevó ; hacía mucho frío
 ya estoy algo cansado de la mano
 tú pusiste la cama de otro modo
@@ -13322,10 +12090,10 @@ denles de a tres
 voy a pulir , a dar acabado
 ¿ dónde hago mi tendido ? ( para dormir )
 ¿ la alfombraremos toda ? ( todo el piso del templo , con barba de pino )
-¿ ya tendiste ? - - ya tendí ( para dormir ) SIN perama
+¿ ya tendiste ? - ya tendí ( para dormir ) SIN perama
 han llegado pocos
 estera de palma , petate
-¿ ya tendiste ? - - ya tendí ( hice mi tendido para dormir )
+¿ ya tendiste ? - ya tendí ( hice mi tendido para dormir )
 Esperanza es sobrina menor de Saturnino ; es hija de la hermana menor de Saturnino
 si fuese verdad , Dios hubiera hecho morir a toda la gente ; por eso yo no lo creo , porque aún vivimos nosotros los tarahumares .
 mujé a ver , ensíllalo tú
@@ -13346,7 +12114,7 @@ a un lado de la casa hay peña lisa
 quiero un peso de sal
 yo compré cinco pesos de manta
 ¿ cuántos me das por un peso ?
-y tú ¿ cuántos ? - - un peso también
+y tú ¿ cuántos ? - un peso también
 dice que todavía la van a desollar
 ya desollaron la res ; deshojar , quitar las hojas de elote
 estaba tendido
@@ -13354,17 +12122,17 @@ así no vas a poder levantarlo
 es que tú no sabes por qué me sentía tan feliz : es que yo soy de allí
 es que no sé decir
 no tengo rastrojo
-¿ ya ensillaron el caballo ? - - no
+¿ ya ensillaron el caballo ? - no
 todavía no , tampoco
 no me espiné nada
-¿ ya salieron los muchachos ? - - todavía no han salido
+¿ ya salieron los muchachos ? - todavía no han salido
 no , si no duele !
 dice que no , que no se revolvieron
-te vas a enfermar - - no , que va !
-¿ está bien decir eso ? - - de ninguna manera está bien
+te vas a enfermar - no , que va !
+¿ está bien decir eso ? - de ninguna manera está bien
 ese no más dice ( son puras mentiras )
 tú estás bromeando !
-yo maté un venado ! - - ! mentiroso !
+yo maté un venado ! - ! mentiroso !
 yo creía que no más se estaba haciendo ( que estaba fingiendo )
 ! tú no más haces que haces ! ( finges hacer )
 a ver si
@@ -13382,28 +12150,28 @@ míralo ! tan fachoso fumando - sí
 yo no sé fumar
 me voy a ir fumando por el camino
 toma , para que enciendas y fumes
-cigarros - - te daré una sola ( cajetilla ) - - dos , que me los acabaré en seguida
+cigarros - te daré una sola ( cajetilla ) - dos , que me los acabaré en seguida
 ¿ no se han acabado los cigarros ?
 quiero cigarros , y también cerillos
 sal en grano
 monedas , dinero en monedas
-¿ no vas a dar de fumar a los indios ? - - es que ahora no traje
+¿ no vas a dar de fumar a los indios ? - es que ahora no traje
 dame de fumar
-¿ para qué quieres los cigarros ? ¿ que harás con los cigarros ? - - - le fumaré a mi corazón
+¿ para qué quieres los cigarros ? ¿ que harás con los cigarros ? - le fumaré a mi corazón
 sólo en una que otra encina blanca se encuentra la yesca
 unos cuantos LIT algunos tan sólo
 no más uno
 no más cuatro
 sólo cinco
-¿ cogiste con la mano cinco pescados ? - - no más cinco , ya ves
+¿ cogiste con la mano cinco pescados ? - no más cinco , ya ves
 somos dos lavanderas para una sola cobija
 hasta allí no más
 dame no más tantos así
-en Creel no está tan caro . - - no tanto , sí
-¿ a qué horas llegaste ? - - hace ratito LIT sólo un rato
+en Creel no está tan caro . - no tanto , sí
+¿ a qué horas llegaste ? - hace ratito LIT sólo un rato
 yo me caí sólo una vez
 cada uno , a cada uno , de uno en uno
-¿ cuántas tortillas llevamos ? - - doce para cada uno
+¿ cuántas tortillas llevamos ? - doce para cada uno
 ! un matalote grande ! vamos a bucearlo !
 voy a bucear un pez - picudo
 yo sé muy bien nadar bajo el agua ; aguanto mucho
@@ -13411,13 +12179,13 @@ nosotros dijimos pichicho ; ¿ o cómo ( debe ser ) ?
 pichicho es el papá
 ¿ todavía no acabas de barrer ?
 ¿ cómo se barre aquí ?
-¿ ya barrieron adentro ? - - creo que ya ; ¿ aún no acaban ?
+¿ ya barrieron adentro ? - creo que ya ; ¿ aún no acaban ?
 ocúpense en barrer
 sí es fiestero
 tengo mucho quehacer allá en mi rancho , soy fiestero
 Pilar se marcha por que quiere ( no la despacha su marido ) no permanece en su hogar
 ¿ qué les dieron a ustedes ?
-¿ a qué le vas a echar esa hierba ? - - a los marrones
+¿ a qué le vas a echar esa hierba ? - a los marrones
 ¿ pero qué haces ? estás perdiendo tu trabajo ; en seguida se volverá a trozar
 ¿ qué ?
 ¿ qué crees que está tronando ?
@@ -13427,12 +12195,12 @@ Pilar se marcha por que quiere ( no la despacha su marido ) no permanece en su h
 ¿ para qué voy ?
 ¿ para qué vamos ?
 ¿ con qué ?
-¿ con qué se hacen las cobijas ? - - con lana hilada
-¿ con qué lo hiciste ? con navaja ? - - con navaja
+¿ con qué se hacen las cobijas ? - con lana hilada
+¿ con qué lo hiciste ? con navaja ? - con navaja
 ¿ por qué ?
-me duele mucho la cabeza - - ¿ por qué ?
+me duele mucho la cabeza - ¿ por qué ?
 ¿ por qué te he de pagar ?
-habrás hecho mucho tesgúino . - - sí habrá hecho mucho alguien
+habrás hecho mucho tesgúino . - sí habrá hecho mucho alguien
 seguro que aprenderá en poco tiempo
 si te darán dulces
 ¿ de qué es este ( arco ) ? ¿ de mora ?
@@ -13447,7 +12215,7 @@ yo traeré
 nosotros trajímos
 traeríamos
 hubiéramos traído
-¿ vamos por los caballos ? - - sí
+¿ vamos por los caballos ? - sí
 vayan por los caballos
 traigan otro ( otra cajetilla de ) cigarro
 si nos pagaran a siete ( el rastrojo ) , nosotros mismos lo traeríamos
@@ -13458,13 +12226,13 @@ lo que es muy amargo en la lengua , quemante , los rarámuri le dicen agarroso
 techo
 lo tapamos con la cobija
 dice que le va a arrancar las piernas
-¿ dónde vives ? - - en el mero pueblo
+¿ dónde vives ? - en el mero pueblo
 voy a andar por todos los pueblos
 y ya entrando a la ciudad , vimos una peña manante
 algunos gallos tienen cola corta
 este brinca muy lejos
-¿ cómo se oye ( suena ) el corazón ? - - está brincando
-una cerca alta ¿ se salta bien ? - - no
+¿ cómo se oye ( suena ) el corazón ? - está brincando
+una cerca alta ¿ se salta bien ? - no
 un leño saltó para acá ( hacia mi ) al estarlo hacheando
 ¿ cómo hay que saltar ?
 de ese modo no salta uno ( llevando el caballo a la andadura no va saltando uno en la silla )
@@ -13483,7 +12251,7 @@ destapar
 destaparlo
 hacer cubrir
 hacer cubrir
-vuelve a taparlo . - - ya lo tapé
+vuelve a taparlo . - ya lo tapé
 y también contamos todos los templos ; no los contamos absolutamente todos , porque los tapaban unas pequeñas tapias .
 ya se le cayó el pelo
 come ruidosamente el pan que se robó
@@ -13499,7 +12267,7 @@ también estos , los blancos , tienen alma
 nosotros hemos recibido el alma
 el cha'barí es un pez alto y plan , blanco , un poco moteado
 el pichicuate es una culebrita punteada de negro , de vientre blanco y cabeza puntiaguda ; se mete en el estómago ; vive en el agua
-véndeme la faja , está preciosa . - - ¿ y luego qué me fajo yo ?
+véndeme la faja , está preciosa . - ¿ y luego qué me fajo yo ?
 dicen que se faja muy bien
 ¿ no compras fajas ?
 ¿ tienes fajas ?
@@ -13511,27 +12279,27 @@ que arribita !
 es que dice que se enojó mucho
 si lloviere mucho , me mojaré
 lo hicieron por odio ( según parece )
-¿ donde lo pongo ? - - aquí
+¿ donde lo pongo ? - aquí
 ¿ es ese tu papá ?
 ¿ no habrá crecido mucho el río ?
 ¿ acaso . vamos a dejar nuetsras fiestas ? ¿ acaso vamos a dejar la asistencia a la misa ?
-¿ por qué no vinieron los caciques ? - - quién sabe ! andarán barbechando
-¿ cuándo acabarás ? - - quien sabe cuándo vaya a acabar !
-¿ por qué no me lo dijiste ? - - quién sabe por qué
+¿ por qué no vinieron los caciques ? - quién sabe ! andarán barbechando
+¿ cuándo acabarás ? - quien sabe cuándo vaya a acabar !
+¿ por qué no me lo dijiste ? - quién sabe por qué
 sí quería yo , sino que no me fue posible
 allí en el puerto se juntan ( los caminos )
-¿ cómo se llama aquí ? - - se llama El ( lugar del ) Roble - Encino
-¿ tienes pereza ? - - cierto que no tengo pereza
+¿ cómo se llama aquí ? - se llama El ( lugar del ) Roble - Encino
+¿ tienes pereza ? - cierto que no tengo pereza
 yo sí quería , pero no me dejaron
 yo quiero de los bonitos
 no , esos no ; los pequeños
-¿ por qué está tan rojo ? - - es la sangre
-me lo dio un muchacho - - ¿ qué muchacho ?
-¿ qué hacen ahora los indios ? - - ¿ cuales indios ?
-vivo traslomita - - ¿ dónde traslomita ? ( dónde precisamente ) - - río arriba , traslomita
-lo encontré yo - - ¿ dónde ? allí abajito ¿ dónde abajito ?
-hace rato me encontré con él allá en el arroyo - - ¿ en que arroyo ?
-¿ vas a irte muy lejos ? - - sí - - ¿ a dónde lejos ? dímelo pronto pues
+¿ por qué está tan rojo ? - es la sangre
+me lo dio un muchacho - ¿ qué muchacho ?
+¿ qué hacen ahora los indios ? - ¿ cuales indios ?
+vivo traslomita - ¿ dónde traslomita ? ( dónde precisamente ) - río arriba , traslomita
+lo encontré yo - ¿ dónde ? allí abajito ¿ dónde abajito ?
+hace rato me encontré con él allá en el arroyo - ¿ en que arroyo ?
+¿ vas a irte muy lejos ? - sí - ¿ a dónde lejos ? dímelo pronto pues
 mira , el sombrero del padre
 mira , ése es el cerro de Saparéachi
 ¿ de quién es esta cobija ?
@@ -13539,7 +12307,7 @@ era sangre de venado
 ¿ no sacas mi cara ? ( e . d . ¿ no me retratas ?
 esta es la pista de los corredores
 cinco centavos de piedras
-quiero un peso de sal - - ¿ y tú cuántos ? - - un peso también
+quiero un peso de sal - ¿ y tú cuántos ? - un peso también
 otros dos reales ( 25 cvs ) de sal
 ¿ a cómo están los cerillos ?
 ¿ cuántos reales cuesta ?
@@ -13563,14 +12331,14 @@ es que ese es muy chico
 parece
 Tranquilino está muy barbudo ; parece bagre
 no hacen ningún caso ; como si no fueran cristianos
-¿ qué , no hay un camino allá por la otra banda ? - - parece que sí
+¿ qué , no hay un camino allá por la otra banda ? - parece que sí
 por ejemplo
 flota : por ejemplo , un palo flota en el agua , no se hunde
 desafiar ; por ejemplo ( cuando ) uno solo habla mucho ( no deja hablar a otros )
 ( ofrendan ) por ejemplo , maíz bueno , no podrido , y otras clases de cosas que no estén podridas
 por la cara , parece muy bravo
 ¿ qué ? qué dices ? cómo dijiste ? de qué se trata ?
-¿ no vas también tú Nicolás ? - - ¿ cómo dijiste ?
+¿ no vas también tú Nicolás ? - ¿ cómo dijiste ?
 ! qué importa que no coma yo !
 ! qué le hace que le haya yo picado !
 ! qué importa que alguien se los lleve ! los voy a dejar allí .
@@ -13582,9 +12350,9 @@ qué te importa a ti ?
 creo que vendré el jueves trayendo maíz LIT el jueves tal vez . . . . . .
 no está bien así
 ¿ qué habrás comprado ? LIT qué tal vez compraste ?
-¿ te gusta ? - - quién sabe !
+¿ te gusta ? - quién sabe !
 quién sabe a dónde se habrá ido
-¿ se fueron ya los arrieros ? - - quién sabe si se hayan ido , yo no sé
+¿ se fueron ya los arrieros ? - quién sabe si se hayan ido , yo no sé
 o puede ser que yo vaya allá ; al fin que no es lejos
 hoy , o mañana o pasado mañana
 él mismo se meterá ( en la cárcel ) , o tal vez lo meta yo
@@ -13613,14 +12381,14 @@ por Ojachichi
 como arando
 como cantando
 rodeando , por el rodeo
-¿ dónde te duele ? - - aquí
+¿ dónde te duele ? - aquí
 ¿ en qué lo llevo ?
 se fue por allá , eso dijo
 lo llevo en esto
 párense má acá
 por allá
 ¿ irán a beber mañana , o pasado mañana ?
-¿ cuándo aprendiste el camino ? - - hace muchísimo , ya hace diez años
+¿ cuándo aprendiste el camino ? - hace muchísimo , ya hace diez años
 allá por Ba'wichí , por Bapajichi ;
 voy a echar las reses por lugares parejos
 esas cosas se hacen durante las borracheras ; eso hacemos nosotros los tarahumares
@@ -13631,20 +12399,20 @@ de vez en cuando , de cuando en cuando , algunas veces
 alguna que otra vez se me olvida , entonces lo dejo
 alguna vez , tal vez dentro de un año
 los truenos se van oyendo por el rumbo de Ba'wichiki
-cuándo parece que se acabará el maíz ? - - quizás pasado mañana
+cuándo parece que se acabará el maíz ? - quizás pasado mañana
 sí vendrá alguien , un cacique , un subalterno
 ¿ cómo pues ?
 tú sí tienes miedo
 le dolía mucho
 me hace mucha falta
-¿ porqué cercaron ? - - pues quién sabe
-¿ de qué se enfermo ? - - quién sabe . . . . y también temblaban mucho
+¿ porqué cercaron ? - pues quién sabe
+¿ de qué se enfermo ? - quién sabe . . . . y también temblaban mucho
 se llenan pronto
 Choquita es cerca . luego luego llegue
 yo llegué tan chiquito como Vidal ; crecí rápido ¿ no ?
-quiero que veas un escrito - - trae acá , pues - - enseguida te lo traigo
+quiero que veas un escrito - trae acá , pues - enseguida te lo traigo
 por favor , si algún día vuelvo a pensarlo , tú hazme pensar bien
-llena esto , por favor - - ¿ lo lleno ? - - no con la mitad basta
+llena esto , por favor - ¿ lo lleno ? - no con la mitad basta
 este hombre de favor se acercó a nosotros para aconsejarnos ( LIT dándonos pensamientos )
 pero ¿ querrá ?
 dice que no , que no quiere
@@ -13681,10 +12449,10 @@ parece estár muy lindo
 parece que no ha de doler
 ¿ qué tengo que decir ?
 así pues , tenemos que juntarnos pronto
-¿ dejará de llover ? - - no parece que vaya a parar la lluvia
+¿ dejará de llover ? - no parece que vaya a parar la lluvia
 tú no tienes que hablar
 con todo , debías haberlo dejado
-no está muy caro ! - - y qué bueno está !
+no está muy caro ! - y qué bueno está !
 ese no sirve
 está muy malo ( escabroso el camino )
 no está bien así
@@ -13694,7 +12462,7 @@ no importa , aunque
 pero no importa
 aunque llueva
 quién sabe !
-¿ lloverá pronto ? - - quien sabe
+¿ lloverá pronto ? - quien sabe
 veamos si tiene sangre en el hocico ; tiene el hocico muy sangrado
 ¿ o no es así ?
 dice Fernando que también él va a Norogachi
@@ -13706,11 +12474,11 @@ el diablo nos hace fornicar
 ¿ cuándo ?
 entonces , en ese tiempo
 por la tarde
-¿ cuándo nació ? - - el veinte de febrero
-salí ( me puse en camino ) ayer . - - entonces saliste ?
+¿ cuándo nació ? - el veinte de febrero
+salí ( me puse en camino ) ayer . - entonces saliste ?
 llegaré ya atardecido
 quiero ver todas las cosas que veía antes , los montes que se alzan muy alto y los peñones
-mejor tú , José . - - mejor no
+mejor tú , José . - mejor no
 más bien por acá parece que sí se puede .
 ¿ dónde ( es donde ) están los agujeros ? yo tengo muy buen tino
 seré yo quien responda por ti LIT seré yo quien reciba el golpe por ti
@@ -13732,20 +12500,20 @@ agitar los brazos
 mover la cola
 hacer selas con los ojos
 mover la lengua
-le tienen mucho miedo . - - mucho !
-¿ cuánto debes ? - - nada
+le tienen mucho miedo . - mucho !
+¿ cuánto debes ? - nada
 dijiste que hoy nos contarías el . . . este . . . " el chivo "
 pero dame algún chiclecillo
 en días pasados pegó aquí ( el granizo )
 di tú , Tranquilino
-¿ cómo se llama la otra ? - - la . . . . . digo . . . . . la hija del curandero ?
+¿ cómo se llama la otra ? - la . . . . . digo . . . . . la hija del curandero ?
 ¿ cómo se canta el . . . . este . . . . . " el cobija - lanuda " ?
 ¿ cuándo vamos a comer ? dentro de cuatro años ?
-¿ se casaron ya ? - - sí , ya se casaron
+¿ se casaron ya ? - sí , ya se casaron
 corre ( la estrella fugaz ) como prendiendo lumbre
-sí está gordito - - bastante
+sí está gordito - bastante
 ya va a atardecer
-¿ lo sabías ya ? - - sí lo sabía
+¿ lo sabías ya ? - sí lo sabía
 se juntan ( los caminos ) allí en el puerto
 y a Bonifacio , ¿ lo invitaron a beber ?
 ¿ y cuarenta pesos , cuánto maíz será ?
@@ -13758,14 +12526,14 @@ dice que se vayan ustedes mañana ; que irán llevando un escritorio
 decían que Guadalupe iba a cantar ( el tutuguri )
 ¿ qué decían ?
 muchas manzanas en el arenal ; las acarreó el agua
-! qué hachas tan buenas ! - - las trajo el padre
+! qué hachas tan buenas ! - las trajo el padre
 traer nopales
 traer lumbre
 traer sal
 traer breñas , ramaje
 dice que se perdió
 vamos , mujeres ! que luego luego los llamen ( a los padrinos )
-¿ cuántos meses tiene ? - - dice que uno
+¿ cuántos meses tiene ? - dice que uno
 tengamos a nuestros hijos bien en pretina
 amonesten bien a sus hijos
 por eso los llamo al orden
@@ -13799,7 +12567,7 @@ ese está muy apretado
 apriétense ! están ustedes muy desparramados !
 me duele mucho , sobre todo después de comer ; siento una opresión que me sube LIT se aprieta para arriba
 ¿ qué sí duele mucho que lo amarren a uno apretado ?
-¿ qué tan doloroso será que lo aprieten a uno prensándolo ? - - mucho !
+¿ qué tan doloroso será que lo aprieten a uno prensándolo ? - mucho !
 pongan sus huellas ( digitales ) en el papel , oprimiendo bien ( LIT . pisen en el papel . . . )
 se dueño de ti mismo ( LIT . aprieta tu corazón )
 está muy apretada la tierra , tenemos que aflojarla ( LIT . levantarla )
@@ -13816,7 +12584,7 @@ no sabía yo el camino , no más iba ( al rumbo )
 los reyes no conocían el camino ; entonces , una estrella los guió
 ahora voy a aprender el camino de Sogichi
 ya había aprendido el camino desde pequeño
-¿ cuándo aprendiste el camino ? - - hace muchísimo , ya son diez años
+¿ cuándo aprendiste el camino ? - hace muchísimo , ya son diez años
 sí iré , no más aprendiendo el camino
 parece que vamos a comer sabroso
 es bien sabroso fumar
@@ -13827,15 +12595,15 @@ es sabrosísima la gomilla ; es como para morirse
 estaban bien sabrosas las habas
 será muy sabroso , comiendolo con tortilla
 está muy sabrosa la naranja
-me gusta mucho el chile con queso ; es como para morirme . ¿ porqué ? - - por el mucho gusto ; es para irse de espaldas
+me gusta mucho el chile con queso ; es como para morirme . ¿ porqué ? - por el mucho gusto ; es para irse de espaldas
 ¿ no te gusta el café
 me gusta muchísimo
-¿ cómo te voy a enseñar , desobedientismo ? - - pues haciéndome sentir sabroso ( pegandome )
+¿ cómo te voy a enseñar , desobedientismo ? - pues haciéndome sentir sabroso ( pegandome )
 con esto te voy a hacer que sientas sabroso
 siento muy alegre el corazón LIT . estoy muy contento en mi corazón
 comimos bien sabroso ; nos servían ( LIT . daban de comer ) muchas mujeres
 ese ( el batari ) nos hace que hablemos mal
-es que ese muchacho no habla . - - yo lo haré hablar
+es que ese muchacho no habla . - yo lo haré hablar
 habla fuerte , que no se oye !
 habrá que hablar ( tratar este asunto ) en común
 hablemos rectamente
@@ -13862,7 +12630,7 @@ echi es que esos siempre van de acuerdo ( LIT . llevan la misma palabra , la mis
 de Wawatzérare vino una noticia importante
 ¿ dónde dicen que sucedió eso ? ( LIT . esa palabra )
 de este tamaño es mi discurso ( he concluido )
-¿ que andabas haciendo ? - - andaba arreglando un asunto
+¿ que andabas haciendo ? - andaba arreglando un asunto
 así se enredan los asuntos
 ¿ no hay ahora nada que tratar ?
 vamos a levantar ( tratar ) ahora un negocio de suma importancia
@@ -13870,12 +12638,12 @@ si no quieres tú coger las palabras del de arriba . . . .
 en adelante ya casi vas a ir tomando las palabras de Dios
 ! éjele ! ya te hice hablar en castellano !
 no les hablé , no más los vi de lejos
-¿ ya le hablaste al médico ? - - es que yo no sé hablar ( castellano )
+¿ ya le hablaste al médico ? - es que yo no sé hablar ( castellano )
 cuando nos necesiten ( cuando seamos llamados a morir ) , no les hablará palabras hermosas Dios ( a los perversos )
 iba a hablarle ( de ) algunos ( asuntos )
 el curandero se pone a soñar cuando le han hablado
 mira ! que vamos a comer ! qué sabroso huele !
-ese es muy sabroso - - tráelo acá
+ese es muy sabroso - tráelo acá
 ¿ por qué no había de gustarme ? si es muy sabroso
 está ardiendo
 ya se carbonizo , ya no arde
@@ -13971,7 +12739,7 @@ no tengo en qué envolverlo
 ¿ hacemos que la gallina incube los huevos de la gansa ?
 mandaremos a algunos de los que viven cerca que lleven ( envuelto ) un poco ( de maíz )
 está muy arrugado el pañuelo !
-¿ dónde hay palmeras ? - - en los barrancos ; fuimos a las barrancas a traer la palma
+¿ dónde hay palmeras ? - en los barrancos ; fuimos a las barrancas a traer la palma
 la víspera del día de ramos
 ¿ cuántas semanas faltan para el día de ramos ? ( LIT . para que llevemos palmas )
 coge unas manzanas ; pruébalas .
@@ -14001,14 +12769,14 @@ rechinar los dientes
 se le quiebran a uno los dientes si come los quelites con arena ( no bien lavados )
 no he podido dormir ; me duelen mucho las muelas
 el caballo rechina los dientes al comer
-¿ ya muerde ? - - ya va criando dientes
+¿ ya muerde ? - ya va criando dientes
 voy a hacer una estrella de cinco dientes ( puntas )
 se nos pondrán ( LIT tendremos ) muy feos los dientes si comemos chancaca
-¿ muerde ? - - no podrá ; es que no tiene grandes los dientes
+¿ muerde ? - no podrá ; es que no tiene grandes los dientes
 ¡ chimuelo feo !
-¿ cuántos años tiene ? - - ya mudó los dientes
-¿ ya mudó los dientes ? - - hace poco se le cayeron
-¿ qué es eso ? - - es un picadientes
+¿ cuántos años tiene ? - ya mudó los dientes
+¿ ya mudó los dientes ? - hace poco se le cayeron
+¿ qué es eso ? - es un picadientes
 por que nos salva ( LIT . nos alivia )
 no entiende nuestro idioma . LIT . nuestras palabras
 duelen los dientes ( LIT . da dolor en los dientes ) comiendo esquites ?
@@ -14017,8 +12785,8 @@ ponle José Ramírez
 a mí ya se me cayeron los dientes
 vaya ! ya se puso verde la sotana !
 se te va a irritar la piel ( de estar junto al fuego )
-¿ qué comen las ballenas ? - - pescaditos
-¿ hay muchos pescados ? - - puras crías se encuentran
+¿ qué comen las ballenas ? - pescaditos
+¿ hay muchos pescados ? - puras crías se encuentran
 no están tan colorados
 medio rojizo
 le di hartas bromas a Patricio
@@ -14029,9 +12797,9 @@ no les tengamos miedo a las bromas
 vas a dejarte de bromas ; ya no vas a darles bromas a las mujeres
 vaya si está sabroso !
 pero qué mugroso estoy !
-apuesto a que no puedes . - - que no puedo ? ( me canso ! )
+apuesto a que no puedes . - que no puedo ? ( me canso ! )
 caramba ! cómo duele !
-¿ tenías mucho calor ? - - muchísimo ! sude a mares
+¿ tenías mucho calor ? - muchísimo ! sude a mares
 están muy joviales los muchachos , están haciendo muchos chistes
 el padre Margain es muy bromista
 sí les di bromas a los otros
@@ -14039,9 +12807,9 @@ sangre del metal
 es hijo mío
 y luego cogió en brazos al niño ( LIT . la cría )
 es hijo de la hermana mayor de Lirio
-¿ es hijo tuyo ? - - no es mi sobrino
-¿ qué es méchuri ? - - la cría de la oveja
-¿ y la cría del venado ? - - ¿ el cervatillo ?
+¿ es hijo tuyo ? - no es mi sobrino
+¿ qué es méchuri ? - la cría de la oveja
+¿ y la cría del venado ? - ¿ el cervatillo ?
 crias , hijos
 parir
 soler parir
@@ -14050,7 +12818,7 @@ tener crías , hijos ( varios )
 hacer parir
 expulsar la cría en el parto
 nació ( LIT . fue parido ) en una cueva el niño ese ; nació sobre ( un lecho de ) ramas
-¿ y tuvo hijos ? - - esos no paren ( hablando de un ambisexual )
+¿ y tuvo hijos ? - esos no paren ( hablando de un ambisexual )
 apenas dió a luz , luego luego se levantó
 allí fue dada a luz ( nació ) esa muchacha
 ya estalla ( revienta ) el esquite ; vamos a comer rositas de maíz
@@ -14070,7 +12838,7 @@ carga de pistola
 ¿ quiénes pelearon anoche ? me desperté , por que se oían disparos de muchos rifles , eso dijo .
 entonces el hombre dijo : ya , pues , tienes un hijo ; yo siento que te tengo amor , dijo el hombre
 yo te hablo amonestándote como si fueras mi hijo ( LIT . como teniéndote por hijo )
-¿ cuándo se casó ? - - se casó antes de tener hijos .
+¿ cuándo se casó ? - se casó antes de tener hijos .
 rifle sí tengo , pero no tengo parque
 ¿ dónde está Daniel ? lo cité aquí para esta mañana
 y la hubiera matado , si no la hubiera defendido Daniel
@@ -14105,7 +12873,7 @@ no tengo maíz para comprar ( con el ) yo mismo lo compro para comer
 no le pregunté
 ¿ todavía no suenan los golpes en las cabezas ? ( a propósito de unos que altercaban )
 háblenles pues un poco
-¿ cuántos peces cogiste ? - - algunitos
+¿ cuántos peces cogiste ? - algunitos
 ¿ qué tanto más dificíl es aprender el rarámuri ?
 si me faltan muchos días aquí en la tierra ( si me queda vida por delante ) , seré feliz , no moriré
 y estos blancos nos sobrepasan muchísimo
@@ -14150,7 +12918,7 @@ buscan mucho la manta
 eso hacen algunos tarahumares
 algunos tienen mucho pánico a causa de los rayos
 tal vez hará que nos caiga un rayo
-¿ caen rayos en aquellas alturas ? - - sí , han fulminado a las reses
+¿ caen rayos en aquellas alturas ? - sí , han fulminado a las reses
 le cayó un rayo al pino
 no sea que nos caiga un rayo si asistimos a la misa
 no hay ni un indio
@@ -14164,7 +12932,7 @@ si no se hubiere secado , vuélvela a extender para que se seque bien
 para eso lo llamé , para que cogiera su cobija para que la extendiera al sol
 por eso no puedes dormirte , por que te estás moviendo mucho los pies
 algunos son de Rareko , uno es de Kusárare
-¿ en cuánto compraste el violín ? - - en cinco pesos - - ¿ a quién se lo compraste ?
+¿ en cuánto compraste el violín ? - en cinco pesos - ¿ a quién se lo compraste ?
 ¿ no me compras esta cobija ? necesito mucho el dinero
 él es muy ventajoso al comprar ; gana excesivamente forzándolos al comprarles , aunque los tarahumares no quieran ( LIT . hablándoles con fuerza )
 ¿ nos vamos descalzos ? ( LIT . con las plantas en el suelo ) ; sin zapatos ?
@@ -14173,21 +12941,21 @@ el lobo tiene la huella redondeada , el coyote , un poco elíptica
 el tiene la huella así ( mirando un huarache )
 si no te venden ( aquí ) , allá arribita si te venderán
 sí te vendiera , si hubiese
-quiero petróleo , véndeme . - ¿ para qué lo quieres ? - - voy a curar ( lubricar ) un rifle
+quiero petróleo , véndeme . - ¿ para qué lo quieres ? - voy a curar ( lubricar ) un rifle
 le voy a comprar azúcar a mi niña , le gusta mucho
-¿ qué compraste ? - - una pelota . - ¿ a quién se la compraste ? - - a un fulano . - - ¿ para quién la compraste ? - - para mi chamaco
+¿ qué compraste ? - una pelota . - ¿ a quién se la compraste ? - a un fulano . - ¿ para quién la compraste ? - para mi chamaco
 ¿ este es el que dices que le compraste a Abraham ?
 padre , te compran manteca
-¿ ya compraste ? - - hace rato
-yo voy a comprar la camisa . - - esa ya está comprada
+¿ ya compraste ? - hace rato
+yo voy a comprar la camisa . - esa ya está comprada
 ahorremos los centavos , no acabemos con ellos comprando cosas ; luego cuando se junten bastantes ( LIT . abunden ) entonces compraremos
-¿ no tienes bolas de lana ? - - ya compré maíz ( con ellas ) ; Rodrigo es el que tiene muchas
-¿ no quieres un poco de maíz ? - - por ahora no ; es que ya desde hace días acabé mis compras de maíz ( LIT . acabé de comprar ) lo que ahora quiero son huevos de gallina
+¿ no tienes bolas de lana ? - ya compré maíz ( con ellas ) ; Rodrigo es el que tiene muchas
+¿ no quieres un poco de maíz ? - por ahora no ; es que ya desde hace días acabé mis compras de maíz ( LIT . acabé de comprar ) lo que ahora quiero son huevos de gallina
 Guadalupe lo mandó a comprar cigarros
 hubiera yo comprado ayer el caballo negro !
-quiero comprar . - andando ! - - cuatro reales . - - serán ( LIT . harán ) dos litros . - - está bien
+quiero comprar . - andando ! - cuatro reales . - serán ( LIT . harán ) dos litros . - está bien
 ¿ y nos íbamos a morir si no compráramos ?
-¿ qué dice el Rodrigo ? - - traje elotes . - ¿ vas a ponerlos en el templo , o los vendes ?
+¿ qué dice el Rodrigo ? - traje elotes . - ¿ vas a ponerlos en el templo , o los vendes ?
 es que no quiere vender frijol
 ellos mismos conocen a los tarahumares que tak vez quieran vender
 no vendas tu caballo , luego te vas a arrepentir
@@ -14220,7 +12988,7 @@ antes no era tanto , ahora ya es mucho
 estás molestando mucho
 cuando bebemos tesgüino siempre nos excedemos ( obramos muy mal )
 ese hombre no se mide , es muy majadero
-apriétenle ahora a la muchacha esa ; es una calamidad . - - si , se porta muy mal
+apriétenle ahora a la muchacha esa ; es una calamidad . - si , se porta muy mal
 se va a portar peor
 no sean intemperantes , no sean excesivos ; el diablo los olfateará también a ustedes dos
 será ya un exceso si lo vuelve a hacer
@@ -14237,15 +13005,15 @@ no hay que abusar de Dios
 no traten mal al que vive arriba ( a Dios )
 me duele muchísimo doblar la pierna
 no se puede comer , está demasiado salado
-¿ acaso soy un embustero ? - - y más que todos
+¿ acaso soy un embustero ? - y más que todos
 es muy grande este ( toro ) negro , es fortísimo para la pela
 pero el sol estaba excesivamente caliente , exageradamente , como la lumbre
 la enfermedad anduvo muy fuerte río arriba , por Sarabichi ; pero ya están bien otra vez
 ya se nos adelantó Fernando
 parece que ya es demasiado
-¿ quién es mejor corredor ? - - Patricio , el de río arriba
-y como brujo ¿ quién es ahora el mejor ? - - Roristo
-Rodrigo es pero que su papá ? - - Rodrigo es peor , ofende mucho ( con sus palabras )
+¿ quién es mejor corredor ? - Patricio , el de río arriba
+y como brujo ¿ quién es ahora el mejor ? - Roristo
+Rodrigo es pero que su papá ? - Rodrigo es peor , ofende mucho ( con sus palabras )
 tú eres peor ( más enojón ) que Pichardo
 parece ser nido de colibrí
 nido de ratas
@@ -14280,7 +13048,7 @@ hizo que se quemara con una tortilla caliente
 va a brillar mucho
 ¿ por qué ha de ponerse muy brillante la luna ?
 dinero brillante
-¿ le brillan mucho los ojos ? - - ¡ y en qué forma ! ( LIT . sí , muchísimo ! )
+¿ le brillan mucho los ojos ? - ¡ y en qué forma ! ( LIT . sí , muchísimo ! )
 voy a ver las tortillas ; ya se habrán calentado
 se va a calentar mucho
 se van a picar mucho los tarahumares altercando
@@ -14308,17 +13076,17 @@ si tuviese carga ¿ dispararía ?
 el rayo ( LIT . la lluvia ) fulminó a mi mujer
 una vez tú mataste un gallo de un balazo ; por que te gusta mucho tirar ( con rifle )
 es que yo no tengo hijos
-aquí hace mucho calor . - - mucho !
+aquí hace mucho calor . - mucho !
 y los tarahumares , cuando ya fue aumentado el calor , por todas partes se metieron en las cuevas
 ya va haciendo calor
 parece que al medio día va a hacer calor
 ayer hacía mucho calor
-¿ está caliente ? - - no está tan caliente
+¿ está caliente ? - no está tan caliente
 siento mucha borrachera en la cabeza , sentía mucho calor cuando estábamos arriba
 camina muy despacito del calor que trae
 no me dolió ( la inyección ) ; se me puso muy caliente la pierna
 parece que tiene mucha calentura ( LIT . está muy caliente por dentro ) ; vomitó mucho
-¿ tiene calentura ? - - sí tiene calentura , una pocá
+¿ tiene calentura ? - sí tiene calentura , una pocá
 el estafiate no se come ; es medicina ; se machaca y se unta cuando tiene uno calentura
 calor
 caliente
@@ -14336,9 +13104,9 @@ así pues , no va a morir tu tío ( menor materno )
 pero no regresó , porque cayó enfermo su tío ( menor materno )
 es mi sobrino
 es sobrino mío ( hijo de mi hermana mayor )
-¿ son hijos tuyos ? - - uno es sobrino ; el otro es hijo del hermano mayor de este .
+¿ son hijos tuyos ? - uno es sobrino ; el otro es hijo del hermano mayor de este .
 es hijo de mi hermana ; es mi sobrino
-¿ es hijo tuyo ? - - no ; es mi sobrino ( hijo de mi hermana mayor )
+¿ es hijo tuyo ? - no ; es mi sobrino ( hijo de mi hermana mayor )
 mi sobrino ( hijo de mi hermana mayor )
 ese es el tío ( materno )
 lo dijo el tío ( materno ) de Rodrigo
@@ -14350,12 +13118,12 @@ yo creía que te había dado un calambre
 siento que me voy a acalambrar
 ay ! me voy acalambrando !
 se nos va a hacer tarde ( se nos va a ir muy adelante el día ) , poniéndonos de acuerdo
-¿ dentro de cuántos días vendrá ? - - unos diez . - - muy largo
+¿ dentro de cuántos días vendrá ? - unos diez . - muy largo
 si te rasuras casa día , te verás bien joven
 cada día nos cuida él
 el domingo es el día de Dios
 bien de día
-¿ a qué horas te viniste ? - - ya bien de día ; luego de haberse hecho de día
+¿ a qué horas te viniste ? - ya bien de día ; luego de haberse hecho de día
 me dormí ya muy entrada la noche , por eso no me satisfice de dormir ; dormí muy de día
 ser de día
 hacerse de día
@@ -14373,7 +13141,7 @@ se están dando el frente ( pecho frente a pecho )
 semidesnudo ; con el pecho al aire
 fijate , ya es bien de día
 en este tiempo son muy cortos los días
-¿ a qué horas te veniste ? - - ya bien de día , ya hecho el día
+¿ a qué horas te veniste ? - ya bien de día , ya hecho el día
 sólo El nos pastores haciendo ( para nosotros ) el día , sólo El nos alimenta
 ¿ quién , fuera de El , nos pastores haciendo el día ? ¿ quién , fuera de El , nos pastorea haciendo la noche ?
 sin cesar nos da la luz , sin cesar nos da la oscuridad
@@ -14395,7 +13163,7 @@ llegamos al medio día
 si salgo temprano , llegaré al medio día
 descúbrele el pecho ( LIT . ponle el pecho de fuera )
 acuéstalo con el pecho para aquel lado
-ya casi es medio día . - - ya casi
+ya casi es medio día . - ya casi
 ¿ falta poco ya para ( que sea ) el medio día ?
 ya es medio día ! pasa muy pronto ( el día )
 llegaremos después de medio día
@@ -14404,7 +13172,7 @@ era ladrón el hombre aquel , al modo de un gavilán que come las crías de los 
 mira ! un gavilán se posó en lo alto del álamo !
 es Jacinto , el de Rayabó
 extiéndela en el sol , para que se seque bien
-está echada por el calor ( una res ) . - - pero es que está echada en el sol . . . . .
+está echada por el calor ( una res ) . - pero es que está echada en el sol . . . . .
 no más hace sol , ya no se ve
 así atardece ( se pasa el día ) todos los días . lloviendo ( a ratos ) y saliendo el sol ( a ratos )
 salí ( de viaje ) luego de salido el sol
@@ -14412,7 +13180,7 @@ al momento de salir el sol
 nadie de ustedes descanse hasta que se haya puesto el sol
 llegamos a Creel cuando el sol subía a lo alto
 río abajo ya clarea el sol
-¿ por qué traes tan colorados los ojos ? - - quién sabe por qué . . será por el sol
+¿ por qué traes tan colorados los ojos ? - quién sabe por qué . . será por el sol
 para eso lo llamé , para que cogiera su cobija y la extendiera al sol
 Dios , duramte cinco días nos hizo llover ; está bien ; ahora nos manda el sol ; está bien tambi1n .
 gallina de mal agüero
@@ -14434,7 +13202,7 @@ tienen muchas piedras los frijoles ; no está bien limpios ( despedrados )
 es que allí hay muchas piedras
 ¿ le digo a Manolo que despiedre ( limpie ) el frijol ?
 muchachito juguetón !
-¿ es cansado hacer esto ? - - no ; es como un juego ( LIT . jugar )
+¿ es cansado hacer esto ? - no ; es como un juego ( LIT . jugar )
 ¿ y cuando se está jugando ?
 no hay que pelear durante el juego
 ¿ cómo se juega esto ?
@@ -14470,7 +13238,7 @@ no hay nadie ( en casa )
 del otro lado del cerro sí vive gente
 pero aquí no estoy a gusto , por que ya me acostumbré a los lugaresmuy poblados ( LIT . a donde hay mucha gente )
 ya ven , gente , no hay nada
-¿ hay paz en tu tierra ? - - se vive en paz
+¿ hay paz en tu tierra ? - se vive en paz
 como venados vive la gente en algunas partes ( e . d . salvajemente , sin educación )
 nos gusta ( LIT . tenemos ganas de ) andar robando
 anda uno provocando por los montes
@@ -14478,7 +13246,7 @@ aguanta , si eres tan hombre
 y el hombre respondió y dijo : no más ando ( por aquí )
 no es muy hombre el presidente ; no obra con bastante energía
 anduviste peleando por la otra banda , Vidal . comoque soy un hombre
-¿ eres tú de los jefes ? - - no , soy un particular
+¿ eres tú de los jefes ? - no , soy un particular
 hay mucha gente , mucha
 algunas gentes no lo pensaron bien y por eso se contagiaron ; porque , no sabiendo nada , anduvieron pasando por allí
 marimacho
@@ -14508,7 +13276,7 @@ los de allí se pasan la vida en pleitos ;
 nosotros queremos vivr robando
 estos ( los huaraches de hule ) , duran mucho , ya van a cumplir dos años
 no duran nada esta correa , siempre se anda rompiendo
-¿ durará mucho la lluvia ? - - probablemente sí ; ya estamos en las equipatas ( lluvias de otoño e invierno )
+¿ durará mucho la lluvia ? - probablemente sí ; ya estamos en las equipatas ( lluvias de otoño e invierno )
 ponte desafiante ; haz la cuenta de tus años ¿ acaso vas a durar cincuenta años ?
 cómo dijiste tú que comeríamos en grano ( frijoles enteros )
 ya le di a un lagartijo
@@ -14517,7 +13285,7 @@ ya le di a un lagartijo
 al medio día lo eché por tierra ( al venado ) , habiéndolo perseguido desde la mañana
 le puse un palo cuando caminaba , lo manteé y lo eché al suelo ( lo tendí )
 por poco me tumba ( me tiende ) , cuando iba yo de vuelta .
-mira , ya lo tiraste ! ( tendiste ) - - tú me hiciste tirarlo ( tenderlo )
+mira , ya lo tiraste ! ( tendiste ) - tú me hiciste tirarlo ( tenderlo )
 ¿ dónde pongo esto ?
 ya está tendido este año ( se está acabando )
 póngalo en el suelo ( el cernidor ) y ustedes mismos échenle la arena y sacúdanlo
@@ -14528,7 +13296,7 @@ anotar , apuntar , escribir ( LIT . tender en un papel )
 no m e apuntaste en el papel
 también este es ; anótalo
 ya está tendido ( lo están tendiendo )
-¿ escribiste mucho ? - - una sola raya
+¿ escribiste mucho ? - una sola raya
 ¿ por qué está tan chueco este surco ?
 le atravesó un palo al pasar , lo manteó y lo tumbó
 Manolo está de puntillas
@@ -14538,14 +13306,14 @@ písalo y no lo sentirás
 asentó bellamente el mundo este que pisamos ( LIT . el que pisando caminamos )
 no pisen el estiércol
 atraviésale un palo
-¿ y tus enaguas ? - - ya están enjaretadas ; yo misma les puse jareta ayer
+¿ y tus enaguas ? - ya están enjaretadas ; yo misma les puse jareta ayer
 aconsejar , ( LIT . ponerle pensamientos )
 amonestar , reprender ( LIT . ponerle una palabra )
 causar aflicción , dar penas
 de verdad que te pondré una palabra ( te vpy a reprender )
 te va a hacer sufrir
 póngase ya la corona ( los danzantes ) ; afinen ya ( los violinistas )
-¿ y ahora cómo le vas a pagar ( liquidar ) ? - - le pagaré con trabajo
+¿ y ahora cómo le vas a pagar ( liquidar ) ? - le pagaré con trabajo
 tal vez lo vamos a pisotear cuando esté tirado
 ¿ es adoptado ?
 si pica así ( la abeja ) ¿ se muere ?
@@ -14553,16 +13321,16 @@ si pica así ( la abeja ) ¿ se muere ?
 ¿ vas a comer , o no ?
 es Juan , ¿ o no ?
 pero ¿ es que estás enfermo ?
-¿ qué , no quiero ir ? - - no
+¿ qué , no quiero ir ? - no
 dicen que antes vivía aquí un hombre grande ( gigante )
-¿ cuándo se murió ? - - hace días ; hace dos semanas
-¿ te lo acaban de dar ? - - hace mucho me lo hallé
+¿ cuándo se murió ? - hace días ; hace dos semanas
+¿ te lo acaban de dar ? - hace mucho me lo hallé
 la semana pasada
 el mes pasado
 el año pasado
 en las lluvias pasadas
 el pasado invierno
-¿ murió el invierno pasado ? - - antes .
+¿ murió el invierno pasado ? - antes .
 ya se pasaron ( hicieron viejos ) los huevos
 dice que le duele la cabeza
 ¡ ya se cayó la escalera ! ( sonó , se oyó que se cayó . . . )
@@ -14572,34 +13340,34 @@ parecía que ya había pitado
 Lirio , te llamaba Ropiri !
 ya relampagueó ; ahora va a oírse el trueno
 ¿ quién dice que quiere ?
-¡ lo cogiste tú ! - - yo no lo cogí
+¡ lo cogiste tú ! - yo no lo cogí
 y luego cogieron a la muchachita , como con ganas de matarla
-¿ se casaron ? - - se casaron , sí
+¿ se casaron ? - se casaron , sí
 ahora sí los voy a juntar ( hacer que se toquen )
 duele mucho el parche ; no se puede tocar
-¿ bebiste tesgüino ? - - no ; no he tocado el tesgüino
+¿ bebiste tesgüino ? - no ; no he tocado el tesgüino
 ¿ tú nunca has tocado mujer ?
 no te recargues en esa pared
 ustedes tienen que hablar juntos aquí
 obramos muy mal haciendo
 como si no hubiera , pues , agua
-¿ cuántos meses tenía la niña ? - - ahora tendría ( los días de ) cinco semanas
+¿ cuántos meses tenía la niña ? - ahora tendría ( los días de ) cinco semanas
 ya vamos a jugar las flechas
 ya me voy a jugar las flechas
-¿ dónde jugamos al blanco ? - - vamos a jugar allá , de este lado
+¿ dónde jugamos al blanco ? - vamos a jugar allá , de este lado
 ¿ son flechas esas ?
 donde se clavó la flecha
 ¡ qué bonitas flechas tienes !
 ¿ es ese el que cura el dolor de cabeza ?
 el agua asoleada es la buena
-¿ qué es ? - - - quién sabe qué será . . . . no sé yo .
+¿ qué es ? - quién sabe qué será . . . . no sé yo .
 es muy cansado barbechar así . . . sí ( así es , tienes razón )
 sí , ustedes las mujeres , también
 sí , él es el único poderoso
-¿ y también yo ? - - ándale pues
-quiero comprar . - - vamos pues . - - cincuenta centavos . - - serán ( harán ) dos litros - - ándale pues
+¿ y también yo ? - ándale pues
+quiero comprar . - vamos pues . - cincuenta centavos . - serán ( harán ) dos litros - ándale pues
 ¡ qué calor ! hay que bañarse
-no tengo ganas de bañarme . - - - - ¿ y tú ? - - - tampoco
+no tengo ganas de bañarme . - ¿ y tú ? - tampoco
 mientras los muchachos se bañan , tú me dices palabras
 muchos bañistas se ahogan cuando no saben cómo es el agua aquella
 algunos se bañaron , otros no
@@ -14627,7 +13395,7 @@ ponerle ( en servicio de otro )
 ponérselo ( en servicio de otro )
 ¿ me pongo la camisa ?
 poniéndose en la mano un cuero grande y blando , no duele al coger la pelota ( alude al guante de baseball
-¿ qué están haciendo los tarahumares ? . - - se van a untar piedra blanca
+¿ qué están haciendo los tarahumares ? . - se van a untar piedra blanca
 el matarí es muy amargo : si lo muerde a uno una víbora de cascabel , se una uno
 machacado
 la toma de ceniza , el aplicarse la ceniza ( el miércoles de ceniza )
@@ -14642,7 +13410,7 @@ otro poquito . . . . . . . ya está bien
 dame más frijoles ( en la comida )
 quiero más manta
 móntale pues otra vez !
-¡ sí vas a querer más frijoles ! - - - más ! ( sírveme otra vez )
+¡ sí vas a querer más frijoles ! - más ! ( sírveme otra vez )
 todavía me devolví otras muchas veces
 te daré otros pocos más
 le montaré otra vez , hasta que me siembre de nuevo
@@ -14651,13 +13419,13 @@ quiero otros tantos
 dame otra tortilla
 otros tres , tres más
 echa otros tres viajes
-¿ qué quieres ? - - más pinole
+¿ qué quieres ? - más pinole
 ¿ quieres más azotes ?
 ponle un listón al violín
 ( Dios ) nos cuelga hermosamente el sol
 voy a pagarlo con trementina , le voy a poner resina
 ¿ qué le pusiste ? tintura ? tinta de calzado ?
-¿ qué remedio te pusieron ? - - no me he curado
+¿ qué remedio te pusieron ? - no me he curado
 tú eres el que tienes que vestirla ; tú el que con tu trabajo la alimentas
 le puso unas enaguas rotas y la despachó
 tengo poca tierra ( LIT . tengo tierra estrecha )
@@ -14686,7 +13454,7 @@ somos nosotros los que estamos soteniendo ( como columnas ) el mundo ; si nos ac
 reflexionen bien ( LIT . estén reflexionando . . . . . . )
 hay que estae mirando para los dos lados
 los ba'muri : unos como elotes que hay en las espigas
-¿ qué no tienes gallinas ? - - sí hay unas cuantas
+¿ qué no tienes gallinas ? - sí hay unas cuantas
 andar , moverse agachados , colgados
 encorvarse , agacharse
 soler estar
@@ -14698,15 +13466,15 @@ colgar repetidas veces
 colgadera , colgijes
 ponerle , colgarle
 bésale , pues , la mano
-no vaya a ser que me pique . - - ¡ qué miedo te dió !
+no vaya a ser que me pique . - ¡ qué miedo te dió !
 me picará una serpiente
 engordará mucho ( el zopilote ) si le come ( pica ) los ojos
 por ejemplo , si es sorprendido en cópula ese hombre , a ese habrá que azotar
 se pusieron culimpinados de miedo
 y se agazaparon en lo hondo de las cuevas para no quemarse
 ya brotaron los ejotes
-le cayeron estrellas ! - - se le pegaron estrellas ! ( ref . a uno que traía en el sombrero varias estrellas de papel de colores )
-¿ dónde están las gallinas ? - - andan allá en la cuesta
+le cayeron estrellas ! - se le pegaron estrellas ! ( ref . a uno que traía en el sombrero varias estrellas de papel de colores )
+¿ dónde están las gallinas ? - andan allá en la cuesta
 andaban ( los caballos ) allá tras el cerro
 andaban luchando
 ¿ dónde dejaste ( pusiste ) los caballos ?
@@ -14715,6 +13483,1238 @@ y luego también pusieron muchas luces muy bonitas
 puso arriba los pescados ensartados
 voy a ponerle papeles azules a mi corona ( de danzante )
 yo se los pondré ( los adornos a tu corona )
-¿ ya pusiste ( dejaste ) los caballos donde hay pasto ? - - ya los puse
-cuelguen los sombreros . - - ya los colgamos
+¿ ya pusiste ( dejaste ) los caballos donde hay pasto ? - ya los puse
+cuelguen los sombreros . - ya los colgamos
 los tarahumares ya se mezclaron con los blancos
+está sollozando ( haciendo ruido de sollozos )
+¿ qué suena allá adentro ?
+al cantar el gallo
+y también en las orejas me suena muy molesto un chillido ; como un pájaro : así se oye
+el ŕu'siwari suena como un tochapi ( un pájaro ) , al entrar la noche
+me llamo Vidal
+vimos una serpiente grande , llamada boa
+¿ cómo se llama aquí ?
+¿ dónde vives tú ? - Río arriba , en Nawajírachi ( ¿ dónde le dicen cómo vives tú ? - donde le dicen Nawajírachi )
+río arribade Wajochi , donde se llama Ripuchichi
+vivo donde se llama el Monte de los Colibríes
+¿ cuántos llevas tú ? - cuatro
+por qué ?
+¿ por qué ( de qué ) murió ? - quién sabe por qué ( de qué ) se haya muerto ; se habrá enfermado
+¿ por qué ya no van a circular estas ( monedas ) ?
+necesitar , quejarse , sufrir , ¡ pobre ! ( exclamación ) ; molestar de palabra
+necesito mucho la manta
+¡ pobre perro ! Lo vas a matar !
+Guadalupe lo mandó a comprar cigarros ; no ( le ) tiene compasión ; sufre mucho
+yo no fui ; no más anda molestando
+fingir , hablar de broma , mentir
+maté un venado . - mentiroso !
+no más habla ! ( son puras mentiras )
+no más está bromeando ese muchacho
+molestar , hacer daño ( de palabra )
+¿ qué , es peor Patricio que el viejo ? - molesta mucho ese hombre ; habla muy mal
+echar baladronadas ; ofender ( de palabra )
+dices mucho , pero no haces nada
+¿ qué ofensas te he dicho yo ?
+ya me hiciste decir mal !
+tú no dijíste nada ; yatenías que haber dicho
+¿ o quién es , pues , el que tiene que decir primero ?
+¿ qué tengo que decir ?
+Patricio no había ni de bailar ; es muy pendenciero ; ya tendió por tierra a uno
+sí tienes que decírlo tú
+están silenciosos ( sin decir nada )
+era lo que había que decir
+¿ entonces , qué tenía yo que haber dicho , pues ?
+pero dejen esos decires ( dejen ese mal hablar )
+¿ por qué , pues , según dicen , dijiste : " yo he de matar a todos los que mandaron a amarrarme ? " - yo no sé nada de esos rumores
+es que eso no es un mal dicho ( no es hablar mal )
+¿ qué quiere decir eso ? - quién sabe qué querrá decir…
+¿ qué significa lo que te dije ?
+y ( la palabra ) bíchígituame ¿ qué significa ? ( en castellano )
+¿ quién ? Francisco , ¿ no ? Él era el cacique
+Antonio me hizo perder ( la apuesta ) allá en Ruséachi
+acaba de llegar Antonio . - ¿ qué Antonio ?
+en días pasados Anrés hirió ( cortó ) a su padre
+desde antier caí enfermo
+cierto que algún día vemdré
+¿ quién toca adentro ( el violín ) : - sí está alguien allí
+sí que lo traeré , si tengo burros
+sí me voy a casar
+tal vez le habrá mandado un oremá ( estrella fugaz , hechizo ) GR . 458 , 2o .
+sí aprenderá pronto
+el a'ógari ! Tiene miedo ! ( palabras de un canto de TUTUGURI de Narárachi )
+es goma ( lágrima ) de táscate
+prendiendo una lumbrada de hojas de táscate
+¡ eh , viejo ! Ven acá !
+por esta última nochebuena se murió su abielito ; dile eso
+es el maíz de mi abuelo materno
+¿ pero por qué hizo eso tu abuelo ( materno ) ? Ya ves que fue ofensivo
+ustedes se viven bebiendo
+El Algarrobal , es poco más acá río debajo de La Cebadilla
+porque tenemos como hermanos mayores a los venados ( porque los venados son nuestros hermanos mayores )
+¿ tienes hermanos mayores ? - no , el hermano mayor soy yo
+atí tú ¿ y están tus hermanos mayores ? - no más uno está
+los que hablan muy mal son los ( hermanos ) mayores
+¿ y Gabino y Teodoro ? - son hermanos mayores míos
+no tienes de maíz que le llaman pipitillo ?
+esos dos son ( hermanos ) mayores
+me han dicho que tú entras mucho con las muchachas
+cuantas veces entro donde tú te la pasabas escribiendo , se me afigura que ahí estás
+( el ladrón ) cuando no hay gente , entonces ya se meten en las trojes y en las casas , y carga con las cosas , se lleva las cosas
+desde ayer por la mañana están bebiendo
+no más me tomo un trago ( una jícara ) , luego , luego me pongo muiy cantador
+ven , entra , tómate un trago
+los tarahumares , no más tienen tantito maíz , luego se ponen a beber
+dice que le duele mucho ; se le honchó mucho el pie
+se va a inflamar
+y cuando estuvo enfermo tu papá ¿ no se le hincharon las piernas ? - no ; no se hinchó
+yo vivo en Satewérachi ; es decir , río debajo de Narárachi , donde los vados
+¿ por dónde ( por qué lugares ) vamos a pasar el arroto ? - es que no atravesaremos ( el arroyo )
+era una muerte ( cansadísimo ) pasar a cada rato las reses de una orilla a la otra
+el jefe era abuelo materno de Lucrecia
+es nieta ( materna ) mía esa muchachita
+tiremos los nopales ( las pencas )
+le voy a tirar a ese pájaro
+con una piedra le pegaste a tu padre ; con una piedra le pegaste a tu madre
+adultas : ( son ) las que tienen hijos , y las que no los tienen también
+mira , tábanos ! Estos muerden los caballos
+el " apariki " es como rayado , aplanado , ancho , es sumamente veloz
+se pone bravísimo si corre uno
+es más bravo que la Chata
+antes lo cocían allí
+lo machacan y luego lo cuecen
+allí , donde suelen cocer el pozole
+tener , traer camisa
+dar o poner camisa a otro
+así creen los rarámuri , como se lo dijeron algunos ancianos , y lo dijeron también los que vivieron en tiempos pasados
+si no la compré yo ; mi madre me dio la camisa
+allá anda una niña que no trae ( tiene ) nada de camisa
+es que sí la he llamado que vuelva a casa
+no siembre de a muchos ( granos ) ; de a cuatro o de a tres ( en cada hoyo ) está bien
+me eché a la espalda el venado ( lo llevé a casa ) ; era un macho muy grande
+¡ que traigan ( a cuestas ) leña !
+anda subida a la espalda de su papá
+andan encaramados en nosotros
+se me dobla esta pierna al cargar leña
+sí que vendré otra vez trayendo ( a cuestas ) maíz
+vamos ! Cárguenlo ! ( échenselo a la espalda )
+manden unos muchahcos a traerlo ( a la espalda )
+cuando la troca fue a cargar maíz
+ya enviaré otra vez con orden de cargar ( llevar ) leña
+echar a la espalda ( de otro ) , echar a cuestas
+echarle a cuestas , echarle a la espalda
+echarse a cuestas , cargar a la espalda
+encaramarse , subirse a la espalda de otro
+hacer que se suba a la espalda de otro , echar a la espalda de otro
+echar a la espalda , cargar , llevar a cuestas
+manto
+carga , lo que un hombre o una bestia puede llevar cargando
+a ) echarle algo a la espalda auno , echar la carga a una bestia
+llevar a cuestas , llevar carga
+irse con algo a cuestas , robarse algo
+hace tiempo sí traje ( a la espalda ) algo de frijol
+a ver ! Algunos muchachostraigan leña !
+corona sí tengo ; lo que me falta es el manto
+¿ no tienes ( tela para ) manto de los bonitos ?
+traeré do cargas
+¿ cuánto vale la carga ?
+y leña , ¿ cuánta vas a entregar hoy ? - dos cargas
+le echaron muy grande carga
+después echamos la caraga ( a las bestias ) ; el domingo nos detuvimos en el camino ; y al medio día comimos en Riwirichi
+trayéndolo ( yo mismo , a cuestas ) cuánto vale ? ( ¿ a cómo me lo pagas , si te lo traigo yo mismo ? )
+sí que se queja el burrito ! Se cansó muchocargando tunas
+y siempre me llevarás tú mis recados , cuántas veces te envié
+se echó a la espalda a la mujeer , se la robó ; con ella a cuestas se fue ; cargándola , la subió a lo alto de los farallones ; y ya no pudo ( la mujer ) bajarse
+bisabuela es la que parió hijos con el bisabuelo
+ya se lo comerán las auras
+el aura es blanca de alas
+Genoveva es mi tía
+le dieron a comer ( al gigante ) colorín con el cocido de carne ; lo azotaron con cobijas y le tiraron con bolas de lana hilada
+el sapo terrero cava bajo tierra y vive en tuceros
+había que montar más bien el alebrestado ( el que se encabrita )
+va a reparar el caballo . - ¿ qué importa ?
+se fue preparando por la cuesta arriba
+bronco , que se encabrita
+a ) corcovear , reparar , encabritarse un animal
+a ) hacer que se encabrite un animal
+encabritar , hacer que respingue un animal
+va oleando mucho el agua
+¿ de qué palo es ? - de moral - sí parece moral
+¿ de qué es esto ? ¿ de moral ? - sí , de moral
+anda ! encabrita el caballo ! ( hazlo que repare )
+se soltó un vendaval fuertísimo ; formó grandes olas
+eso es lo que decía yo
+ya quelo ha colocado ( el ostensorio ) , le rezamos a eso donde adentro está Dios
+suelen encerrar las reses
+estaba del otro lado del monte ; allímurió esa muchacha
+ahora el alma no se ve ; allí será visible el alma
+ese , aquel
+así , de esa clase , color , etc .
+de ese tamaño
+de ese tamaño ( pl )
+así , de esa clase , etc .
+tantos así
+tan largos así , de ese largo
+así , de ese modo
+parece ser una muy buena billetera ( LIT . coloca - dinero )
+está bien
+a Adán cuando estaba durmiendo le sacaron una costilla
+no hablen así
+porque así tiene que ser
+no está bien así
+así tenía que ser
+jálale un poco ; hasta allí no más
+esto es todo lo que les voy a decir , cristianos ( he dicho , he terminado mi discurso )
+me lo dio un hombre . - ¿ qué hombre ?
+¿ a quién se lo diste ? - pues a Valente , tu hijo
+me lo dio quemado
+¡ qué importa que no me den !
+¿ qué , no te dieron una camisa hace poquito ? - sí , me dieron , pero se me rompió pronto
+apenas llegó , buscó por todos lados , igual que la víspera
+¿ por qué no han venido ? - tal vez se extravió
+se nos mojará ( tal vez se nos moje ) el pinole en el camino ; lo vamos a tomar hecho pasta
+me ahorcan ( quizás me ahorquen ) , si no pago ; por eso me voy a escapar
+te haría pasar hambre , te haría morir
+el chiquillo les habrá abierto la puerta a los patos
+pasado mañana lloverá
+parece que está abajito
+¿ por qué no cumpliste ? - quién sabe por qué… es que estaba tendido con gran dolor
+¿ a qué horas se juntarán ? - quién sabe a qué horas se vayan a juntar ! . . . al medio día
+¿ quién sabe qué habré hecho ? . . . No me di cuenta . - ¿ cómo no te has de dar cuenta ? . . .
+quién sabe lo que vayas a hacer ! . . .
+¿ qué hombre sería ? . . .
+¿ cuándo trabajarás tú ?
+¿ quién le habrá pegado ?
+estará adentro ; o abajito
+él mismo se meterá ( en la cárcel ) ; o bien , lo meteré yo
+¿ quién más va a ir ? - Pedro o Juan
+no hice batari yo ; alguien ciertamente habrá hecho
+de fijo que ya vas olvidando todo lo que aprendiste
+por poco me caigo . - algún día te caerás
+¿ no vas arribita ? ¿ a llevar una carta ? - si que iré
+claro que si me caso
+cuando pica así , ¿ se muere ? ( la abeja )
+se hubieran ustedes ido así
+parece que así debe ser
+por ejemplo , si sueño que me han matado así ( es señal de que ) enfermaré y moriré
+a pesar de todo , los calentó ( el sol ) ; mató a los indios que estaban adentro de la tierra ( escondidos en las cuevas )
+con todo , tenías que haberlo dejado
+a pesar de todo tem hice venir
+siempre ( de todos modos ) tenlo en brazos tú ; y ahorita hubieras entrado con él en brazos , ( una mamá al padrino , entregandole al niño a mitad de la cremonía )
+te va a dar mucha tirsteza , si te lo doy - no le hace !
+pero es que te vas a acabar e ldinero . - ¡ no le hace !
+es que no quiero yo entregarle así no más mi maíz
+los que habitan arriba ( en el cielo ) , viven no más así ( sin trabajar ) , paseando felices
+se nos va a hacer muy tarde
+probablemente llorará el niño , si se acuesta arriba ( en el entretecho )
+¿ lo llamarás tú ? Tal vez no venga . - lo cogeré si no quiere
+creo que va a llorar
+habrá ido temprano
+tal vez se ha cansado mucho ese hombre , por no haberle , creído yo el otro día , eso pensó
+si habrá ( batari )
+sí la hiciera ; pero fajas no sé
+¿ de qué es ( esta ) herradura ? - es herradura de burro
+no ; yo no voy a quererte , si tú eres comedor de venaditos ; eso le dijo a al mujer ;
+sí se ; sino que no tengo ganas de decir
+voy a cerrar ; está muy molesto el viento . - cierra
+quién sabe como será… algunos que lo han visto dicen que sí es largo ; yo no lo he visto ;
+¿ cuándo dijo que volvería ? - quién sabe cuándo ; yo no sé
+¿ van a bailar esta noche ? - quién sabe ! …si ellos quieren…
+yo me voy , o mañana , o pasado mañana
+¿ quién va por leña ? - tú o José
+nos ha purificado totalmente , adentro , nuestra alma
+a un tucero irá a dar tu alma , cuando mueras
+pero el alma no muere
+ahora el alma no se ve ; allí se verá
+se te saldrá el alma , tenlo en cuenta
+tengamos compasión de nuestra alma ; tengamos también compasión de nuestro cuerpo ; ( es decir : cuidemos nuestra vida ; miremos por nosotros )
+no nos da cumplidamente el agua , para que se desarolle cabalmente nuestra vida . ( LIT . para que crezca bien nuestra alma )
+da , poner el alma
+tener alma
+es El le que nos da el alma
+El , y nadie más , nos da el alma ( la vida )
+sí voy ; no más déjame ir a dejar el sombrero
+¡ mira lo que dejaste al marcharte !
+alguna que otra vez se me olvida ; entonces lo dejo
+hay que dejar esos comportamientos
+dejen la bebida ; dejemos las borracheras
+sí , dejemos esas creencias
+vas a dejar los chistes ; en adelante ya no vas a juguetearles a las mujeres
+tenemos una sola alma , tenemos también una sola sangre ; no tenemos otra distinta sangre
+vivamos con el alma limpia
+¿ de dónde , pues trajimos nuestra alma ? Tenemos alma que es de arriba . ( LIT . ¿ de dónde traída tenemos el alma ? . . . )
+no por nuestro propio querer tenemos el alma ( no vivimos por virtud propia )
+esos no más están , no hay más
+por allí íbamos
+como si fueran ustedes no más esos
+llegaré hoy por la tarde . - ¿ metido el sol ? Al meterse el sol
+¿ qué tan tarde llegaremos a Sogichi ? - mañana por la tarde
+¿ hasta la tarde no te vas ? - entonces
+desde la tarde están bailando
+¿ hoy ? - ( sí ) , pero ya pardeando ( LIT . tarde en la tarde )
+le voy a guardar a Beto , para que coma al atardecer ;
+¿ vamos a ver títeres cuando oscurezca ?
+oscura la tarde , al principio de la noche
+llegué tarde , oscuro ya .
+por la tarde
+más tarde
+entretener a uno hasta la tarde , hacer que le sorprenda la tarde
+entretenerlo hasta la tarde
+entretener ( a uno hasta la tarde ) ; hacer que se le acabe el día , que llegue la tarde
+entretener hasta la tarde ; hacer que a uno lo sorprenda la tarde , que se le pase el día
+entretenerlo , hacer que lo sorprenda a uno la tarde
+cogerle a uno la tarde , acabársele el día
+por la tarde , al atardecer
+entrada la tarde
+atardecer
+s . la estrella de la tarde
+la tarde avanzada , oscureciendo , la estrelal de la tarde
+concederle a uno el atardecer
+una que otra vez se me olvida ; entonces lo dejo
+¿ cuándo es ( el día de ) Guadalupe ? - dentro de cuatro días . - ¿ entonces ?
+¿ en ese tiempo ya vivías tú ?
+en aquel entonces no había ninguna gente en este mundo ; sólo anomales voladores había aquí en la tierra
+primero se separaron , luego volvieron a juntarse
+después te la vuelvo a traer ( el hacha )
+voy a dejar aquí el frijol ; más tarde lo recojo
+me duele mucho el estómago después de comer
+¿ por qué no fuiste después ?
+volveré entonces , cuando las estrelals estén arriba
+arrancaron , pues ( a correr ) ; y luego dicen que la rana saltó y se sneto en los cuernos del venado
+¿ y luego ? - y entonces dicen que se murió
+pero yo trabajo siempre aquí . - ¿ y ? . . . ( ¿ y qué ? con ello ? ¿ qué se sigue de allí ?
+cuando yo
+cuando tú
+cuando nosotros
+cuando vosotros
+cuadno
+sí había gente río abajo en años pasados , cuadno yo vivía aquí , cuando era zanca - pelona ( cuadno andaba en taparrabo )
+así pues , ¿ cómo ha de ser ? ( en qué quedamos ? )
+los tarahumares le temen mucho a ese , y lo aborrecen ; por lo tanto , no van a venir
+anden pues ; má tenme a palos ( LIT . entonces pues , lo bueno será que me maten a palos )
+¿ dónde está , pues , la sangre ? Esa sangre se perdió ( el cacique reprendio a un pendenciero )
+¿ quién , pues , nos pastorea ?
+es sabrosísima la gomilla ; como para morirse
+voy a comer atole gelatinoso , con nopales y gomilla .
+no te voy a entretener ( no aré que se te haga tarde , que te atardezca el día )
+Calixto me entretuvo ( hizo que me sorprendiera al tarde )
+aguarden un poco ; no los demoraré hasta la tarde ( no los voy a entretener )
+háganlo aguardar ; entreténganmelo aquí hasta la tarde ( LIT . háganmelo que le coja la tarde aquí )
+lo va a coger la tarde tratando de lazarlo
+¿ dónde te atardeció ?
+así atardece todo los días : lloviendo y saliendo el sol ( a ratos llueve , a ratos hay sol )
+pasé el día aquí enseñando ( me cogió la tarde )
+¿ a dónde vas , Toño ? - voy a pasarme el día durmiendo arriba de una encina
+ayer llegó Wawatzérare hoy pasó ( allí ) el día ; mañana vendrá
+lo vamos a molestar , y haremos que se le haga tarde ( que se le vaya el día )
+¿ de qué tamaño dice que quiere las bolas ? - dice que una de ese tamaño y dos de ese
+así es el hombre
+¿ cuándo viene el arriero ? - ¿ cuál ? - cualquiera
+¿ qué andabas haciendo ? - ( andaba ) de arriero .
+al atardever comenzaron a beber
+dice que sí vendrán muchos al atardecer
+oscura la tarde , a boca de noche
+llegaré a casa hoy , acabando de oscurecer
+el ŕu'síwari hace ( suena ) como el tochapi ( un pájaro ) al cerrar la noche
+tantos así no más son
+no más estos raŕamuri están
+como si ustedes no fuesen más que esos ( que los que están aquí )
+sólo estos hay , ya no hay más
+dámele cien ( pesos ) a ese
+voy a ponerte a buscar venados ; ¿ no quieres ir tú también ?
+¿ lo mediste ya ? - eran tres decálitros
+¿ ññegará al decálitro ? - no tranto . Serán siete litros . - parecén ser siete
+un peso y cuatro reales ( 50 cvs ) . Un decálitro
+si no se hacen bolitas , parece que sí de veras será harina
+y al poco rato , anda el hombre luchando ( con una mujer ) al poco rato anda l hombre violando a una joven
+no más venía a decirte adiós ( Lit . a traerte mis adioses )
+adiós , pues
+bueno ; adiós
+decir adiós , despedicrse
+decirle adiós
+con esto , ya te voy a decir adiós ; qué importa si entra la nostalgia cuando haya llegado a casa…
+ahora ya voy a despedirme , con gran nostalgia de ti
+entonces , luego de despedirse , dijo iré feliz llevando tus encargos
+entonces le dijimos adiós ( nos despedimos de ellos ) , y nos volvimos a casa
+ay ! Dale vueltas y enróllamelo ! ay ! enróllame el cigarro ! ( canción rarámuri )
+ay ! No me mates !
+ay ! Me estás lastimando
+La Calabacilla , lugar de calabacillas
+natural de ariséachi
+haber calabacillas
+La Calabacilla
+esto no más les digo , cristianos ( he terminado mi discurso )
+luego , cuando ya íbamos a irnos , se fue haciendo muy tarde ( fue avanzando la tarde )
+llegamos al ir atardeciendo
+llegué ya muiy tarde
+ya se pusieron azules , porque les llegó el sol ; son amargas , cuando se han serenado ( ? )
+a nosotros , los jeves nos da muchos cansancios ( la gente nos fatiga mucho )
+esos ( los witaru ) , no más codician algo , se echan chicotazos ; todos lo que se les antoja les dan
+atardece con mucha oscuridad
+dínoslo pronto ; ya ves que se está haciendo tarde
+me regreso al atardecer
+sale a atardecer a buscar comida
+ya al atardecer , volví a subir al mero cerro , muy arriba a la punta
+pónganse protno de acuerdo ; ya atardeve
+suena que atardeve , la campana está sonando ; poes eso
+falta poco para que atardezca
+ahora me está volviendo a doler , porque ya atardece
+en ese punto cayó la tarde , y ns fuimos a casa a comer .
+¿ a qué hora es aríwari ? - por la tarde , cuando ya está oscuro
+y es también El el que nos da el amanecer , El nos da el atardecer
+gracias ; voy a ir a dárselas a mi ni{a ; dice que le gustan mucho
+yo soy alguacil
+¿ eso es todo ? - no más eso ;
+no conozco a ese
+Pilar se fue porque quiso ; no está nunca ( no se queda en la casa de su esposo )
+es queyo no estoy en casa ( siempre ando fuera )
+siéntate en el rincón , viejo come tortilla . - me sentaré
+tú quédate aquí ; yo voy a ver
+di ! Habla ! ( ponte a decir ! No te quedes callada ! )
+tenlo en la boca !
+levanta la cara ( ponte con la mirada más arriba )
+reflexiona ; ¿ qué has pensado ? ¿ te has hecho ya demasiado como los blancos ? ( el cacique a un reo )
+estate quiero ! Está tranquilo no tengas miedo !
+ese no trabaja nada ; no más está sentado
+¿ y la silla ?
+y los marranos , los viste - están bien gordos
+yo no lo olí
+siéntate aquí abajito . - y también el contrincante
+ya me cansé de estar sentado
+duré tres años ( permaneciendo aquí )
+no es bueno estar ( permanecer ) solo
+los rarámuri le dicen mirímuka al estar sentado en un rincón mientras llueve
+siéntate pues !
+yo estaba dentro
+ya murió , pero volvío a resucitar
+¿ hay que sacudir la alfombra ?
+son tres los hectólitros ; porque a cuatro no llegan
+monta pues pronto
+Tranquilino dice que tiene ganas de montar
+es muy cansado de montar
+te hubieras ido a caballo
+me oprimiste mientras estaba acostada durmiendo
+hacer montar
+dame un poquito
+si te lo enceuntras , me lo entregas
+Anoche se murió uno , un chiquito , el hijo de Servando . - ¿ pero , qué no buscó ( vino a pedir ) medicina ? - si ; pero se agravó mucho ; ayer por la mañana decía que tenía mucho dolor , y a la media noche se murió .
+¿ dónde está mi huarache ? - búscalo tu mismo .
+¿ entendiste ? - sí
+sí comeré , si me dan de comer
+¡ ya fuiste a verlo ? - sí , ya lo vi
+sí lo sé
+sí te lo guardaré
+¿ no llevas un papel allá abajito ? se lo das al presidente . - sí se lo llevo
+¿ comerán ustedes ejotes ?
+¿ voy yo con él ?
+claro que sí sé
+sí que sangra !
+tú aguardarás aquí hasta mañana . - sí , está bien
+¿ se fue a beber Rodrigo ? - sí ; es que es muy bebedor
+¿ sabes a Ba´wichiki ? - sí
+también
+cuando el venado hablaba , también la rana hablaba
+¿ y el estómago te duele ? - también
+ah ! ah ! me iba a emborrachar !
+ay ! me espiné
+ay ! me piqué !
+las está marcando todas ( las reses )
+eso es la misma cosa
+¿ llegaron todos ya ? - todos están ya
+yo no . - yo tampoco
+andaba buscando animales como suelen todos los rarámuris , buscan animales para comer ( Lit . comen buscando animales ) , animales del monte
+si fui a kwechi en días pasados ; fui a buscar chile piquín
+( 1 ) más temprano , bastante temprano , ( tempranito )
+yo voy a estar ( sentado ) tocando el violín
+parece que habrá que buscar otro
+¿ te gustó ? - sí
+¿ ganaste en la carrera ? - sí
+sí voy a echar un discurso - eso es !
+pero ¿ alcanzarán las flechas ? - sí alcanzarán bien
+¿ conoces esto ? - sí lo conozco
+también
+también
+sí
+todavía no me voy a dormir ; es temprano
+¿ no ha venido Rodrigo ? me citó aquí ; dijo que vendría hoy temprano
+hace rato lo ví
+hace rato sí pude
+¿ llegaste al medio día ? - llegué antes
+hace un ratito
+hace un ratito
+hace poquito que andaba aquí , hace un instante
+comí hace un momentito
+voy a entrar . - y yo también
+también tú te vas a bañar
+sería bueno danzar matachines . - y tutuguri también
+¿ y Nemesio ? - hace un momento se fué
+comí hace poquito
+también
+todavía está cerrado
+todavía están tiernos ; aún no han sazonado ( se han endurecido ) las mazorcas .
+( a ) ( ellos , nosotros , ustedes ) mismos , a sí mismos
+animándonos unos a otros
+nosotros mismos somos culpables de que no llueva
+arréglenlo ustedes mismos
+danzas no nos ordenan ; la danza será pensamiento de nosotros mismos - iniciativa nuestra )
+ellos mismos lo dirán claramente , cuando hayan llegado
+porque ustedes mismos conocen a los indios que quisieran vender
+¿ los sembraste tú ? sí ; es que no nacen solos
+El nos da el alimento ; que no lo logramos nosotros por nosotros mismos
+nosostros hemos sido sembrados ; no hemos brotado por virtud nuestra ( Dios nos creó : no tenemos el ser de nosotros mismos ) .
+voluntariamnete , por propia iniciativa , no forzados
+hay que venir aquí espontánemente
+reúnanse ustedes por su propia voluntad ; no importa que no pasen ( avisándoles ) los Capitanes
+sin aborrecernos unos a otros ; hagamos un buen ensayo
+este año hicimos la semana santa así no más , entre nosotros ; el año pasado vino el padre
+se daban ( a sí mismos ) puñetazos en la cabeza , de coraje
+no será por orden nuestra por lo que saldrá el lucero
+que ellos mismos digan ; nos vamos a quedar roncos de tanto litigar ( con ira )
+no es por nuestro propio poder por lo que tenemos la vida
+fuí a buscar las reses
+lugar de táscates
+nativo o habitante de Aboréachi
+¿ es este el que dices que le compraste a Abraham ?
+¿ es Abraham ese ? - parece serAbraham
+mal me corneó la vaca
+¿ cómo se pone a cornear un toro ? - pues con la cabeza
+el toro estuvo corneando la tierra y los pinos y donde había táscates , con mucho coraje
+parece ser un buen portamonedas ( o billetera : LIT . para poner dinero )
+el talego es para poner el pinole
+antes sí venían , cuando yo les decía
+no da vueltas ; ya se atoró
+voy a poner la carne en los frijoles
+ponlo adentro a que se seque
+pusieron al niño aquí adentro ( lo inscribieron en la escuela )
+lo dejé adentro y me fui
+dejaré esto aquí ; es una apuesta
+voy a dejar aquí el frijol ; después lo recojo
+¿ quién , si no , creó ( colocó ) este mundo ? Dios solo lo creó
+hermosamente creó este mundo que pisamos
+depósito - , soporte , objeto para poner ( en él ) alguna cosa
+poner , colocar ( una cosa )
+ponerle ( una cosa a otra )
+ponérselo
+ponerle ( a alguien )
+¿ cómo te llamas ? - me dicen Quirino
+¿ cómo le dicen a esto los tarahumares ?
+le sonó ( pegó ) muy fuerte
+le dí muy duro !
+ponle ( al monte de ) chichimoco ; le va a dar mucho coraje
+pero dale fuerte , a ver si así entra en juicio
+eso dice
+¡ cuántas cosas dices de pura tristeza !
+mucho dices , pero no haces nada
+dice que ( vengan ) desde muy lejos
+así pues , parece que no tienes ganas de ir
+ponle al pinole . - después , cuando esté hirviendo .
+ya se va saliendo ! ponganle una piedra !
+ponle el pinole . - después cuando esté hirviendo
+se lo pusieron ( un adorno ) a la corona de danzante
+luego que le haya úesto estiércol ( a la tierra ) , entonces dice que se va a sembrar
+tortilla rellena ; a la que le pusieron frijoles adentro
+¿ dónde lo pongo ?
+nadie más que Dios nos ha dado el aliento
+¿ quién pues , es el que te dió el alma ?
+como nos han hecho hablar ; del modo como Dios nos dio el habla
+carga
+ponérselo
+me estoy riendo de ti
+no más te estás riendo de mi
+vamos a aporcar las papas
+¿ cuándo , pues , vienes a traajar aquí ? no más que acabe de aporcar
+voy a bolear las milpas
+acabé de trabajar muy enfermo , aporcando mis milpas
+y la carga ( las baterías de una linterna eléctrica ) ¿ cuánto cuestan ?
+aquí paso las noches cuando ya jilotea el maíz
+¿ como han pasado estas noches ? ( saludo del cacique de Banarachi a su pueblo )
+¿ amanecieron ustedes con bien ?
+aquí abajito paso las noches ; paso las noches cuidando mis sequitos ( mazorcas que se secan )
+¿ cuántos meses tiene el niño ? - nació cuando se aporcaba el maíz
+ponmelo arriba
+pónmelo más ariba
+asado ( cecina ) : carne seca , a la que se le ha puesto chile ; se llama así porque se come asada
+frijoles con tropiezos de carne
+¿ de qué es esta agua ? - es ( agua cristificada ) ( ! ) ( lo dijo una india de una olla de agua en la que se había sumergido un crucifijo )
+parece que allí está bien para bañarnos
+ve por agua ; ve por agua allí
+es que él me hizo reír
+también Lirio lo vió
+yo no te dije se fué corriendo ; te dije corrió . - es lo mismo
+a mí también me sucedió igual
+y del mismo modo ustedes , las viejas ( las mujeres ) ; reúnanse todos los domingos
+este cinco ; ¿ y tú ? - yo otros tantos
+pónmelo adentro
+después me lo pones encima de la troje
+nadie más que Dios nos dio el alma
+Dios nos dio el habla
+puesto que nos fue dado este corazón
+¿ dónde te lo pongo ?
+le dije una cosa y se rió
+por poco me río adentro , cuando rezábamos
+por eso me reía
+lo escondió Valerio ; está como queriendo reírse , míralo
+reírse ; reírse de otro
+hacer reír
+hacer reír
+risa , risotada . el reír
+dice que Manuel se rió mucho
+yo quiero un arco . - yo también
+el aporque ; el tiempo en que se aporca el maíz , en que se bolea , arrimándole tierra al pie de las plantas
+ya es desde el pasado aporque ( del maíz )
+me hiciste reír
+a ver , lo voy a hacer reír yo
+dejen definitivamente esas risas
+no hay que reírse
+siempre hagamos la cruz ; continuamente pidamos perdón
+el dolor en continuo ; sólo muy de tarde en tarde me deja de doler
+siempre anda oliendo mal ; cuida cabras , por eso ya está impregnado
+vamos derritiendo la trementina . - ¿ dónde ? - en la lumbre
+lo bebes disuelto en agua ( LIT . te lo bebes con agua disolviéndolo )
+¿ en qué lo echamos para derretirlo ?
+¿ en qué te lo disuélvo ?
+¿ tú eres el cocinero ? - sí - hazme el favor de derretírmelo ( enseñandole el objeto )
+se disuelven la manteca y la nieve y el azúcar ( el dulce )
+la sal de deshizo en el agua
+se va a deshacer la sal ! hazla a un lado !
+no más que salga el sol , luego se derretirá la nieve
+( 1 ) derretir , disolver , deshacer , fundir
+derretírselo , disolvérselo , deshacérselo , fundírselo
+fundirse , derretirse , disolverse , deshacerse
+disolver , fundir , derretir , deshacer
+¿ qué , les tienes miedo a las muchachas ? - sí
+cuándo eras chiquito ¿ tú comiste cocido de carne ? - sí
+y luego , cuando andaban buscándolo , él estaba con María
+me lo voy a comer ( el dulce ) convidándole al caballo , si no camina
+dice que nos darán trabajo por maíz ( dándonos maíz ) ; de aquí a dos semanas ganarán ustedes mucho maíz
+y Dios se llevará consigo ( LIT . jalará ) a los buenos
+era ya domingo , día 17 de agosto de 1947
+tráete para acá usa cobija ; no sea que alguien ( algunos ) se la lleve
+hizo enfermar a algunas mujeres ; algo les haría comer
+a mí ya me estupraron , dicen algunas
+unos no quieren ; otros dicen que si quieren
+otros ( en contraposición a a estos , esos ) ; distintos
+esos eran otros
+todavía muchos rarámuri creen así ; porque por nada del mundo son capaces de creer ya otras cosas
+otros ( otros más a parte de estos )
+Beto puso allá otros ( más )
+en ( o : hacia ) algunas partes , algunos lugares
+los otros
+como venados ( salvajemente ) vivien en algunas partes
+parece que ya hay elotes en algunos lugares
+en algunas partes , en otros sitios
+los de otras partes no saben hacer esto
+sólo unos cuantos no quieren
+es que allá andan algunos ( unos cuantos )
+a los otros no los conozco
+cuando ya estaba sin sentido ( para morir ) , llegaron los otros
+¡ qué pena , ya se acabaron !
+ay , me duele mucho !
+¡ qué pena ! dices que no tienes !
+ahí viene ( hacia acá ) ! ahí viene !
+acá viene Pablo
+se fue por acá
+vete mejor por acá
+ya se agujereó el huarache ; lo desgasté muy pronto
+¿ de quién es este huarache ? - mío no es
+¿ qué te hallaste ? - era una herradura de caballo
+descalzarlo , quitarle los huaraches ; quitarle las herraduras ( a una cabalgadura )
+descalzar ; quitarle a otro los huaraches , o a una cabalgadura las herraduras
+descalzarlo
+descalzárselo
+atar el huarache , poner correas al huarache
+correa para el huarache
+hacer que ( otro ) se ponga los huaraches
+calzarse , ponerse el huarache , herrar , ponerle herraduras a una cabalgadura
+calzarlo ( ponerle los huaraches a alguien ) ; herrarlo ( ponerle herraduras a una bestia )
+a ) deszalzarse , quitarse los huaraches
+hacer que ( otro ) se ponga el calzado
+hacer que ( otro ) se ponga los huaraches
+a ) tener , traer huaraches , andar calzado
+ir calzado
+es que parece desgastado ya . - no ; está bueno
+nada más cosas buenas ofrecen
+río arriba dicen que está muy brava la enfermedad ; en Sarabichi dicen que ya están otra vez bien
+de este modo , cuanta cosa es buena , dicen que la hizo Dios
+mejor , más bueno
+el mejor
+¿ está buena ? ( la sal ) - sí ; tiene mucha fuerza
+ya está bien dulce . - a ver , déjame ver
+esta manta está muy buena ; es muy resistente
+no están buenos los frijoles ! pónganles sal !
+dulce , salado , ( en buena sazón )
+endulzarse , ponerse dulce
+endulzar , sazonar con sal
+endulzarse , sazonarlo con sal
+endulzárselo , sazonárselo
+dulce ( endulzador , golosina )
+endulzar
+endulzarse , salarse , tomar sabor con la sal
+desendulzarse , ponerse desabrido , perder sazón
+desendulzar , quitar ( a un alimento ) el sabor a dulce o a sal
+desendulzarlo , quitarle el sabor ( dulce o salado )
+endulzar
+endulzar
+endulzar , sazonar con sal
+endulzar , sazonar con sal
+endulzarlo , salarlo , sazonarlo con sal
+¿ vendes maíz ? - con él vengo ( aquí traigo ) , para que cures ( bendigas ) tú el maíz
+¿ como , pues , viniste con ( con él : el traje de baño ) , y no te bañaste ?
+luego vas tú con ( ello ) , luego lo llevas tú
+otra vez vendré con ( esto ) traeré ( de esto ) otra vez
+¿ y la cuarta ? - yo la traigo ( yo voy con )
+¿ y el bastimento ? - allá por la ladera va con ( allá por la ladera lo lleva . . . fulano )
+¿ con qué está ? ( ¿ qué trae ? ¿ qué tiene en la mano ? )
+a ver ; qué tan larga ( es ) tu naríz ; te la voy a medir
+lavar , lavarse las narices
+en la naríz , de la nariz
+invertir , poner de narices ( boca abajo )
+invertirlo ; ponerlo boca abajo
+invertírselo , ponérselo boca abajo
+invertirlo
+invertírselo , ponérselo boca abajo
+estar con dolor de nariz , dolerle a uno la nariz , dar dolor de nariz
+dolerle a uno la nariz , tener dolor denarices
+tener dolor en la nariz , doler la nariz
+dolerle a uno las narices , tener dolor de narices
+tener dolor en la nariz , dolerle a uno la nariz
+máscara , cubrenariz
+de narices , en la dirección de las narices
+irse de narices , en particular , golpeándose , chocando con la nariz
+echar narices , criar narices
+desnarigar ; cortarle a uno las narices
+desnarigarse , cortarse las narices
+desnarigar , cortar las narices
+ponerle narices ( las n . ) a otro , a un dibujo , etc .
+mover las narices ( vg . olfateando , gesticulando )
+tener narices , tener las narices
+revolví el pinole con dulce
+allí en las encinas vivían algunas moscas que ponían dulce ( abejas )
+lo machaqué y lo exprimí ; lo exprimí muy fuerte ; entonces sale un jugo muy dulce , exprimiendo el maguey
+muy bondadoso espíritu tiene Dios ; muy bondadoso espíritu tiene María Santísima , nuestra Madre
+y nosotros , ¿ qué tan dulce corazón tenemos ?
+danos dulces
+es allá arribita donde hay que endulzarse ( tomar los dulces ) , luego de rezar
+vamos a endulzarnos la boca
+no sea que me ponga salado del estómago
+quiero mucha sal para sazonar la verdura
+no lo remojes ! le vas a quitar el sabor
+endulzo ( el pinole ) con piloncillo y me lo tomo con tortilla
+la muchachita no endulzó bastante el pinole
+¿ con qué lo endulzaste ? - con azúcar
+está muy amargo el atole ! endúlzamelo !
+¿ han pasado ustedes bien los días ? ¿ han ido amaneciendo bien ? ( saludo de un cacique al pueblo , antes de su discurso )
+le pegué en la mera nariz
+echó sangre de la nariz
+no se puede dormir a gusto ; tiene muchas bolas ( LIT . en muchas partes está boluda ) la almohada
+no puedo quitarle las herraduras ; está muy bravo ; quítamele las herraduras tú
+¿ se mueve uno si es escupido ( por el escupión ) ?
+¿ qué es de ti la Ana ? - es mi abuela paterna
+¿ es ( tu ) abuela paterna la anciana ? - no ; es mi abuela materna
+tener abuela ( paterna )
+¡ con esa curación duele mucho la nariz !
+¿ duele mucho la nariz cuando le pasa a uno eso ?
+me duele mucho la nariz ; me arañó un gato
+tengo mucho catarro ; ya me he sonado ( limpiado los mocos ) muchas veces ; desde mañana parece que me va a doler mucho la nariz
+parece que no va a caber nada ( de ninguna manera cabe )
+no cabe
+no pude hablar ; habla en secreto ( está afónico )
+yo alcanzo a labrar diez ( durmientes ) en un día
+con mucho sufrimiento corre ; poco puede caminar ; seguro que va a caer muerto ( LIT . va a quedar tendido para morir )
+préstame la navaja . - ¿ qué vas a hacer ? - a ponerle la correa a mi huarache .
+correa ( para el calzado ) ; atadura del calzado
+soltarse , desatarse el calzado
+hacer que ( otro ) se desate el calzado
+desatar , soltarlas correas , las ataduras del calzado
+desatarle , soltarle a otro las ataduras del calzado
+desatárselo ; soltarle las ataduras del calzado
+correa ; atadura del calzado
+atarle el calzado ( a otro )
+correa ; atadura del calzado
+no puedo desatarlo ; tengo tiesas lasmanos ( por el frío ) ; desátamele tú el huarache
+está muy resistente la correa , no se corta
+se agrieta mucho la correa
+no duran nada las correas ; siempre se andan rompiendo
+hender , partir hendiendo
+henderlo , abrirlo ( hendiendo ) , henderle , abrirle
+abrírselo , hendérselo
+hender , abrir partiendo
+henderlo , partirlo , henderlo , partirle
+hendérselo , partírselo , abrírselo
+a ) transportador en forma de cono ( para acarrear cosas a la espalda )
+el jefe de danzantes anda con máscaras durante la danza
+se cayó de narices
+ponte boca abajo , bebe agua
+no cayó boca abajo , cayó de hocicos
+ponla ( la olla ) boca abajo
+ustedes , que me abren ( los dedos )
+no es herradura de caballo , es herradura de mula
+¿ las herraduras se hacen cuando ( el hierro ) está caliente ?
+¿ de quién es ( este ) huarache ? - es mío
+me pondré ( llevaré puestos ) los huaraches de hule hasta que se acaben
+¿ qué ( calzado ) te vas a poner , si se te acaban los zapatos ?
+ya me acostumbré ( a traer zapatos ) ; voy a tener mucho frío si vuelvo a los huaraches
+ya va echando narices el chamaco ( se va haciendo narigón )
+son los mejores
+aquí no es bueno quitarse los huaraches
+ya se le cayeron al Retinto las herraduras de las patas
+quítamele las herraduras ; vamos a ponerle herraduras nuevas
+¡ no quiere ponerse los huaraches ! quiere andar descalzo . pues hazlo a fuerzas que se los ponga
+¿ está dulce ? - sí está muy dulce
+¡ sal ! que están desabridos ( les falta sal a ) los frijoles !
+cuando ya hayan sazonado , estarán bien dulces las cañas
+estaba re - sabroso el atole !
+¿ sí se te hace sabroso ser azotado con esto ?
+todavía no se han puesto buenas ( o dulces ) las cañas ; aún no están bastante grandes
+desobediente ! te voy a cortar las narices si no haces caso
+me caí y me corté la nariz en una piedra
+primero desnarigó al ratón al quitarle la piel
+córtamele las narices , es muy grosero
+aún no han arreglado nada , desde hace mucho tiempo
+¿ pero en qué vas a llevarte las gallinas ? - pues en el cono
+planta que produce esta flor
+¿ para ponerle las herraduras lo tumbaron ?
+va a quedar muy sabroso el pescado , sazonándolo
+¿ cómo le pondré narices a mi máscara ? va a ser muy difícil hacer la nariz
+ponlo con la nariz en la ceniza ( LIT . tiéndelo poniéndole la nariz en la ceniza )
+¿ por qué el conejo mueve tanto las narices ?
+miel de abejas
+no lo pude abrir
+no voy a dar sazón a los frijoles , no se vayan a acedar
+andúlzalo echándole azúcar para beberlo ; es muy amargo
+esos desovan en el agua
+¿ qué , en la arena ponen sus huevos las tortugas ?
+cómete los nopales sin echarles sal
+vengo a comprar sal , unos dos reales ( 25 cvs . ) - ¿ qué vas a sazonar ? - los frijoles
+les echaste demasiada sal !
+es que le repugna mucho la carne ; no la quiere comer . - pero sazónasela bien ( con sal )
+nos vivimos insultándonos por los montes
+¿ no tienes un cuchillo ? voy a ponerle correas a mi huarache
+de casualidad oyes ?
+¡ ven acá sordo !
+enaro me duelen mucho las plantas de los pies ; ando descalzo ( no calzado )
+el caballo anda descalzo de una ( mano )
+la nutria es muy buena nadadora
+narices de botella !
+llegaron unos muchachos con las narices perforadas ( dicho al comentar una película )
+¡ chiquillo narices aplanadas !
+¡ tú no oyes ! ¡ estás sordo !
+¿ estás sordo ? ¿ no oyes ?
+¿ cuándo nos haces oír otra vez el radio ?
+¿ cuándo echamos a nadar los patitos ?
+moselo oír ( hagamos que lo oiga )
+los de por allá ( tierras lejanas ) tocan precioso el violín ; Ropiri me loshizo oír
+¡ haz que lo ioga pronto !
+lleva abajo los patitos ; echámelos al gua ( hazmelos nadar )
+hace mucho viento , no se oye
+aké no oye mucho ( es duro de oído )
+¿ es que stoy pyendo , o estoy soñando ? . . .
+habla fuerte , que no se oye !
+mi papá oyó que estaba disparando ( un rifle )
+busco un remedio . ve a pedirles allá abajito . es que no oyen ( entienden rarámuri ) las gentes de abajo
+oyente , que oye
+oyente , que oye
+hace oír
+hacerle oír , hacer que lo oiga
+hacerlo que lo oiga
+¿ sabe bien nadar el perro ?
+ayer decía el chamaco que sabe nadar muy bien , que porque es muy hombre
+creció mucho el río ; ya no podíamos pasar ; los caballos nadaron bien
+entonces , los otros luego luego me siguieron ; por poco se atollan ; bastante más acá de Bakaratos , nadaron bien
+hacer nadar , echar a nadar
+hacérsele nadar , echárselo al agua
+hacer nadar , echar a nadar
+¡ ya rompiste los zapatos ! - así los traía ya
+se camina muy de prisa calzado con estos
+así tiene él los huaraches ( observando una huella )
+da mucho calor andando con zapatos
+en una pata no trae herradura
+tiene la nariz respingona
+te cortaría las narices , si no las tuvieras tan chiquitas
+así tiene la nariz
+pero haz que ( lo ) oiga bien
+¿ echamos a nadar a los patitos ?
+de una vez me voy con ellos ( estos zapatos ) puestos
+habla fuerte ! no se oye
+por eso se oye muy lejos
+allí , en cambip , se oía muy fuerte
+no se oye
+confleuncia , junta de dos arroyos , ríos , cañadas
+confluir , juntarse dos corrientes , dos cañadas ; haber confluencia
+el cauce , en el cauce de un río , arroyo , etc .
+en el canal , en la zanja , en la acequia
+acanalar , abrir cauce , hacer zanja
+abrir cauce , hacer canal , acequia
+zanja , canal , acequia
+acanalar , hacer cauce , canal , acequia
+haber ( estar hecho ) un cauce , un canal , una acequia , una cárcava
+abrir un cauce , un canal
+hacer un cauce , un canal , acequia , cárcava
+despachar , hacer a uno que se vaya ( compl . sg . )
+despacharlo ; hacerlo que se marche
+irse , marcharse ( uno solo )
+más acá , más hacia acá
+hacia acá , más para acá
+en un lugar ( o momento ) más hacia acá , más cercano
+más acá , más hacia acá
+más acá
+más hacia acá ; aún más para acá
+se fue de huída
+ya se acabaron
+se fue para arriba
+se fue para abajito
+¿ dónde está Simón ? - acaba de irse a su casa
+¿ a dónde se fue el chico ?
+cuando tú te fuiste me dormí
+se oía que se fue para arriba
+murió ; ya hace seis años que se fue ( murió )
+ayer por la mañana decía que tenía mucho dolor ; a la media noche se murió
+tú lo tumbaste . no ; él sólo se cayó
+se trozó el cabo ( del hacha )
+no hay nada . - sí ; aquí se metió
+se te saldrá el alma
+pónganse más acá y escuchen !
+siéntense apretados más para acá
+ponlo más acá
+vivo río arriba , donde se juntan los ríos
+¿ quién está ( vive ) ahora en La Junta ?
+se formó el cauce , y ahora corre bien el agua
+¿ y las cabras ? - andan por el arroyo ( el cauce )
+lo encontré en el cauce
+el agua abrió brecha aquí
+iba a buscar azúcar para la chiquita
+se fue para abajito . - ¿ se fue él ?
+por ejemplo , si este anciano se muere , la tierra será tuya
+ya se pudrió
+trae acá los catalejos . - ¿ por qué les llamas así ? - porque se ve muy lejos
+venga acá uno !
+deja que traiga para acá esa cobija , no sea que alguno se la lleve
+acérquense para cá ! les van a decir unas cuantas palabras !
+del lado de acá ( de un río , de un llano )
+del lado de acá ( de un cerro )
+¿ dónde andaban las cabras ? - andaban de este lado de Káracho
+dicen que bajó allá , un poco más acá de Sitagápachi , donde le dicen Chamochi
+tírale más para acá
+más para acá , más ára acá !
+luego de cosechar , poco después ( más acá ) hizo eso
+luego desde un poco después , comenzó otra vez a hablar mal
+pasó mucha agua ; por eso abrió cauce
+hace mucho abrió su cauce ; ahora ya corre bien el agua
+pongan más cerca a los hombres ( háganlos que se pongan más cerca ) ! no se va a oír !
+está muy pedregoso el cauce
+a la primera vuelta se juntan los arroyos
+allí agua arriba se junta el río
+allí haremos la casa , porque está parejo
+parejo ; donde no hay piedras
+voy a echar el ganado por terreno bueno
+el camino a Chihuahua está en buenas condiciones ; pasamos por tierra sin contratiempo
+por eso , en adelante vivamos sin reproche
+ahora sí me he portado bien
+parejo , no escabroso ; ( FIG . ) bueno , recto , irreprochable
+en sus cinco sentidos , sobrio , no borracho
+igualar , emparejar , quitar lo escabroso ; ( FIG . ) hacer bueno , apaciguar , poner orden
+allanarse , emparejarse , ser o estar llano . ( FIG . ) ser bueno , recto , irreprochable
+es muy laborioso ser rectos
+antes estaba muy malo ( el camino del río ) ; pero vino una gran avenida ; en seguida se emparejó
+había muchas piedras , pero pronto quedó ( estuvo ) escombrado , parejo
+¿ dónde andará Bianchi ?
+seguramente por eso estuvo triste el niño ese
+tú dijiste que me darías uno
+¡ cómo a míno me dan ! . . .
+me lo entregas en mano
+a mí no más 12 me dieron , puras cascaritas ( hablando de cacahuates )
+dame una camisa
+dame un cigarro
+dame tantita agua
+¿ qué le hace que no me den ?
+aconsejar ( LIT . dar pensamiento )
+hacer reflexionar
+hablar a alguien ( exhortando o arengando )
+cansar , darle fatigas a uno
+por eso nos dan consejos
+anden , háganlo reflexionar ( a un acusado en el juicio )
+esto no más les digo , cristianos
+¡ cómo cansan ustedes !
+¿ qué andas buscando ? - busco maíz
+¿ qué busca Albino ? - buscaba manta
+Padre , te buscan aguera
+¿ dónde venden maíz ? - arribita , y también arroyo abajo , donde Chole . - bien , voy a buscar
+buscarle , buscar para
+búscarle , conseguirle
+Padre , ya olvidé las oraciones
+¿ son oraciones esas ?
+les recé por el camino
+¿ dónde sueles rezar tú ? ( e . d . ¿ a qué templo acudes tú ? )
+sí llegó el Padre , el que nos reza
+que se vayan adentro a rezar , luego bailarán
+anda pues ; vámonos abajito a rezar . - si yo ya recé por la mañana
+Concho se me rió cuando estábamos rezando
+yo ya recé ; yo ya hice la cruz ( me persigné )
+¿ vamos a jugar después de leer ?
+¿ pues por qué se huyeron ? ( los alumnos de Sikirichi ) . - es que son muy perezosos , son muy perezosos para leer .
+oración , rezo , lectura
+rezarle
+rezar
+soler rezar , rezar frecuentemente o habitualmente
+director de rezos ; sacerdote , rezandero , maestro , el que hace leer
+dirigir los rezos , el culto , hacer rezar , hacer leer , enseñar a ler ; ser maestro
+dicen que por allí salen de noche unas cosas brillantes , que parecen sacerdotes ; eso dicen
+en Choguita hay un maestro ( uno que hace leer a los muchachitos )
+¿ les rezo brevemente y luego los hago salir ?
+sí ; nos hicieron rezar adentro
+¿ a dónde vas ? - a Ba'wichiki . - ¿ vas a hacer rezar a los tarahumares ?
+¿ sabes leer ya ? - sí , un poco . - ¿ pues quién te enseñó a leer ?
+ya cumplí un año de amaestro ( haciendo leer a los niños )
+déjame probarlo
+la chiquita se fue a la casa a saborear el dulce
+ese hace trabajar a la gente por puro batari ( suele , habitualmente hace batari para el trabajo )
+¿ ponemos en tu dormitorio las 12 cubetas ?
+pongámoslas ya
+cómo antes las ponía . . aquí
+en días pasados las pusimos ( las ollas )
+¿ y las ollas ? - pónmelas en aquel rincón
+en casa hay unas ( ollas ) chiquitas
+lleven las ollas abajo . - ¿ dónde están ?
+son hijas mías
+allí afuera están hablando tus hijas
+fijate , ya tiene dos hijas
+no tengo hija
+¿ no me menudeas este dinero ? quiero sólo ( monedas ) de a cinco
+dame ( monedas ) de a cinco
+¿ quieres ( monedas o billetes ) de a cinco ?
+dando de a cinco centavos no será gravoso
+acérquense de cinco en cinco
+¿ qué buscas ? - busco jabón
+los rarámuri buscan mucho la manta
+¿ y por qué buscas venaditos ? ¿ es que eres muy malo ?
+allí se metieron
+llévalo allá del otro lado
+¿ dónde lo pusiste ? - allí - ¿ dónde allí ?
+el que está allá arriba lo sabe bien
+yo quiero aquella camisa . - ¿ cuál ? - aquella !
+allá , hacia allá
+más allá , más para allá , más tarde , después
+hasta allí no más ; un poco más allá
+es que hace poco te fuiste a Humariza . - a buscar trigo
+porque dice que te andaba buscando ; te buscaban mucho ( eras muy buscado )
+ve a buscarme la llave
+ya me cansé de buscarlo
+consígueme uno como este
+¿ a dónde fuiste a echar las reses ? - allá río abajo
+allá va una niña que no trae nada de camisa
+anduve espiando ( o siguiéndole el rastro ) a uno de por allá ( muy lejos )
+no resulta bien poner de fiesteron a gente de por allá ( muy lejos )
+me levanté sonámbulo , y por ahí anduve ( sin rumbo ) sin darme cuenta
+¿ quién pues , además de él , nos da la comida ?
+El solo nos pastorea ; no hay nadie , aparte de él , que nos cuida
+doce ( diez más dos )
+¿ y qué más te dijo ?
+¿ qué comiste ? - tortilla - ¿ y qué más ? - frijoles . - ¿ y qué más ? - esquiate , - ¿ y qué más ? - nada más
+dejémoslo ; ¿ qué importa que después tenga hambre , porque él mismo no quiere trabajar ?
+en las aguas danzo , para ahuyentar el granizo ; más tarde , cuando ya se ha puesto amarillo ( el maíz ) , ahuyento el hielo , para que no se hielen los maizales
+allá ( en la gloria ) nos colocará , para que vivamos felices , si le hubiéramos pedido perdón , si le hubiéramos tenido fé
+nos dará largamente los años ( larga vida ) , para obsequiarnos el alimento , para que vivamos largo tiempo teniendo qué comer
+ponte mucho más allá
+ponlo más allá
+va a helar muy pronto ; sembraré más tarde
+allí se vomitó - ¿ dónde allí ? ( dónde precisamente ) ? - allí en las piedras
+¿ dónde lo pusiste ? - allí - ¿ dónde mero ?
+¿ no me consigues un limpiadientes ?
+buúscame ( consígueme ) huaraches de estos ( de llanta )
+yo también quería un cuchillo ; consíguemelo cuando vayas a Chihuahua
+¿ dónde andabas ? te andan buscando mucho . - me fui a andar del otro lado del cerro
+Padre , te buscaban afuera
+dijiste que me darías uno
+yo creía que nos daría con la cuchara
+tres veces estuvieron a punto de muerte ( LIT . casi se murieron )
+aquí están muy cerquita ! ( unos agujeros de otros )
+siembra apretado ( a cortos intervalos , muy cerca una semilla de la otra )
+yo también vivo en Merochí , junto ; ( estamos ) muy cerca
+son muy cercanos
+¿ qué tan cercanos ( en parentesco ) no es permitido que se casen ?
+aquí está
+desde aquí
+¿ qué color tiene el ala ?
+ala ( de ave ) ; aleta ( de pez )
+alado ( que ) tiene alas , o aletas ( los peces )
+tener alas ( o aletas , los peces )
+criar alas , echar alas
+lastimarse las alas , cortarse las alas , perder el o las alas
+cortar las alas , estropearle las alas a un ave
+cortarle las alas , desalarla ( a un ave )
+darle alas , ponerle alas
+aletear , mover las alas
+tener alas
+iguales
+medir , igualar
+igualarse
+por igual , por parejo
+¿ cuándo llegaste ? ahorita - ¿ vinieron los dos ? ( tú y ella ) . - sí . - ¿ dónde está ( ella ) ? - está en casa de su papá
+no están llegando por parejas los rarámuri ; sólo los hombres vienen
+estos siempre trabajan juntos ( la pareja : el marido y su mujer )
+reunámonos siempre
+nosotros no nos reunímos ( no acudimos a las juntas )
+ustedes no se reúnen
+júntense las mamás ( reúnanse los domingos )
+reuniéndonos numerosos
+es fuerza que nos juntemos todos ( cabales , sin faltar uno )
+vinimos los dos ( mi mujer y yo )
+reúnanse todos los domingos
+ustedes no suelen juntarse
+no se juntan nada los de Tawichi
+¡ qué importa que se reúnan ( ustedes ) pocos ! . . .
+son las mamás ( las mujeres ) las quese reúnen todos los domingos
+debemos juntarnos bien
+es que ( el demonio ) no está parado lejos ( de nosotros ) ; está parado bien cerca
+lo vimos de lejos
+es que no le hablé ; no más lo vi desde lejos
+a los que se andan juntando así no más ( en amasiato ) casémoslos en seguida
+está atorado con el otro ! ( hablando de dos animales que querían pasar al mismo tiempo por una estrechura )
+que les ayudes tú a juntar a unos rarámuris
+las alas del azulejo son azuladas
+el aura es blanca de alas ( por la franja blanca que lleva en la parte interior del ala )
+es que el renacuajo no tiene aletas
+los patos tienen alas chiquitas y un poco raras
+en la Semana Santa pelean también Dios y los que viven abajo
+hubo muchos pleitos anoche
+párense a uno y otro lado y levántenlo
+lo pasan ( el cadáver ) en ambos sentidos entre el humo , haciendo una cruz
+la serpiente camina poniendo el rostro para uno y otro lado
+es muy enérgica la hierba del zorrillo ; pero de los dos modos : con diarrea y con vómitos
+pidamos perdón unos por otros
+hay que estar viéndose mutuamente
+tú eres casado ; si se hubiera muerto tu esposa , hubiera estado bueno tomar mujer de nuevo ; los dos se tienen miedo
+mutuamente
+hacia una y otra parte
+a , en ambos lados
+a en ambos lados ; en los dos sentidos
+a uno y otro lado
+mutuamente ; uno a otro
+se están golpeando ( uno a otro )
+volveremos a hablar cara a cara ( viéndonos uno al otro )
+se ayudan mucho mutuamente
+párense a los dos lados y jalen
+yo hablo de los dos modos ( las dos lenguas ; castellano y rarámuri )
+el azulejo ya no quiere cantar
+ahí ( hacia acá ) viene un indio a comprar cigarros
+mira el mío ! Ahí ( hacia acá ) viene !
+me vine ( partí para acá ) muy temprano , y apenas acabo de llegar
+aquí tienen que veniresas mujeres
+salí ( hacia acá ) de Tónachi
+salí ( hacia acá ) de Karichí
+como mandan decir de Wérachi
+llegaron muchos ( habitantes ) de por allá ; poreso tienen miedo
+por allá se quedan ustedes desntadas , mujeres ! Pónganse acá más cerca !
+lléguense acá más cerca , cristianos ! Ustedes , muchachas , por allá se quedan sentadas !
+¿ por qué encimó los adobes ? Pronto se van a quebrar
+los encimo ¿ no ?
+los sombreros están en montón
+está encima la casa arriba ; tres veces encimada ( una casa de 3 pisos )
+( vimos ) una casa que eran seir encimadas ; estababa muy alta
+mira ! Están encimados los pescados
+¿ no tienes monedas de las de a cuatro reales ? ( de 50 cvs . ) quiero cambiar
+denles de a cuatro
+¿ y de los otros ? ¿ de los ( en que entran ) de a cuatro ?
+¿ Cuántos te doy ? - de a cuatro
+por donde quiera anda ese
+en este tiempo , donde quiera andan bebiendo los rarámuri
+( 2 ) ¿ pues de qué ( pájaro ) es esta ala ?
+ya dentro de muy poco va a entrar en agonía
+todavía están muy chiquitos ; aún no echan alas
+el mayate es muy blanco , antes de criar alas
+congréguense cabales ( todos ) los domingos
+no es igual de fuerte
+está del otro lado
+parece que estuvieras del otro lado
+siéntate de este lado , en esa piedra
+los que están de este lado
+tú siéntate del lado de acá
+la semana antepasada , o : dos semanas después
+y luego , dicen que Dios le puso alas ( a la hormiga ) para que escapara rápido
+reparte por igual
+pero pártelo por igual ( en proporciones iguales )
+júntense cabales ( todos , sin faltar ) , en las fiestas
+si ya se emparejaron Calixto y Gerardo
+es un perverso Patricio . - ¿ y su hijo ? . son iguales
+en el darnos cuenta de las cosas algunos son distintos ; no somos iguales ; algunos somos desmandados
+no todos sabemos igualmente portarnos bien
+fíjense en que no nos juntamos cabales ( no venimos todos )
+esos ya están iguales ( ya se igualaron )
+ya se le emparejaron los dientes
+aguanta , si eres tan hombre
+a ver : aguantemos cinco días sin comer ; ¿ lo aguantaremos ?
+no se puede soportar ; hace demasiado frío
+¿ tú aguantas si te caes de esta altura
+aguantador
+aguantarle , soportarle
+llorón ! No eres tan aguantador !
+Antonino es muy aguantador en las carreras
+vamos a medir el maíz . - yo no mido nada
+¿ lo mediste bien ? - sí lo medí bien
+¿ lo mediste antes de salir ? - sí lo medí bien
+medida ( instrumento para medir )
+medirlo
+medírselo
+hace ya un año que están separados ; de cuando en cuando viene ( y se vuelve a ir ) ; así y todo , ya tuvieron un hijo
+se enojan mucho ( conmigo ) las muchachas
+trae acá la medida . - no está
+vimos ( en una exposición ) medidas y cocedores , grúas , prensas para metales , escalpelos y microscopios
+¿ no compras maíz ? - sí . - mídelo pues
+aletea mucho , ( molesta mucho aletenado ) , ( un cócono que no se dejaba llevar )
+¿ cómo vuela , sin mover las alas ? ( un zopilote planeando )
+¿ es frijol ? - dice que es frijol . - mídeselo pues luegoluego
+na parejos los corredores
+todos son igualitos
+¡ pónganse en línea muy parejos ! ( formen rectas las filas ! )
+no nos juntamos muy cabales ( no hemos venido todos )
+cuando yo dé el grito , exactamente al mismo tiempo le pegas tú
+al mismísimo tiempo matas la vaca
+le dimos al mismo tiempo
+juntos llorémosle a Dios , que nos dé cabal el alimento
+al mismo tiempo , jalemos parejos
+me va a dar la medida
+es el camino de los antepasados ( la tradición )
+voy a entregar este maíz arroyo abajo , donde Salvador ; mídemelo por favor
+él desde antiguo les dio ( a los hombres ) el alma
+así nos lo entregaron ( trasmitieron ) antiguamente los antepasados
+así nos lo trasmitieron nuestros antepasados ( es nuestra tradición )
+los antiguos lo sabían todo
+yo me sostuve ( floté ) en el agua ; no me hundí
+ese no tiene alas ( no es alado )
+no truena tan fuerte
+me iré muy lejos . - ¿ a dónde lejos ? Dínoslo pronto
+¿ a ti qué te digo ?
+esto tenía que haberle dicho yo
+ya les llamaron la atención ; no les den dinero , les dijeron a los de Ciudad Juárez
+como les han dicho a ustedes
+yo le diría " prayeta " ( a la franela )
+¿ cómo le llaman ustedes a esto ?
+llaman los rarámuri al estar quieto sentado en un rincón mientras llueve
+¿ no les echas un discursito ? ( ¿ no les dices dos palabritas ? )
+¿ no vas a echar discurso hoy ? - sí les hablaré
+ofender ( de palabra )
+ofender , hablar mal de
+¿ por qué te burlas tú de mí ?
+no andemos ofendiendo a la gente
+Patricio habla mal del General
+¿ qué sonó ? - no sonó nada
+sonó como dinero que cayó
+suena muy feo el agua ( el río crecido )
+¿ cómo suena el corazón ? - está brincando
+te oyes ( suenas ) muy cavernoso
+¿ cuántas veces ha sonado la campana ? - una sola vez - ¿ apenas ahorita una vez ?
+el caballo bebió hasta hartarse
+me dormí ya muy noche , por aso no me llené de dormir ; dormí muy de día
+tiene las alas muy rojas , y amarillas
+que el muchacho mismo le diga . - ¡ qué le va a decir él ! - pues tú oblígalo a que le diga ( hazlo que le diga ) .
+llévala con cuidado , sin hacerla sonar
+voy a beber hasta hartarme
+ya que estuvo encendido el fuego , le dijeron a ese : pártelo
+mete más adentro la mano , le dijeron ( le fue dicho ) al león ; y entonces el león metió la mano , sin sospechar nada
+¿ qué dice el hombre ese ? - no dice nada
+¿ quése dice por el río arriba ? - dicenque hay mucha enfermedad
+que ellos mismos digan ; nos vamos a quedar roncos de tanto altercar
+vendré al médico día , dijo ; se fue diciendo eso
+sí habla bien , eh ?
+ahora ya habló bien , se explicó bien
+no puede hablar , habla en secreto ( está afónico )
+¿ por dónde va ? - ¡ por aquí se oye ! ¡ por aquí se oye ! ( suena )
