@@ -33,10 +33,12 @@ as follows:
    Please note that each `DATA_DIR` must contain train, dev and test files for the source and target language. In case the data not yet released, please use a custum split.
 
    The language codes are as following:
+   - *Aymara*: aym
    - *Bribri*: bzd
    - *Guaraní*: gn
    - *Hñähñu*: oto
    - *Náhuatl*: nah
+   - *Quechua*: quy
    - *Rarámuri*: tnh
    - *Shipibo-knoibo*: shi
    - *Wixarika*: wix
