@@ -40,6 +40,6 @@ as follows:
    - *Náhuatl*: nah
    - *Quechua*: quy
    - *Rarámuri*: tnh
-   - *Shipibo-knoibo*: shi
+   - *Shipibo-konibo*: shi
    - *Wixarika*: wix
 
