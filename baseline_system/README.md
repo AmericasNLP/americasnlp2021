@@ -30,7 +30,7 @@ as follows:
     folder will be created. 
    - `[NUMBER_EPOCHS]` is the maximum number of epochs the system will be trained for.
 
-   Please note that each `DATA_DIR` must contain train, dev and test files for the source and target language. In case the data not yet released, please use a custum split.
+   Please note that each `DATA_DIR` must contain train, dev and test files for the source and target language. In case the data is not yet released, please use a custum split.
 
    The language codes are as following:
    - *Aymara*: aym
@@ -40,6 +40,6 @@ as follows:
    - *Náhuatl*: nah
    - *Quechua*: quy
    - *Rarámuri*: tnh
-   - *Shipibo-knoibo*: shi
+   - *Shipibo-konibo*: shi
    - *Wixarika*: wix
 
