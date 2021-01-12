@@ -21,7 +21,7 @@ pip install -r requirements.txt
 2. All steps are contained in `run_baseline_system.sh`, and can be run from the the current folder 
 as follows: 
     ```
-    ./run_baseline_system.sh [TGT_LANGUAGE] [DATA_DIR] [SAVE_DIR] [NUMBER_EPOCHS]
+    ./run_baseline_system.sh [TGT_LANGUAGE] [DATA_DIR] [SAVE_DIR] [NUMBER_EPOCHS] [-CLI|-REPO]
     ``` 
     where
    - `[TGT_LANGUAGE]` is the file extension for the target language. Example `wix` for Wixarika. 
@@ -29,8 +29,14 @@ as follows:
    - `[SAVE_DIR]` points to the folder where all of the system outputs will be saved. If it does not exist, this
     folder will be created. 
    - `[NUMBER_EPOCHS]` is the maximum number of epochs the system will be trained for.
+   - `[-CLI|-REPO]` defines the way fariseq is called. The default is -CLI.
 
    Please note that each `DATA_DIR` must contain train, dev and test files for the source and target language. In case the data is not yet released, please use a custum split.
+
+
+3. If you prefer to use a costum fariseq code. Please use the *-REPO* flag and specify in the code the *FAIRSEQ\_DIR* variable with the path that contains fairseq.
+
+### Languages
 
    The language codes are as following:
    - *Aymara*: aym
