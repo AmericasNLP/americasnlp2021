@@ -1,996 +1,996 @@
-Santo sèxnẽ Nueva York tã i kãnèxblë' élkêë 02 wòqó ie .
-Ì kũéxkĩ kèq be' mĩ kéxwe ?
-Be' káxwöta ẽ' tsúxkãt káx e' shàxë ã !
-Sa' be' chakéwẽwa sa' tã ẽ' batsóqk .
-Ãñìxes irir coche bua' bua' tso' káx i' kĩ .
-Wóqsũk kèq yè wòqã i wéqnẽ tö yö i kíxtsë tö ye' dör i yawèka .
-Wake' tã , skáxwöta se' dör biyòq ãmèxke ĩẽ' e' sãũk .
-Dawás fiscal i' wa ẽnã ièqt , escuela de derecho e' káxwöta ujtè ióqkwã wèxs i wòqârke i klóqktër e' wa estatal ẽnã úrki wéx pàtãwẽ wòqsìnã , séxjka tã 400000 $ e' tsáxka .
-Aû be' kèq ã pistola tsèxnũk Texas kãñíxka be' ù ã .
-I ajkáchökbla wéx ẽ' ali Oscar wa e' shkârë Indiana dawás 1973 .
-Irir nãwîx iówã ?
-Be' kalépa bíl e' kèq dör àksi ö se' tóqkblapa yéqs .
-Escuela de derecho e' dör pë' ujté klòqõ' .
-Be' tsë'wẽ irir bua' ichóqk .
-Ù yawè e' dör séxjka tã éqmẽ .
-Kèq ye' ã káxwöta íyi ése wà ichakök yéqs .
-Ye' ã icherak irir tö be' ẽ' tsúxãt ù ã .
-Ábionpa chéqulur bòqtöm káx oló kũéxkĩ .
-Aû kèq ye' éxn ã ĩàxnẽĩã wâñẽ .
-Kétket sö i pàtãwèxke íyi éqse súxrule se' wã e' kũéxkĩ . Alátsitsi ajkóqnũk , erë kèq sö i pàtãwèxkũ tãîxë wèxs banet e's .
-Biomas sa' zoológicos e' bak tawèx darêqrêqë .
-Kathy Dannels e' dör se' ĩùxtèke bét .
-Ye' éxn ã ĩàxnã tö ujtè i' e' dör be' kèmĩ káx bikeitsóqkka , erë tã be' éxnùxke e' pánèxke .
-Ie' dör ye' tsèqõ bua' dòqka tö yö i tòqkũ tö yì tã ye' tso' .
-Be' dë'rö ẽ' tsúxkãt káx áie ã ?
-Aû kèq se' wã e'köl alà tã' .
-Káxköltö dör dalôqlôq sĩêx , ẽnã ĩã mòx tso' íxẽ ẽnã aìẽ .
-I ulà wa i ulà wa i ajkà téqrke i ujté judicial ã .
-Éltë i ajkáche tso' dör ichèke tö be' wã alarma tã' .
-Kéxwe kèq ye' bakdë Texas yéqs .
-I wòqetpa wéx alê dór i tkòqõ e' dör Ãmìx Dìwö .
-Ye' káxwöta ẽ' yawóqkmĩ ye' wóqulârke e' wa .
-Be' ishkòqwèxmĩ míxk be' dör i ujté iéwã wéx ièkewa e' ã e' tã .
-Ĩúxn dìwö 20.000 millas e' tsáxka .
-Bua' , ì kũéxkĩ kèq be' dör i mâxwèxmĩ ? E' wâ dör tö be' ã káxwö ãmèxnã kibí ie e' ët ã , kèq be' tkînã i kĩ e' tã .
-Aû kèq ye' ẽ'n kìnẽ Ramona ichàkök .
-Ie' kèq bak .
-Kèq yì dör escuela de derecho ése wakpa .
-Ie' kèq wã ujtè yèqnẽ ét .
-Sa' iklòqwẽ tö sa' káxwöta i wébalök e' dör ì úxrke káx shùxã ése .
-Aû kèq ye' i pànãnũk ẽ' tĩóxwã ie Mãñãltë SS .
-Be' wak séxn e' icha wa ẽnã be' wak dalì wé e' ajkóqnũk .
-Míxk ukòqki yö iche tóq , ĩèxnãwã .
-Aû kèq ie'pa sèxnãk wòqtërule .
-Káx ulát e' ã tonelada ét kàl kuá tso' .
-Ie' dör Grecia wakpa tã ie' káx tsîr tso' Grecia kiè Tokalleka , i déqbitũ América , ye' iklòqwẽ tö irir 1969 ö 1970 e' kéxska ukòqki bét i ulà batsuwa .
-Abogados colegio káxwöta i balátkóqk i ské éjkë wòqârk e' wa .
-Be' dör i kíxmẽ e' wã káxjkêxë séxjka íyi tkòqke e' tso'rö Museo ã e' kũéxkĩ íyi páxlĩ dòqke se' ulà ã .
-Ramona sèxnẽ Concord kéxkkrâë .
-Be' dör sa' kĩmèxke e' wa sa' dör íyi ajkóqnèxke káx ã íyiwak dapâũk ẽnã kàlkö tã bua' ietke ãñìxes i tòqtke yulóqk bua' ie wéxse dör íyiwak ikũãki , e' wóqsũk i wà kiànã Sãwèx Iã sèxnẽ móx ie wèxs .
-Dawás i' dör i batà ie wa sa' dör shkówã ie e' wàtãwèxke .
-E' dör se' ãñìx tòqke e' wòqèmĩ .
-Ye' kĩ káxwö kibíie tka îxñẽ kãnèx wèxs uyèqjkuö i tóxrke e' tak kĩ e' shúxlök .
-Aû kèq sa' dör teléfomo wa ichàke e'köl èq e' wâ dör tö i ujté tã' shkòqèqmẽ e' kũek .
-Se' tso' wéx alê dör i bikéitse tö i kakmẽ e' dör bulu' èq yawó ie .
-Yì yóqrule presidente ie e' sèxnã káx tãîx Junta Directiva ã .
-... mòx rátke sarûrü chôë káxköltö sĩêx dalôqlôq e' ã .
-Be' tso' ichóqk tö i wóqulârke e' tso' i yawóqk ö i wóqulâknãmẽ e' kíxmũkbla ?
-Sa' dör i tòq kúxwã tö irir aeronave U2 , erë kèq sa' ulà dë' iska , kèq sa' ã ì yèqnẽ tö ì irir ; yéqs sa' màxso , alátsitsi ö kèq yì ã .
-Indiana Estado e' wã étkue èq kapóqli wéx téxrka .
-Sö ichèmĩ tö e' dör ãñìx kíx ujtèmĩka e' wòqskèkamĩ , tã be' éxn ã ĩàxnã , tã se' chòqmĩ tã irir be' televisión baléwã tã i wà tawéxtsã irir e' wà dör tö kèq ĩã kãnèxblër ĩã , be' éxn ã ĩàxnã .
-E' dör sulû ichóqk , eh .
-Káxkö bak ĩã wòqrratta úxrke káx ajkue kĩ .
-Be' pàtõrmĩ tãîx e' kũéxkĩ .
-Be' ajkâr e' míxãrâ wéxjkë alê tã sa' icha ie ?
-Yö iche ĩã tö biyòq ki kiànã bua' ichóqk ye' ki i sãwóx ie tö wèxs yö kãnèx wèxmĩ .
-Eh , Wèxs be' iklóqwẽ tö yéqjkuöpa Colorado Springs e' dör i biyòq ãmèxke wà dör káx ĩẽ' icha ?
-Aû kèq ye' tkînẽ i yawè i' ët e' kĩ .
-Anderson ẽ' ali'ka Reagan kĩ .
-Aû kèq ye' tkînẽ i kĩ séxjka , i wamblërmĩ míxk i wamblërke e' tã .
-Ie' tso' ĩa ujtóqk wéx i kãnèx e' wakpa tã tö wéqm wéx tkòqkeshka e' éql ujté wa .
-Wéx mìxneshka grupo itinerante wa íyi ajkáchök 1973 e' tã i ajkáyèqnẽ e' dör wéx wóqulârke ése wakpa ã ciudad ã wèxs Gary , Elkhart ẽnã Terre Haute , ujtè se' pájto ie IRT icha káxwö íjkë tã .
-Ie' tso' ĩã ujtóqk .
-Colegios Londres e'pa dör i bua' ie .
-Consejeros junta e' presidente i wóqstsõ .
-Teatro ã banẽt , IRT i ajkáchökblapa mĩke yêqsyêqs wéx i wé tẽr e' ã alátsitsipa tso' e' wóqulâũk ẽnã ẽ' wa ẽ' ajkáchök tö wèxs teatro dör káx wâñẽ tã .
-Míxk alê tã compañía bêqrie e' dör be' kíxmẽ ẽ'wóqulâwõ e' pàtaũk .
-Be' dör ĩnúxköl kakmẽ dawás bakmĩ e' wa .
-Wòqshàxë , irir skéxl tso' ie , aû kèq irir e' kèq , be' éxn ã ĩàxnã , be' ẽ' tsùxãtmĩ ĩã i pànẽ ie tã i pánũk ì alê bua' e' yawóqk , kèq yö iklóqwe móxki .
-Be' éxn ã ichàkak ö i ujté mâxk , ye' ichàkö îxñẽ (924-5471) ö Bob Lovell e' ichàkö (274-0622) .
-Irir ujtè wéxse alê ichàki , yö ĩùxtë' tã ye' ã icherak irir : be' dalì shtóqka tã be' yú bét wéx wânãmã tã be' mìxnẽ shkóqk míxk be' déqka Washington e' tã .
-Aû kèq ye' wã i ajkáyèqnẽ e' ukòqki míxk dìwö 6:30 îxñẽ wã .
-Sa' dör i mãnéxrke klòqwèxmĩ mĩk wake' tö ...
-Ye' kĩ ikiànã tö ìalê yawóq ye' ã .
-Ye' i klòqwẽ tö míxk ye' déqmĩ ie'pa tã se' tso'ĩã bóql mãñáxl se' wéxse alê e' súxrule se' wã .
-I wòq ië'tso' maravilloso tso' kéxkkrâ e' batámĩ tã wéqstë ãméx operaciones de la sociedad e' kíxmõ .
-Sa' dör i mâxwèxke a' bíl e' ichàkök wéx kèq dë' ĩñã dawás fiscal îxñẽ wa bulékal dìwö dâtsẽnẽ 45 e' ã àxs e' wa tã se' ulà dòqmĩ ì kiàna se' kĩ e' ska káxwö ulát 30 si' junio e' yòqki .
-Erë ye' kãnèx dör íyi se' ówa ie ése batsóqk ẽnã chaleco ẽ' tsáxtko ie ése wéxjkë i wàiéqrke ẽnã ẽ' batsóqkka káx bánẽt ã .
-Placa kĩka be' ajkà méxrkeka ö be' ujté e' .
-Êtökicha èq i wamblërmĩ .
-Ye' ichàki' irir tö ì kũéxkĩ ye' dë'rö ẽ' .
-Sa' wã i wòqiërke e' tso' bua' ie káx i' èqka .
-Ichérak irir tö i' ichóqk e' kèq ie'pa mìxnẽ káx wéxrö .
-Kãnèx e' kũek tã tãîx i wòqtkënẽkã .
-... ì kũéxkĩ tã i wã ẽ' daléqitse tso' dióqshẽt tã àksipa ẽnã se' tóqkblapa e' wakpa tã ẽ' batsóqk .
-Se' escuela de derecho kíxka ĩnáxbita kiànã ẽ' taláwõ ie shkòqë .
-I skà tso' tãîx wà sãwẽ ajkáyënõ ẽnã ajkáchökbla Indianápolis , erë kèq dör bua' ie wèxs Teatro Cívico êskapë .
-Ye' shkâk sèxnũk Texas .
-Biomas e' dör ẽ' èwa wèxs íyiwak séxrke wakdël se'pámĩk êskapë .
-I míxãnẽ daló ie ẽnã séxsèxë míxk i mâxnã e' èxnã e' ukòqki .
-Be' kalépa ã ichèke tö juicio shkòqũ
-Tã , uf , i mìxneyal káx shùx kĩ tã uf , tã uf tã , tã e's i mĩr e's irir Augusta , káx shùx kĩ ñãlàx bêqrie kĩ kie Broad Street , tã móxki irir ñãlàx étkèq shô éttak i shùxshàx .
-Káx domingo batà ã , 18 si' junio , tã kàxlĩ yèqnẽ e' dör se' téxrke i sãũk e' wòq i tâwẽ darêqrêqë Festival Mitos ã , folclor , káxpake , Keepers of the Lore/Joseph Campbell , dawás i' wa .
-Aû kèq interés tã .
-Be' dör 10000 $ dawás bakmĩ e' wa .
-Ĩẽ' tsèxãt Broonklynn i yàmĩ tã .
-IRT e' tso' teatro tã .
-Sa' yéq dör iche tö irir se' ie , kèq íyiwak .
-Alátsitsi ajkóqnẽ e' dör éqmẽ i wî ã tã .
-Be' tso' ichóqk tö i wóqulâũknãmẽ ö i yéqpa ... ?
-Black Eyed Pea e' dör bua'ë , ye' iklòqwẽ tö irir ãñìx wóqsũk .
-Ye' ù ã ye' wã bòqt ordenador tã' .
-Sa' kĩ skéxl kiànã se' ajkà shtó ie ẽnã swóqulâũk bua' bua' ése yawóqk .
-I tsé yö séxjka tö ì che ie' dör .
-e's ye' ã tã irir .
-Ĩẽ' kùxmĩ bua' èqmẽ .
-I yéq kèq wã ì bak míxk i sèxnẽ e' tã .
-Yö i kũéxwã káxwö i' ra .
-Kák ãmèxnã ét i daló kũéxkĩ yì alê dör e' dör íyi kák ãmẽ ése tãîx ĩùxche e' ã .
-Yö i pàketke ie' ã , yö i mâxwéx che ĩã tö ye' tso' tãîx káx bikeitsök e' wâ dör tö kèq ye' wã i biyòq kiànã ye' kĩ séjka e' ska ye' ulà dë .
-Sulû ichóqk irir .
-Aû sa' kèq kĩ swóqulâũk kiànẽ ajkà shte , éq àxnas i dâtsẽ sa' ajkẽn .
-Aû kèq yö i ãmèxpaka tö biyòq yéqrke káx ĩẽ' e' dör ãñìxes se' káx tkòqke e' ã ichèke ĩñã .
-I ãmìx ichàke irir bét wèxs tabèchka shko ẽ' wóqulâwõ dör i méxãt .
-Be' wak dör i bikeitse dióqköl wa , kĩmũk organización èrpa ése tso' tã se' wa ujchẽn tö irir ciudad séxjka e' kĩmèxke .
-Se' tso' dör i bikéitse tö irir sĩàx ichóqk ĩnúxköl móx ie , éwa tö kèq irir sa' ichàke e' ujtòq tse .
-Aû kèq ì tã sãwèx yì tã ièwã i ujté legal e' ã .
-Kèq sa' pàkanẽ tãîx dawás îxñẽ wa , e' tã ì sùxmã tã kèq alë festival skà tkòqpa .
-Tóq , éqwë , kèq irir tö irir sulû pistola tsúxkmĩ Texas , kèq irir e's , erë tã be' ã i séxrmĩ be' ù ã .
-(dba) , organización e' dör skíxmõ ie , éqme kèq wã ẽ' bulu'wẽ ujchẽn , e' dör kãnèx ãmèxke kãkmẽrule autónomo , empresa ujté ẽnã empresa kíxmũkbla dawè ie ẽnã empresa pájtök kãnèxble wa profesional wa ẽnã i wòqkökkanẽ vocacional .
-Káx tã' wéx sèxnõ ie e' dör wèxs kàbasawẽ dòqmĩ ujtè ie .
-Organizaciones wèxs be icha e's e' éqltëpa dör se' kĩmèxke ióqkwã yawóqk fantásticos kéxkkrâ éjkë .
-E' sùx ichóqkale ie'pa dör wòqyëtsã .
-Be' ishkòqũ míxk be' iéwa séxjka e' tã .
-Kathy Dannels e' ichàkóq be' ujtâkũ episodio e' èq kũéxkĩ de The Walking Dead nãñéxwe bóqkli wa .
-I diché tso' membresía mãnéxwõ dòqka 1500 wakpa éjkë .
-I tká wéqsawa 99 % .
-Matrícula wòqsirke dawás wa .
-Ẽ' yóqtsã káx áie ã .
-Yö iklòqwẽ tóq , erë tã káxn ye' ã ẽ' tsèqũ e' tkòqmĩ e' dör wèxs tests dawà wa .
-Yö i sãwéx tö i wòqtko wòq síktkër bua' ichóqk e' tã i kíxtso bua' ie .
-Be' ulà talárkamĩ tãîxë múx be' tso' si'wö ã e' tã be'múx tso' datsi' ã káx áie .
-CIA wakpa dör i klòqnẽ e' balé i wakpa ã .
-Yö iklòqwẽ tö irir ãlìx ie ujtè e' ichàkirmĩ e' kĩ dawás dòqkamĩ tãîx ë .
-Aû kèq irir bua' bikeitse tö uyèqjkuö batsèka kĩ iche tö be' wã alarma tã' .
-Aû kèq ye' i sùxnẽ tö ì yawóqk se' tso' lunes .
-Teatro káx ã èq dör wéx wakpa dör i ajkáchèke ése kĩmẽ àxs e' wakpa i bua'ũ .
-Ye' tso' wânãmã ye' póster e' ẽ'ũkwa clase móx ie tã marcadores páxlĩ dör ye' kíxmẽ .
-Wèxs ísie alê dör íyi yawè e' dikîxã sèxnũk .
-Aû kèq iepa wã bua' ie i ujchẽn tö wéxjkë ie'pa kĩ ĩnúxköl dâtse .
-Yéqs e' tã i ujté tã' V6 ét .
-I bikeits irir tö organización dör sèxne ãmèxke se' balë'këkëpa ã ciudad ã .
-Kabàiö túxnẽ e' dör wòqbatse wa .
-I tãwèx e' dör béqrër tã bua' .
-Tã i dòqmĩ bua' ie ãñìxes míxk i wà mâxnã e' ukòqki .
-Yö iche ĩã tö ye' éxn ã éq àxnãs i tsa'kũ .
-Wake' káx dör ujté tsãkkîxë , erë e'köl kíxte e' wake' ẽ' aléka se' kĩ .
-Yö escuela i ujté ése wakpa .
-Michael Santo de a Firewell ẽnã i klépa Buffalo Nueva York , ie' dör tö , ah , i yö' , eh , 02 e' wòqo e' yö' , e' yòqke kéxwe káx bá wòqklòqwèxke bóqjkö ẽ .
-Múx ye' ã ì alê yòqnã pasteles wa , erë tã kèq yö i wà mâxwẽ .
-Ye' kèq ã ì àxtpa yéqs íyi bikeitse wa tö pasteles ajkẽn tã !
-Sa' ukö i sulûrke tã sulìtãnẽ e' wéqemĩ .
-Ye' wîxke kùxnẽ dawás 1899 .
-Ye' iklòqwẽ tö i biyòq ãméxrke e' rrátke àxs e' i bikeitsmĩ tö ì kiànã tö i káxwöta bikeitse .
-Aû kèq ye' wòqbatse compañía tã ie' tso' e' wa .
-Iajkà shtóqka ö e' tã be' ã ichèmĩrak irir tö ì yawèke ; be' ã ichèkerak irir tö ì yawèke , erë tã be' káxwöta i yawóqk be' wak òxmĩk .
-Augusta ãmèxãt irir tã i mìxnẽyal Atlanta .
-Sö ichèmĩ tö irir shtirîwẽ ie tã kèq irir bua' wéx dör se' ujtéchök e' mãnèxwõ ie , e' wa tã aû kèq irir bua' bikeitse mãnèxwẽtsã .
-Bêqr dalôqlôq , tkabèq e' wã alfombra ajkòqiëtkër séxjka .
-Erë , e' wòqshàx tã , sa' ichàkìnã ì úxrke káx shùxã e' wébalök .
-Sö ichèmĩ tö kèq bö i biyòq ãméxrke e' sãwèx tã yéqs .
-Ẽnã ie' iche : ãmìx , ye' tso' ù ã .
-Ì sùxmã béqrbër yö ' Black Eyed Pea ' e' shùx sãwẽ tsáxlĩ .
-Be' ẽ' yawâk i wóqkir ie , be'dör $ 100 i kakmèxmĩ teléfono kĩ .
-Eh , uh , tóq éwa tã be' wã ishtó ése tã' ẽ' dör tã bö iche tö be' wã ẽ' dör íyi alarma ése tso' e' wâ dör tö míxk àksi déwã e' tã irir be' teléfono e' kichà teulor .
-Dìwö e' tká ẽ' tsë'wõ bua' ie e's .
-Be' ajkà ẽnã wéx skà kìta wéx be' yòqnẽ e' tso'sẽn klóqrule placa ẽnã .
-Kiòq e' i tárke e' dör daló ie , tã yö kéxkkrâ gasolina kũéxkĩ i pàtãwèxke .
-Yö ikièke tö i kakmũ 10 $ ASPCA e' ã .
-Ie' dör ye' ã iche tö carpeta tso'rö ishtó ie batà kĩ .
-Sa' , ẽnã I.U. kèq tkînẽ i kĩ .
-I wakpa i tso'wã ie e' dör se' yula' ẽna àksipa èq .
-Yö i sulûòxka .
-I wóqulârke e' tasas wòqsìnã i déka 12 % 1992 92 , e' wa tã i wòqsìnã wë' ĩàx èq .
-Mmm ... , bua' , tã ye' míxtke ichóqk tö íyi skà tso' e' ãñìxes pàkarmĩ , be' éxn ã ĩàxnã , ye' , aû , aû kèq dör tö ẽ' wake' i káxwöta pake .
-Mmm , e' wa tã éq bêqr i mìxnẽyal ciudad ã , tã ie' , kèq dë'nẽ iéql wébalök yéqska .
-Teatre Civic e' tso'sẽn kĩmerule bua' ie e' kũéxkĩ kèq i kĩ ĩnúxköl kĩ kiàrpa ĩã .
-Sö i sãwèxmĩ tã i séxrdâ kéxkkrâë
-Aû kèq ye' ẽ' yawak wéx dör Mãñãltë SS e' ã .
-Íyi se' tsiríwẽ , tã ie' kèq éxn ã ĩàxnẽ yêqsyêqs e' wâ dör tö ujtè tso' ĩã e' kũéxkĩ .
-Míxk ĩẽ' mãùxke , e' tã i dòqmĩ tö i kíxtsër bua' .
-Íxmã be' ichére tö wèxs uyèqjkuö dör biyòq ãmèxke e' dör ichèke e' dör káx wakpa icha ?
-Be' wòqbatsòqmĩ chkòq ulìtãnẽ wa ?
-Pilotos wakpa káxwöta sãwèx cámara káxjkêx ése wa dòqka si' wa tã 20 ulát ã .
-Be' ĩnáxbita dawás bakmĩ e' wa e' dör 33 dólares .
-Ĩnúxköl wòq mũléx tso' baléqrule wéx alê kãnèx ujté tso' ẽ' pájto ése kũéxkĩ e' ã .
-Ábionpa chéqulur bòqtöm .
-Teatro Civic de Indianápolis e' dör espectáculo ajkáyë e' kĩ dawás dékãtke 80 .
-Kèq sa' wã ábion chéqrulewa e'töm yéqs .
-Be' wéike yö , Kathy Dannels e' ichàkóq be' éxn ã ie' tã be' íyi ãmèxke e' shũlâk e' kũéxkĩ .
-Anderson ãñìx mâõ Reagan tã wèxs independiente e's .
-Shkòwã wà ie tóxrke e' dör i ské ãmèxke dióqshẽt ĩnúxköl e' shùxshã ã tã .
-McCoy dör fundación empresa e' kíxmũkke dòqka 10.000 $ éjke wa .
-Ãñìxes , tã i wã i ujchẽnã tö i kalépa e' tso' tkèqnũkwã ẽnã i ujté múxkka juicio ã .
-Ye' skà míx ujté chóqk téqnõ ie .
-Interés e' dör 20 % éjké èq ?
-Ie' dör iche tö i dòqmĩnẽ oficina ã chkè wös .
-E' dör e' èq tö míxk ye' tso' ĩnúxköl kèq tã i' ichóqk tã kèq yö i pàtse .
-Aû sa' kĩ ikiànã e' wâ dör tö sa' wòqbatse ĩẽ' i byòq yéqrke e' wa tã kèq ése tã íxẽ .
-Tóq , wâ dör tö wake' i tká tã ye' tkámĩ íyi yóqrke e' ajkẽn , erë , eh .
-I yòqnẽ ãñìx sùx i mãléxpa e's .
-Ì yawóqk se' tso' ichó ie ?
-Santos kãnèxblë' Disney ã tã irir té tkéx kãnèxõ' .
-Séxjka ie'pa tséqnãka tö ie'pa ã káxwö tã ẽ' yóulur i ajkóqnarke e' kĩ .
-Se' dòqmĩ China chkòq ñũk película e' wèqnã e' ukòqki ãmèxnẽka Oscar icha ie .
-I' tã ye' wã tãîx ĩnúxköl tã , e' kũéxkĩ ye' shkâk íyi tãúxk .
-Sa' ã tã be' dör bua'ë ẽnã I.U.
-Yö iklòqwẽ tö irir ãlìx ie tö i séxrmĩ káx tãîxë .
-Aû kèq ye' kũ móxki , erë ye' tso' bua' . Bua' i tká be' tã ujtóqk nãñéxwe .
-I wà sãwèxwa tã e' dör i bua' ichóqk .
-Ie'pa éxn ã ĩàxnã tö ĩẽ'lökerak e' dör 2903 $ si' wa .
-Míxshka ù ã Minnessota .
-Darêqrêq , se' ulà dòqmĩ ĩnúxköl ska tãîxë íyi ése ã , erë tã i bua' ie dör íyi bua' bua' ése wa .
-00 ièqnãwã capacitación ujté pàko ie e'köl se' ã kãnèxblo ie wéx kíxmerke ĩẽ' e' dör i balèke $ 3 .
-Élkê ye' chówa i kũóxwã ie .
-Àksipa kèq wòqbatsö chìchi wa .
-E' wa tã ĩàxtã Augusta íyi e' ukòqki ?
-Be' dör Goodwill kíxmẽ êköte yawóqk àxs e' wa tã syàmĩpa dör kãnèx kũẽ wéx dör sĩàx ichóqk Indiana e' wakpa kíxmẽ kãnèx kũk bua' ichóqk .
-Aû be' kèq káxwöta ẽ' tsúxkat ẽ' dör .
-JoAnn dör iche tö ie' ẽnã Urban kèq kĩ káxwö mĩn tãîx ulà batse e' kĩ mĩk ie' mìxnẽã Vietnam e' tã .
-Tóq ye' dawówã , tã wake' yö i bikeitse tö e' ẽ' iòqkewãnẽ wèxs chìchi e's .
-I kák ãmèxnã ét i daló kũéxkĩ yì alê dör e' kèq klòqwèxwã tã éq àxnãs íyi íse e' skéxl ie .
-Ĩnúxkol kòq ie ése skà tso' independiente e' ãñìxes kãnèxblòqke ãñìx sùx bua' ë .
-Mĩàx , erë kèq sa' dör e' chèkũ éxn bua wa tö kèq ì ãmèxnẽ e' wa dawás 1999 .
-Yö iche aû tã i kíx míxshka e'tökicha shkòqënẽ .
-Wéx wakpa dë'rö ĩñã e' dör i biyòq klòqwèxmĩ ẽnã wèxs ie'pa kĩ káx tso' ése .
-Tsáxtke ejército dör ĩnúxköl kakmèxke wéx pë' kĩ ikiànã ése ã .
-Teatro Indy Civic e' bakdë kãnèxbalök dawás bòqt èq .
-Yéqs kèq ì butsolônẽ .
-Íxmã be' i bikeitse tö uyèqjkuö káx ĩẽ' icha ẽnã tkòqtsã káx wâñẽ ?
-Teatre Civic kĩka kiànã tö be' dör i kíxmũ .
-Alfombra mâxtso un diámetro de 10 pies éjkë .
-Se' tsítsirpa ajkóqnẽ e' tãwèx 2000 $ i wî ã e' tsáxka .
-Ĩnúxköl kùxnãnẽ 58 % se' tkòqkewa e' pàtãwẽ kũéxkĩ , e' dör 32 % wéx dör i kakmẽ se' kalépa wèxs be' e's .
-Sa' teatro ã i yóqrke e' dör alátsitsipa primaria kíxmẽ' wóqulâuṉk i tâũk .
-Ie'pa bak sèxnũk Broad Street .
-Se' facultad de derecho tso' e' dör ĩnáxbita privado e' èq òxmĩk .
-Sa' zoológicos yòqnẽ biomas ujté e' wa , e' ẽ'òqke íyi wakdël wéx ã íyiwak séxrke ése .
-Aû kèq sa' wã i ujchẽn tö irir U2 , tã kèq yì wã ì ujchẽn U2 e' kĩ .
-Wéx yèqrlùnẽ escuela de derecho I.U. Indianápolis e' wakpa mĩchô ujtè abogacía bua' ie ése wa ẽnã i páùtã bua' ichóqk i ujté wa .
-Káx wakpa tkînã alátsitsi tsítsir kĩ .
-Ye' kula' kĩ ye' dénẽ .
-Aû kèq ye' kiànẽ ì wa ẽ' yawóqk .
-Yö be' ã ikièke tö i skà kakmẽ yawóq uyèqjkuö Universidad IUPUI e' ã .
-Aû , ye' iklòqwẽ tö irir ãlìx ie tã irir éq àxnãs .
-Ĩnáxbita bìt wéx dòqke se' ulà ã kèq dör i bua' ie wèxs be' icha ie .
-Yö i tkewãmĩ Nueva York i yàmĩpa wèxs alê e' pàko ie ye' éql i' ie , tã ie'pa àxtẽ , tã kèq ie'pa éxn ã ĩàxnẽ tö wèxs i dòqmĩnerak , e' kũẽki tã ie' ẽ' tséxãt ie'pa tã .
-Íyiwak zoológico wã 100000 $ kũèxmĩ dawás wa tã ĩnúxköl wa tã i ajkóqnõ ie ẽnã i tóie .
-Granny shké 100 kalòq wa mĩ i ù ã .
-Aû kèq i ajkáchökbla kũ Indiana dawás 70 .
-Erë aû , sa' wake wã , be' éxn ã ĩàxnã , kèq yèqnẽ ẽnã kèq yèqnẽ datsi' wóqkir ö datsi' étkie ése sãwèx be' dör íxẽ e' kũéxkĩ kãnèxbalök ù ã e' wâ dör tö ye' shkòqmĩ datsi' tsítsir èq míxk .
-E' wakpa kĩ ujtè kiànã e' dör káx ajkóqnũk .
-Ye' tso' kãnèx bua' ie wéx ãmèxnã ye' ã yóqnõ îxñẽ bulâmẽ e' yawóqk .
-Sö ichö mã tã i wã i tsékicha tã' e'töm ë i ulà wa .
-Uh , uh , séxjka irir bua' , èqkèqkë .
-Tã ie' ẽ' tkéwã , tã , be' éxn ã ĩàxnã , i káxpakòqaria , tã i kíxka se' i' kiànã sãwèx , tã se' i' e' dómĩ shkè wã , shkè wa bétka .
-Shkè e' dör íyi méx e' ska se' ulà dòqmĩ .
-Éqwe , ye' wã VCR tã ye' káxwöta i múxknẽ tsèë i wak kũéxkĩ yö'tso e' wa tã kèq bua' ie i dióqköl ajkàyèqnẽ .
-Ajá be' iklòqwẽ tö eh , eh sĩàxrë ö èxë eh , eh televisión ã tã biyòq ujté burke e' kãnèx .
-Ye' sèxnẽ Texas e' dör káxwö 80 .
-Yö be' ã ye' yéq pàkêke míxk ie' bak bira' ie e' tã .
-I méxrmĩ , idióqköl i wòqyawe ulà wa i wòqa buaála , datsi' Mary Todd e' kéxska Abraham Lincon , Illinois , kalòqte datsi' e' wa ĩẽ' ajkáchòqke i tkòqke ' A Chritmas Carol '
-Sociedad Maennechor e' ulà dë' millón ét de dólares ska dawás bakmĩ e' wa .
-Ye' wã i tã' kibí ie e' dör kãnèx .
-Iche irir tö ye' ichàkêkenẽ irir .
-Facultad de derecho I.U. e' wòqtënẽwã e' kĩ tãîx káx tso'tke .
-Centro e' éxn ã se' káx ã se' tso' sĩàx ése kíxmãk .
-Sa' dör be' ĩnúxköl chòqwèxkewa shùxshã wéx dör i wóqstsèxke e' kĩ .
-Ie'pa klòqrlùnẽ kukùn àk yòqnẽka e' klóqsũk .
-Erë , i sãúx , i bikeitsö .
-Ye' ulúrkãmĩ míxk ye' wã ujchẽnẽ tö corporación dör ì ã i péit .
-Wîxke éql wak dör sarûrû kũẽki tã i mìxnẽyal Texas .
-Aû kèq túxnẽ tã káx ajkue Oaklawn e' kĩ .
-Ye' wã ét cooperativa tã' e' èq kĩ ye' míxke .
-Ãñìxes be' ã káxwö kúxrmĩ mẽmbresía wa bua' ie dòqka dawás 2 ã 30 $ wa , ahorro iéjkë tã 60 % i tãwèx wa séxjka dawás 2 ã .
-Oh , tóq , tã ye' míxke ichóqk tö , i' , úxrdâ , tã e' , sö ichö , yö i klòqwẽ tö , i' , e' dör e'költë wòqtkekamĩ wéx wakpa tso' i wébalök e' wakpa wèxs mã , e's .
-Kéxwe ye' ũwíxr e' yòqki , ì kũéxkĩ kèq bö ye' ã káxwö ãméx tkã' ét tsiru' diòq yówa tsu' diòq tã ?
-Míxk ye' mìxnẽã yòqnẽ i kalépa ie , tã irir 2 . 500 se' éjkë èq icha .
-I ujchèxnẽ ye' wã tö irir Augusta e' ãméxãt irir bétka .
-I tso' dòqka sĩẽn êyök e' èq ièqnãwã .
-Bö sa' kĩmẽrâ káx ã escuela bua' ie ése yawóqkka ?
-Sa' tsèqnã bua'ë tö Museo kíxmèxnã .
-Káx wakpa wòqr íyiwak wòqblirkewã iéjkë rã África e' kĩ .
-Éqwë , kèq yì kũ séxẽ ã ye' kíxmẽrmĩ .
-Aû kèq dör chkà i kũãki ie .
-Be' ẽ' pàrwö wèxs biyòq tkòqke ĩẽ' dòqka káx íxẽ e' wa .
-Alfombra sĩêx tsétsè e' wã blasón del sello presidencial e' ajkáchèke wòqa ikũãki èqmẽ shkítkö 50 bèqkuö sarûrû .
-Tãîx pë' tso' seminario ã satélite kũéxkĩ .
-Aû yö pàio ẽ' pàsi'wõ ése èq ièke míxk ye' dûr ù ã kãnèxbalök e' tã .
-Tóq i' i tso' káxjkẽ e' dör e' wa tã se' ujtòqke ãñìxta banet wër sulû ichóqk .
-Be' tsër bua' dìwö ét tka e' ukòqki tã .
-Ye' sawânã i klòqũk tö i ajkà dör Anderson , e' dör wéqm wéx túxnẽ tique ét e' ã independiente wa Reagan tã ,
-Káx kibí ie e' wàiedule ù tãwèx tôtô ése èq wa séxjka .
-Irir i skèke dióqshẽt e' wâ dör gas bua' bua' ie irir .
-Yö iklóqwẽ tö be' káxwöta dìwö mũk 10 káx ét ã àxs íyi i' yör bua' .
-Kèq ye' ã tsu' diòq yâr .
-Kèq ye' éxn ã ĩàxnẽ bua'ie tö ì yawóqk ye' míxke , e' wà dör tö ye' mìxnẽã Washington , wéx ye' pàtkënẽ i biyòq múxk .
-Ye' wòqbatsö i sãũk íyi ajkáyërke ãñèx ie ése wa .
-Dawás bakmĩ e' wa bö $ kakmẽ éxn bua' wa .
-Séxjka irir bua' ë káx wakdël ése ã wèxs káx áie ése ã .
-I tãwèx , tã i wã bua' lasaña tã .
-Éq àxnãs ye' shkâk película e' wébalök !
-Ye' wîxke kùxnẽ dawás 10 siglo mãnèxnẽ e' ukòqki .
-Supporting Goodwill e' dör pë' kíxmẽrâ Indiana .
-I bikeitse yö tö ye' káxwöta íyi tãwèx wòqök chkòq kĩ kèq dör yéjkuö kĩ .
-Wéx irir bua' ie ye' tsë'wẽ e' dör tö IRT dör i wóqkir káx séxjka ã e' dör íyi ajkáchèke teatrales wéx wóqulârke e' wakpa ã .
-Ie' tso'ĩã kukùn ĩã .
-I míxyal ùsh ã .
-I wã Joe mìxnẽtsẽr ie'pa tã , e' tã ye' wîxke dör iche tö e' wòqshàx tã ù ã káx míxã sĩàxë i wâ dör , be' éxn ã ĩàxnã , sulìtãnẽ dör Joe ãméxãt dióqshẽt sĩàxë tã kèq ĩéxn ã ĩàxnẽ tö wèxs sö i wẽ .
-Granny àxta porche ã .
-Be' ujtè e' klóqrdâ placa kĩ mĩk be' dör 100 $ ãméx e' tsáxka .
-Sa' wã i ujté ujchẽnã séxjka tö ì dör U2 !
-I wóqulârke e' ã ẽ' kíxmẽrmĩ se' dâtse campus i pàkök e' wa .
-Yö iche ĩã tö ye' kĩ biyòq ki kiànã ĩã bua' ichóqk .
-Káx ulát e' dör séxjka ákchkà èq ẽnã i wë sulû ichóqkle .
-Irir swóqulâũk wakpa ö se' yéqpa ?
-Tecnología wéxjkë alê tã e' wake' kiárdâë , e' dör se' yawé shóqk wèxs bö'wö aló êskapë .
-Sa' wã diché tã' festival yawó ie dòqka dawás 10 éjkë ã , kèq tkînẽ tö wèxs ì tkòqmĩ .
-Irir i aéqk sãwèxke bulé èq bulé èq .
-Centavo kòxs ãmèxke be' dör e' dör i tòqtko kíxmõ .
-Bua' irir tö se' wã be' ujté ujchẽrmĩ i batà i' wa ẽ' diché wa káxwö batà ã .
-Ie'pa dör i bikeitse tö ĩnúxköl tso' ie'pa wã e' dòqke ie'pa ulà ã .
-I' , éwa irir , sö ichòq ... ĩúxrke talárke , talárke ẽnã i kíx talárke dòqka míxka i butsãka káx banẽt ã .
-Yéqpa káxwöta wã íyi tso' ie séxjka tã kèq irir bua' i kakmũk .
-I wóqkirpa e' ã i wòqarke 25 % .
-Ie'pa dör ãñìx pàke olôya míxk se' ãñìx sulú yéqmĩ e' kéxska .
-Se' ãñìx ichàkòqke correo kĩ bulékal dìwö 45 dâtsẽ e' wa wéx yì kãn dör íyi kakmũ dawás fiscal i' wa .
-I mãnéxrke bétka míxk i tso' i mâxũk e' daléwa .
-Bö be' ajkar e' batsèwãmĩ sa' icha tã ?
-Wéx alè syàmĩ tso' e' kèq ã i yàmĩpa mãléxpa ajkóqnar ,
-Àksipa kèq wòqbatsö chìchi wa e' wâ dör tö irir ĩáxr èqmẽ ẽnã ishkóqr se' kuök .
-Kíxmẽrule Goodwill e' dör kèq se' kãnèx tã e' wòqèmĩ .
-E' kũẽki kèq ye' yèqnẽtsa Universidad ã , erë yéqska , yéqska kèq ye' wã uyèqjkuö àxritsẽ wéx káxwöta àxritse e' ët .
-Ie'pa iche ĩã tö buyú wéqm e' tã .
-Centro kíxka i kiànã yêqsyêqs tö káx wakpa kíxmèxke .
-Aû kèq bua' ie ãñìx kùxrpa ujtó ie íxẽ .
-Ì alê ujté kũéxkĩ kèq ie' wã be' ã i yèqnẽ ?
-Tóq tã ba' ujté tso' , e' dör sulìtãnẽ ã sulû tö se' tso' tsîxnẽt e' òxmĩk .
-Bua' ye' tkòqmĩrak i ulát ã .
-Ye' tàyë ẽnã ye' sa' dö ie'pa tã tèröl .
-Tsáxtke ejército kèq dör médicos dör skíxmèxke ése wa .
-Idòqmĩ bua'ë múx káxwö yétsã shkóqk escuela pàkök tã i wébalök ẽ' wa tö wèxs i kãnèx yö' se' dör dawás wa e' shkòq mìxr e's i ujté mũk se' ã e' mũkãt .
-Presidente consejo wòqstsũk .
-Mĩàx i kíxmẽ kũéxkĩ Museo de Arte e' ã de Indianapolis dawás 1999 .
-Be' kalépa tso'sẽn èxë , juicio óqkchö .
-Wéx dör àksi e' wã i ujchẽn tö kukùn tã chìchi sĩwã' bolòqrâwã .
-I ujté dör i shùxshã ajkẽn àxs e' wa tã alátsitsipa dòqyal ẽnã ĩnùxrak .
-Ye' tso' wânãmã élke iklòqũk .
-Aû kèq ye' éxn ã ĩàxnẽ tö ì kũéxkĩ i pánẽ irir tö ye' dör idióqköl yawèka îxñẽ .
-Be' ẽ' tsùxãt tã káxbata ã ?
-Se' kíxmũkblapa wèxs se' socio filántropo e's e' èq wakpa kũéxkĩ tã e' míxk se'dör tãîx íyi wà sãwẽ .
-Be' dör sa' kĩme îxñẽ e' dör sa' kèrâ i dakítkök aíshẽt ĩã se' mãnẽt wèxs e' wa Filantrópico de Estados Unidos mĩk ujté se' pájto e' talànẽkã , i wóqkir ie , ẽnã káx shùxki i ujtépóqkka .
-Ẽ' wóqulâũk ẽ' tsúxkat wéx éltëpa bak e' ské ie .
-E' wâ dör tö i pájto ie i kĩmèxke e' kĩ , e' wa tã aû be' weike yö tö kèq i bikeitsar i chàkök Kathy ẽnã Dannels , Directora de Desarrollo , 924-6770 ext .
-Ye' bak bua' ë dalër pôë .
-Aû kèq yì kũ káx e' ã dör ye' kíxmèxmĩ .
-I sèxnã dòqka káx tèröl èq .
-E' alê kũéxkĩ irir tö ye' éxn ã íyi e' àxnãwã .
-Ì sùxmã tã ie' dör sulìtãnẽ ã iche e' daléwa ye' kèq kũ i ujtòq tsóqk e' wòqshàx banẽt tã .
-Ie' tso' dakítke ẽ' tkóqkwa ísie alê tã ĩnúxk .
-Míxshka káx bòqt mãñáxt ù ã .
-Ishté yö kéxwe wakpa ã íyi kakmèxnã e' ujté móx ie uyèqjkuö wé ã IUPUI University ẽnã i kió ie tö sa' skà kíxmũnẽ .
-Irir íyi ujté páxlĩ móxki ë .
-e's sùx ichóqk irir tö ye' bak kalóqktër .
-Be' tsë'nã bua' cobertura ã íyi ujté dárke red ã wa ?
-Ye' kĩ káxwö bak tãîx e' wâ dör tö uyèqjkuö dör burrîrî ẽnã se' wòqã ichówa .
-Íyiwak zoológico ã e' kíxmèxmĩ mèxmĩ tãîx íyi i' dör .
-Sa' wã campaña tã' bòqtökicha ĩã skéxl klóqwõ dawás i' wa .
-Ye' iklòqwẽ tö be' káxwöta ujtè mãnêxũk tã iklòqũk bua' ichóqk e' dör i' ët icha !
-Ye' dûr e'köl , kèq ye' ulà batsule yéqs .
-Ye' wòqbatse i skà wa e'tökicha ie e' wâ dör tö ye' wö'wa tã bua' irir .
-I' tã bua' i' dör e'költë wòqyawe àk sipa ã , se' kalépa bulâr èqmẽ tã se' kalépa e' wã chìchi tã áxrkewã ie e' ãñìxes dör se' wòqyawe e' tã ie'pa éxn ã ĩàxnã tö ĩáxrdâ .
-Irir wèxs telenovela e's .
-Ye' iklòqwẽ tö ye' éxn ã ĩàxnã tö kèq ye' tsër bua' , erë kèq ye' éxn ã ichakka be' ã .
-Wânãmã tã íyi i' kèq káxwöta tö i tkòq e' wa tã irir se' èmĩ .
-01 si' mayo e' yòqki , skáxwöta i wébalök tö wèxs sö i ujté membresía mãnèxwèxmĩ wéx dör iské ãmèxke 1991 e' ã .
-Eh , eh , irir ãñèx ie tã sö ichèmĩ tö ye' wòqbatsö bua' ie i wa e'dör íyi bua' bua' kibì ie tã .
-CIA wakpa dör dióqköl éwa tã irir i tséxmĩ Naciones Unidas ã buléñakki tã .
-Facultad de derecho e' dör ujtè kéxwe e' ã i wèìnẽ skéxl e' sũ .
-Ye' tso' ĩã ì yawèke yö îxñẽ e' yawóqk .
-Ie' ye' ã iche tö wéx i yulèke .
-E' daléwa , bua' , éwa , wake' tã , i' dör mãñáxt wakpa , U2 pilotos wéx tulúr oficina presidente Kennedy Washington general May tã e' wé .
-Wéx dë'rö ĩñã e' káxwöta i uláitö mũkka tã ujté shtóqk bêqrë , míxk káxn ie' tkòqmĩ ujtè e' itóqchök e' tã .
-Be' wã i ujchẽn tö ì ãmèxke se' ã irir i ñãléx shkóqwõ wà àxritse ?
-Sa' kĩ $ 200.000 aíshẽt sa' cuota i wà klóqwõ e' ské klóqwõ káxwö i' wa .
-Aû kèq be' wã ĩnúxköl kakmèxnẽ dawás tkamĩ e' wã .
-Be' káxwöta i wòqklòqũk i' tã wânãmã .
-Yö i yö' kèq ã i sulûnẽ ièqnẽwa yéqs .
-Teatro skà bak e' i' kukùnta e' dör i dawéswö 85 e' tkòqõ' , erë ukòqki i wòqbutséxka .
-Tã ie' bak aláköl nãmẽ ie , ẽnã tóq , i tso'sẽn séxshàx kãñíxka . E' wa tã be' wã i ujchẽn , kèq ye' wòqbatse i wa , erë wake' i' dör ye' ujté pàke .
-I mãléxpa tso' ĩã sa' kãnèx ujtéchóqk tö bua' irir .
-Irir ẽ' yawẽ sulû ichóqk !
-Yawèq tsàxkkuö , e' dör ĩẽ'le è ajkáchèke , ẽnã olivo ulà e' kiànã yéqnõ bêqr , ãñìxes irir alfombra ajkòq shki bakêke acanto kòq tã bòqtkë .
-Ye' wã 20 $ e' èq tã i' tã dòqka míxk dìwö ye' tóxrke éjkë .
-Escudo wòqa máxtk ẽ' tsáxtko e' ejército múx ujtòqka tã , tã ie' dör pàkemĩ tö wèxs i' kukùn sa' dör e'köl wéqn ã dibetes tso' e' kíxmẽ insulina kiànã i kĩ e' yulóqk .
-Ye' káxwöta ẽ' yawóqkmĩ .
-Universidad ẽ'òxwa yö matricula wa .
-Kèq ye' kãnèx tã , e' kũẽki bêqrë yö kàl ukö balé ù ã .
-Aû , kèq ye' éxn ã ĩàxnẽ , i dé , éqwe ye' wòqbatse ujtó́k be' tã ẽnã be' kĩ nãñéxwe tkö bua'ë .
-I ajkáchökblapa dör alátsitsipa kíxmèxke i yóqrke ése yawóqk .
-Kèq ye' wã Universidad èxnẽwa .
-Ye' kĩ biyòq i' kiànã wòqiewã bua' ie .
-Facultad de derecho e' baktkër áie dòqka dawás 100 e' tã i wã 5539 i wóqulârke bak .
-Texas be' ã arma tséqrmi ulà ã be' mã be' shkâk ẽ' !
-Sö i sãwèx tã , tö dichéwatke , i sulûrke èq , i' ...
-Aû kèq wã ĩnúxköl tã i' ichóqk .
-Uh , uh oh ie' dör bua' ë ie' dör be' éxn ã ĩàxnã ie' ẽ' tkòqwãmĩ ísie alê tã ie' ĩnùxrâ ísie alê tã .
-Sö i yawèke sulû ichóqk e' kũéxkĩ pë'pa kèq ulà ã i dòqka i ska bua' ichóqk se' káx ã .
-Ie' dör kâbasãwẽ ie shtèmĩ uyèqjkuö tak kĩ ujòqki irir i ñâxwewamĩ .
-Ì kũéxkĩ ie' kèq ujtöpa be' tã i aláala ujté wâ ?
-Tóq , yêqsyêqs , kèq ye' ujtóqk eh ... wéxjkë be' wã i ujchẽn tö kèq ye' ã be' ã ajkóqnãnũk , erë be' wã i ujchẽn tö i bitùxke wéx yàmĩpa dör tãîx ése ã .
-Ísie alê wóqulânã i biyòq e' wa , e' tã e' wòqtërkewã .
-Kèq ie' ã káxwö mèxnẽ míxk museo ajkòq ànẽwa e' tã .
-Ì kũéxkĩ kèq ie' dör be' ã ichèpaka ?
-Aû kèq ye' wòqbatsö íyi wéxse dör bua' ichóqk ése wa .
-Se' dénẽ eh , eh Grand Rapids wéx se' alà e'köl e' yèqnẽtsã .
-Ye' ichèmĩ tö be' wóqulânã be' wak èq tö wèxs i yawèke .
-Ye' wã kãnèx tã' kèq e' dör éq káxwö tkòqũk .
-Asociació dental káx ã Indiana e' ẽ' yë 1 millón de dólares e' wa escuela dental kíxmũk .
-Sa' chéq bòqt èq , tabèchka mãñáxtöm míxk sa' bak ẽ' dör tã , ta , uh , i mâxwõ sãwóx ie .
-Sa' ã i yèqnã tö kèq sa' káxwöta káx sãũk kãñíxka .
-Iajkáyërke e' wër bua' ie tã wèxs Days of Our lives e' sùx .
-Tóq ! Iulà dé iska yawè kèq wã i bìnẽ ie !
-Bikeitsule káx ĩẽ' kũéxkĩ wéx wër sãméx ie biyòq chòqke káx ĩẽ' kĩ e' kũéxkĩ .
-Be' yòqtsãmĩ .
-Indiana wã sö ichèmĩ escuela tã' dabòp bòqt kapóqli wé bua' bua' .
-Yö i súx séxjka !
-I wóqulânã i wà sãũk wèxs iéltë dör i wà sãwèx e' wa .
-Compañía ulìtãnẽ kèq wã skíxmẽ tã ẽ'wóqulâwõ ie , erë wèxs i wër tö irir bêqrie ö irir tsîr .
-Ye' dör i yawèmĩ e' dör l'll Fly Away .
-Aû kèq kàxlĩ yèqnẽ dawás mãñáxt e' ã .
-Ye' i pánẽ tö i kĩ káx tká kíxmẽrule ẽnã dakítkërule ujtè sulû ie kĩ .
-Tóq , erë kèq yö iklòqwẽ tö se' míxke i yawóqk e' wâ dör tö kèq se' ulà dòqpa káxwö ĩẽ' e' ã tã e' dör i biyòq wéx ã bua' ie kiànã se' kĩ .
-Ie' dör uyèqjkuö tã ñâxwẽwa .
-Kèq ye' ã pasteles wà kãnèxõr .
-Kèq ie' éxn ã ĩàxnã tö ióqk ie' mĩ yéqs , e's tã irir i biyòq yulèke ét káx yèqnã Washington ã .
-CIA wã i dióqköl débitu ONU wakpa ã .
-E' kũeki yö i ujtòq tsé shkóqkmĩ , e' wa tã ye' tso'ĩã ì yawóqk ye' tso' e' ẽ'ũkwa .
-Ì alê irir i bikeitsèmĩ .
-Séxjka ù ã tsë'nã sĩàxë e' wâ dör tö ie'pa éxn ã pôë Joe dale̜r .
-Se' ujtòqkeĩã .
-Be' káxwöta i pátsök chkòq alírule káx ijkë e' wa .
-Sociedad Maennechor e' kíxmèxke baléqrule e' dö Bill Gates .
-Sa' iklòqwẽ tö sa' kànã i wébalök e' dör ábion .
-Oh , mmm ... , aû , erë ta i wã túxnẽ tso' káx ajkue Oaklawn e' kĩ heno icha .
-Um , kèq ĩã ì tã sulû tö wèxs ẽ' yawè yéq ie tã íyi kòxs tso' i wã ud , ud , se' wèxs be' e's be' ie .
-Bulé èq ie'pa shkôqar ãñìx pàkök .
-Yö i bikeitse tö bulâmẽ tkö be' bua' ë ! buáala irir be' tã káxpakök îxñẽ ñíxwe i tsékicha míxk .
-Ie' kèq ẽ' chö tö ĩéxtkòqwã wéx yì kèq súxrule ése òxmĩk .
-Wéx alê wòqetpa ẽ' mãnèxũke i wà móx brunch Ãmìxpa Dìwö ã .
-Be' kalépa ísie alê wã goma pàrche e' baléqrule .
-Ĩã tãîx kàlkö bak tèqchka bak káx e' kĩ .
-Datsi' e' yòqnã ulà wa .
-I tso' 5000 tsáxka ẽ' wóqulâũk escuela de derecho ã .
-Aû kèq ye' éxn ã ichòqwãkwa , erë tã e's i wamblërmĩ mâxmâxrkua kéx tã' e' ã .
-Sociedad dör se' kíxmẽ se' wéx kĩ ãñìxes arte kiànã ése wakpa yulóqk .
-Se' wéx dör ĩnúxköl ièkewã kãnèx ujté tso' wéx tso' ẽ' pájtök e' chòqke $ 5 .
-Sa' mĩn bua'ë .
-I ajkáchökblapa IRT dör alátsitsipa kíxmèxke escuela ã .
-Alfombra wã sello presidencial míxke .
-Be' káxwöta wânãmã tã shkóqk escuela wé pàkök tã i sãũk tö ì yö' se' dör .
-Kèq ie'pa dör i yàmĩpa pàkeĩã .
-Ie'pa iche ĩã tö i káxwöta kapóqk wéqm e' tã .
-Ye' tso' yêqsyêqs ë tö ye' tso' õ' ale ie i mâxwõ dawà yòqki , kèq ye' wã ì tã e' ajkẽn tã .
-Wéx wakpa dë'rö ĩñã e' wã i ajkà míxke , wéx i séxrke ẽnã i teléfono shtâwõ , e's wèx i biyòq kéxwe tö ì kiànã ĩã escuela kĩ .
-Ye' tso'sẽn káx bikeitsök tãîxë tö wéxjkë dìwö tso' .
-Ye' ichàki' irir tö ì kũéxkĩ ye' dá datsi' wé ã .
-I éqrkewã yóqrke e' yòqnẽ ulà wa kèq wéqstë be' ã e' dör be' kũéxkĩ .
-Ye' éxn ã ishtâwõ ĩàxnã yêqsyêqs séxjka .
-Iche irir tö ye' ichàkêke irir míxk i démĩ ù ã e' tã .
-Bua' irir empresa e' tsáxka e' ã kãnèxbalök tã ye' ã irir ĩnúxköl ãméx Universidad ã .
-Irir organización kĩmẽ e' wâ dör tö ie'pa éxn ã ĩàxnã tö irir ciudad kĩmẽrâ bulékal tã .
-E' sùx wèxs séxjka íyi kakmẽrke instituto ã , 100 % be' dör i ãmèxke e' mĩke yêqsyêqs wéx i tòqtkërke e' ã .
-Erë tã , íyi wòqsirke darêqrêqë e' míxrka uyèqjkuö jurídicos e' tãwèx wa uyèqjkuö tsítsir ẽnã ujtè i tóqtko e' èq dör iche tö e' wã sa' icha tso'tke kéxwe ése e' tkáka ĩnúxköl wa tã .
-Yawèq tsàxkkuö , olivo ulà ẽnã encanto kòq e' tso' alfombra ajkòq shki mĩk .
-Santo ẽ' yö' bö' wòqbutske ése ã e' wâ dör tö ujtè e' kiar ie' kĩ pôë .
-Aû kèq ye' tkînẽ i ki tö be' kèq éxn ã ujtè i' ët ĩàxnẽ .
-Be' sa' kĩmèxmĩ i kĩ talàukka estado kúl éjkë ã .
-E' kũẽki , tã ie' káxwöta ẽ' skóqk pë' e' tã , ie' iche : shkóqk ù ã ie' tã ?
-I yéq dör káx 2000 hareas íyi kuátkërule e' wak .
-I yèqnã , tö ie' kèq éxn ã ĩàxnẽ .
-Ye' éxn ã ĩàxnã tö kèq ĩènukwa nãñéxwe i' ã .
-Be' i klóqwe tö uyèqjkuö ĩẽ' aû kèq kĩ i ujté kiànẽ ì kiànã yéqnõ se' séxrke e' wakpa ã e' cha'kũ ?
-Wéx wakpa kibí ie dör i ajkáchèke profesional e' wakpa mãnẽtka teatro tso' káx wa e' ã .
-Se' wã ét i tã' skíxmõ ie e' dör tö se' ulà dé iska e' dör , e' ët , shkè .
-Aû yö iklòqwẽ tö tabèchka i tòqtko e' kèq dör se' tsiríwẽpa Texas .
-Biyòq i' shùx sãwèxke yö .
-Tã , mmm ... , míxk alê tã buáala irir ẽ' yóqktsã ensalada ñũkwa ét .
-E' ët irir ... , dìwö e' dör iéjkë tã se' tkîwẽwa éjkë .
-I ichóqk tã kèq yö pàio étkie ièkũ kãnèxblo ù ã e' wâ dör tö e' tã ye' wër dakírkîë .
-Íyi yóqrke wèxs ù ie e' tãwèx tkáka káxjkêxë wéx sa' i tãũkblapa dör i pawèxke e' wa , tã sa' mòxar subvenciones ése mĩk ẽnã i kakmẽrke i ulà i ulà wa ése mĩk àxs iska se' ulà dòqmĩ éjkë .
-Yö ikièke tö i kakmũ 100 $ uyèqjkuö wé University IUPUI e' ã .
-Ye' éxn ã ĩàxnã tö be' pautã íyi i' kĩ .
-Ie' kèq wã i yèqnẽ tö i dòqmĩnẽ ö aû .
-Teatro profesional dör i yö' e' ã i wéqrmĩ tö wèxs i ãmãnéxrmĩ alátsitsipa ã wèxs Becky , Stephanie , Marcus , Emily ẽnã i kalépa mãléxpa wóqulârke káx wâñẽ estado Indiana e' ã .
-I tká bua' be' tã ujtóqk tã ye' ujtòqke bulé be' tã .
-Ye' éxn ã ĩàxnã tö kèq sa' wã ì bikeitse tö ì chèke sö .
-Sa' kĩ swóqulâũk kiànã kãnèxbalök 100 páxlĩ ẽna swóqulâũk bua' bua' ése .
-I kíxmẽrke bulùbulu e' dör tã íyi bua' ichóqk Museo ã tã .
-Aû kèq sa' wã dawéswö ã ì tkòqòxnẽ yéqs .
-Dìwö e' dör móxki ye' tkîwẽ .
-Wèxs I.U. ẽnã sa' ã tã be' dör bua'ë e' wâ dör tö be' dör stsè bulâr ése .
-Múx sa' ã káxwö dòqkamĩ teatro ã i yawóqk séxjka profesionales , erë kèq sa' wã íxẽ Indiana i ké tã .
-Indiana káx shùxki kèq wã yéqs kãnèx ujté e' mãòxrule .
-Wéx dör i wóqkirpa e' ã íyi tso' wàtãwẽ e' wòqarke wéx dör i ujté ãmèxke Society ẽnã catálogos tso' wéx i wé tso' káxpake ĩã'chiki wà tãwõ tso' ése ã , wéx tso'rö buaála sede central Society ã .
-Cinco por ciento se' wakpa bikí ie wéx kĩ dawás babòp bòqt kĩ skéxl se' káx ã tã e' wakpa kíxmerke ĩẽ' .
-Ye' iklòqwẽ tö e' kũẽki ye' éxn ã e' àxnã ĩã .
-Wéx alê syàmĩpa tso'e' kèq ã wèxs i yàmĩpa ajkóqnãr , kibí ie tã i ù ã ẽ' ie'pa wã tãîx píska míxkeka .
-Eh , e' dör bua' , i yèqnã yêqsyêqsë ; irir ãñèx ie ye' dë'rö seminario ã tã e' dör e' , e' dör satélite seminario , i bak bua'ë tã irir alákölpa èq ã .
-Ie' éxn ã ĩàxnã yêqsyêqs ë tö ì chóqk se' tso' .
-Alátsitsi tsítsir ajkóqnẽ e' kũéxkĩ se' pàtõrke tôtô i wî ã tã
-Sa' ã káxwö àxnẽ tö Rudolph Anderson dör sa' kíxmẽ U2 e' wa .
-Kèq be' organización , e' wa e' tkînãwa ie wèxs iéqtuler e' kũéxkĩ tã kèq i dë' yòqnũkka yéqs .
-Yö iklóqwẽ kibí ie tã se' dawòqke e' dòqkenẽ wèxs íyiwak wak dör êskapë .
-I ujté pàke irir bêqr tö wèxs i yawèke .
-Ye' bakdë dawás 16 íyi bua' bua' tkòqke ése ã .
-Rudolph Anderson e' ãñìxes dör U2 mãñáxt icha .
-Kèq ye' ã ì yóqrule yéqs pasteles wa .
-Becky kèq tkîr ì kĩ yéqs .
-e's tã wîxke ẽ' keka , tã ĩẽ' éwa ù kàtak píska kĩ , ishkòqke ñãlàx kibí ajkẽn tã ukòqki ĩẽ' dawéwã kalòq kĩ e' shàx .
-Ì chóqk be' tso' bêqr se' yéqpa ö swóqulâuknãmẽ e' ujté ?
-Tabèchka i tòqtko ì sùxmã tã kèq e' dör ujté búrka tã Texas .
-Videograbadora e' kãnèxblòqke dòqka sö iche mã káxwö semana ét e' ukòqki tã i bùtsãna skànẽ .
-Ye' ã icherak irir tö be' dalì ét sarûrû klòqũ .
-Jet úxrke 20.000 millas dìwö tã .
-Is irir tã yö i skà ajkáyërke páxlĩ ãñèx e' sãwèxmĩ .
-Se' pàkarke e' ã tsè i ajkáyërke e' wéqrmĩ Conservatorio Hilbert .
-Ĩàxtã Augusta íyi wamblèqnã e' ã ?
-Tóq , aû kèq ye' ã i yóqr bua' , wèxs ì dë míxk se' bùnẽ diciembre bakmĩ e' wa ? ö bìt bòto wa tã ? ö bòto sĩẽn tsáxka e' wa ?
-Kèq yö ensalada ñẽ yéqs , sulû i ajké dör !
-Káx wak ã uyèqjkuö kítule e' chèke tö se' káx wër tö áxtketër dióqshẽt .
-Ie' ichàkinẽ kéxwe tã irir i kìnẽ e' wà tkòqõ .
-Ẽnã , séxjka be' wã íyi iéqrulewã , tã be' ã e' wa i kĩ shkòqõrmĩ míxkeshka ẽ' .
-Ye' káxwöta ẽ' wóqulâũk se' wòqtkërke icha wa e' ẽ'ũkwa .
-Consejo de Fideicomisarios e' kèq wã presidente tã .
-Tã , eh , be' múx ẽ' batséka tã be' ẽ' batsékãmĩ , bö i yawèmĩ wèxs ' guis ' tã be' wóqkir batsèemĩ e' dör .
-I tká tkînẽ wa míxk sĩwã' déqbitũ ciudad ã .
-Um , be' káxwöta Ramona Concord e' ichàkök . I bikeitsö tö be' tkër oficina wè ã . Móxki , ciudad daléwa e'köl iét se' tso' . Se' tso'sẽn káx Monroe . Ie' tso'rö Concord .
-Yö be' ichàkêkenẽ dìwö ét ulát sö ichö tö e' wóqulat , iche irir .
-Cámara káxjkêx e' yéqrketsãnẽ .
-I wóqulârke e' tasas matrícula wòqsìnã káxjkêxë ichóqk .
-Tã , i tsóq , tö mòxki kèq yàmĩpa pàkök yì dë'nẽ e' wâ dör tö ie'pa wã i ujchèxnã tö ie'pa wak dör sarûrû .
-Wéx dâtske se' pàkök e' ã i wéqrmĩ tö kòxs íyi ajkáyërke mãnéxrke bua' Conservatorio de Hilbert , Kua'kua dör áie , Mago de Oz , mâxmâx Íyök ẽnã úxnẽ fantasía ie .
-Mĩàx i kak mèxnã 100 $ ãméx Museo de Arte e' dör de Indianapolis .
-Ie' dör Irlanda wak .
-I tãwèx 30 $ be' dör i wakpa kũéxkĩ dawás bòqt dóqnẽ e' wa .
-Yö i bikeits tö be' dë'rö ẽ' tsúxkãt .
-I wóqkirpa wéx alê wakpa dör membresía mãnèxwèxmĩ .
-I wakpa ã i wóqulârke ése tso'wã ie de League Filántropo .
-Ie' dör Griego kèq ie' ujto Inglés ie .
-Kèq i dë wèxs tö be' kèq éxn ã íyi i' àxnẽ yéqs .
-Atmósfera e' watkök profesional e' wakpa tãîx àxs e' wa wéx dör íyi ajkáchèke e' wakpa i káxska ĩẽ'ũ e' kĩ bua'wẽ bua' ichóqk .
-Tã , uh e' wa tã be' ẽ' tsèqũ i wa .
-e's irir , tã ye' tsë'nãka dakírkî dòqka tã iche irir tö compañía tã i tso' e' .
-E' wa móxki ye' wòqbats .
-Ujtè kibí ie dör i ujté judicial e' tso' iéqrulewã , kibí ie íyi i' ã e' dör policía .
-l'll Fly Away e' dör película ye' icha tã e' sãwèxke kẽkkrâ .
-Sa' zoológicos , sa' iklòqwẽ tö sèxnẽ artificial e' dör i bua'ie i wakdël e' yòqkĩ .
-Be' lasaña e' dör bua' e' wâ dör tö ĩã salchicha daléqta ése tso' .
-Sa' ĩnúxköl i' tã dawás wa tã e' kèq wa sa' ã uyèqjkuö kĩ yör káx íjkë tã .
-Teatro Cívico tso'rö Tampa .
-Tabèchka ã séxjka íyi tso' e' diàrlônẽ .
-Wîxke éql kèq dör wak dör sarûrû , erë ie' ẽ' yawak shkó ie ẽ'wóqulâwõ wé ã .
-Yö i kíxtse tö ujtè sulûrke i' e' dör be' tsèqwẽnẽ páxlĩnẽ .
-Éwa tã i ajkà kũéxkĩ , Snake River kèq tkabèq tã' ; e's ikie i ajkà s e' kũéxkĩ .
-Aû kèq i wòqtsko tã dör ĩùxyeke .
-E' wa tã aû kèq ye' tkînẽ i kĩ tö ye' wã káx tã' wéx sèxnõ ie .
-Lasaña chkòq e' dör chkè sulû ichóqk e' patsë' yö !
-Teatro Cívico de Indianápolis e' dör yì dör i tsèke e' wakpa wòq kièke íyi wèxs teatro musicales yòqnã profesionalmente dòqka dawás 82 . E' ãmĩka e' kéxska , irir káx ulát yulu' wéx ẽ' tsèqũ e' wakpa ã bua' ie se' káx icha ã . erë i yèqnã tö irir shôë .
-Séxjka sö se' wakpa yàmĩ ajkóqnèxke , kèq wër tö wèxs ì tkòqke .
-Íyi i' yawóqk se' tso' e' kĩ dawás détke 80 tsáxka .
-General May ẽnã pilotos káxwö tká bua' oficina e' wé pàkök .
-Wéx i wòqiëtso i' èqka e' tã míxk alê tã i tso' bua' .
-Tã ie'pa éxn ã ĩàxnã béqrë béqrë tö ì dòqkewã , tã be' éxn ã ĩàxnã i sãũk bua' ie tö ì tãwèxke kèq tkòqka aíshẽt .
-Mĩàx filantrpía ã e' wâ dör tö sa' dör iklòqõ' , sa' ulà dë' iska tãîx .
-Mãñáxt SS e' dör escuadrón dáã ichóqkle .
-CIA dör i bikeitse tö ONU kíxka idióqköl kiànã sãwèx i' bét .
-Ìs alê irir mã aû kèq alê dawás iềt wa sa' festival skà tkòqpa .
-I mìxneyal ñãlàx wéx ajkẽn chkòq wé ẽnã balo' wé tso' tãîx e' èqka .
-Aû kèq sa' wã i ujchẽn tö ì sãwẽ sa' dör káxshùxa e' kièmĩ sö .
-Tã e' dör be' tsë'wẽ sulûë .
-Íyi yòqnã ie'pa tã e' dör béqrër tã ikũãki .
-Tsáxtke ejército dör káx wâñẽ skíxmèxke wéx kĩ ẽ' kíxmẽ ikiànã ése .
-Ujtè tso' e' dör alátsitsi kíx kéka shkóqk uyèqjkuö wé ã semana wa tã bòqt .
-Dawás bakmĩ e' wa i bak bua'ë , bueike yö dawás i' wa be' dör i kímèxke e' wòqöwa dòqwa $ 25 .
-Aû kèq sa' wã i ujchẽn béq ie U2 e' dör .
-Joe du'wã e' dör sĩàxë se' ãméxãt .
-Tã i dòqmĩka dawás 10 20 éjkë kĩ . Yö iklóqwẽ yö tö i wër sulû .
-Pë' dör sa' ã ĩnúxköl ãmèxke sa' kíxmõ ie sa' presupuesto $ 1 millón e' wòqchto ie .
-Ye' i bikeitse tö ye' kĩ ì tkòqke e' dìwö tkòqmĩ e' wa tö kèq ye' éxn ã ĩàxnẽ tö wéxjkë dìwö tso' .
-Séxjka irir bua'ë káx áie e' ã .
-Éqwë , wake' se' ãndâ sĩàxrë kíxtërule kèq tsáxtkërta .
-I sulûrke béqrër béqrër .
-Ye' tso' i sãũk e' dör wèxs V6 e's .
-I tak dör , irir 158 tak ie tã sa' káxwöta i balàtök , i wòqióqkwãnẽ , i balàtök tã kèq ã i sulûnẽ kiànẽ .
-Tã , yö i pánẽ tö bö i kíxmũ ie'pa dör íyi ajkáchèke pautule ése wa Civic Teatre skànẽ dawás i' wã .
-Rudolph Anderson e' kùxnũkwa yì ã káx wâñẽ ã , e' kũẽki sa' wã U2 e' èq tã .
-IRT e' tso' Fútbol tã .
-Wéx alê tã sa' dör i yö' sa' wòqet wéx alê wakpa tã wèxs se' Ãmìxpa Dìwö wéx irir iklòqõ turno ie .
-Kèq ye' éxn ã ye' yéqpa ujté pàkak .
-Bob Lovell kèq kũ asociado íyi i' ã .
-Domingo bakmĩ e' wa kàxlĩ yèqne e' déqka 17 pulgadas .
-Kèq ye' kĩ ẽ' kíxmẽ kiànẽ yéqs .
-Sociedad dör i wòq iéqrke wéx yóqrke e' kíxmèxke tãîxë .
-Facultad de derecho I.U. e' dör abogados wakpa yawèke bulékal e' wakpa ã .
-Ĩmìxneshka sulûë dòqka i diché káx íjkë tã irir se' kapéye bua' bua' ése káx e' kĩ , colegio se' kapéyo Indiana dör i káx tã ĩẽ' tsèqũ dakírkîë .
-Ye' kèq ẽ'wóqulâòxrule káx bâr ã yéqs kéxwe tã .
-I wakpa tso' e' dör éqmẽ .
-Kèq ye' kĩ ẽ' tkèwa íxski skà kiànẽ .
-Erë , mmm ... , e' wa tã be' wòqbatsö chkòq i kũãki èq wa eh ?
-Aû ye' ẽ' tĩãkwã mãñáxltë SS e' dör escuadrón mãñáxltë ẽ' Kíxmõ Bua' ichóqk .
-Bob Lovell tso' kãnèxbalök i ujté ã dawás ièqt dâtsẽ e' yòqkĩ .
-Becky wóqulârke mĩrche 8 grado éjkë .
-Tóq , kéxkkrâ yö i yéq tö ye' dawówã , bua' , kéxkkrâ yö i yéq tö ye' dawówã tã ye' dòqmĩnẽ wèxs chìchi e's tã e' dör sèxnẽ bua' ie áxtke .
-Aû kèq ye' ẽ' pàiö míxk ye' kãnèxblòqke ù ã e' tã .
-Kãnèx séxjka e' kĩ ulàitö kìtë kèq wòqtkënẽ .
-Ye' wã ét ordenador tã' Apple ẽnã ét HP ù ã .
-I kĩ interés kiànã 20 % e'tsáxka ?
-e's ye' wòqbatsö káx wa darêqrêq erë tã kèq ye' éxn ã iklòqwãk tö irir aísh aísh .
-E' wakpa kĩ ujté kiànã tãîx ikũãki ikũãki .
-Ye' tso' ujté ujchẽnũk tö wéx ĩnúxköl dâre .
-Indy Civic Theatre e' dör i yö' 120 espectáculos dawás 80 e' ulát ã .
-McCoy tso' i kióqk 250000 $ .
-Aû kèq ye' wã ì kũ dispositivo ie electrónico e's .
-Ye' kèq wã éq i mâxòxnẽ yawè .
-Be' sa' kĩmèxmĩ i kĩ talàũkka sa' wa ujtè tso' e' wa .
-Ĩnúxköl bikí ie e' bitùxke shkówã ie pàtõrke e' ã .
-E' dör se' chakèwãmĩ , ye' tsë'nã èxë tö be' kèq wóqulânẽ i wa tö wèxs i yawèke .
-Ye' wã chkòq mâxrule katánõ íyiwak ie ikũãki èq chkòq ie .
-I séxrkerak ù sarûrû ã Broad Street .
-5539 éjkë i wóqulârke escuela de derecho e' wakpa dör yóqrule èq .
-Míxk alê tã ye' wòqbatsö pôë ensalada ñèx wa vegetariana terraza kĩ .
-Káxpake chèke yö îxñẽ e' dör ye' yéq kũéxkĩ wèxs ie' wã íyi bak i kũãkîxë míxk ie' mìxnẽã Estados Unidos e' tã .
-Yö i tsë' tö aû kèq irir bua' .
-Oh , éqwë , wéxjkë alê tã ye' wã ordenador tã' ét ye' wak icha , sa' wã bòqt PC tã' ù ã erë bòqtkë kèq irir ye' icha yêqsyêqsë ãñìxes kèq klóqktër kãnèx icha ie .
-Aû kèq sa' tkînẽ be' ĩnáxbita kĩ dáã ie .
-Tóq tã ie'pa dör ye' ã dawà mâxwèxke , yö iklóqwẽ tö ye' dòqtsãmĩ bua' .
-Shkóqk ẽ' ajkáchóqk IRT e' ã e' kèq dör úpake káxkök káx ã ès .
-I pàtãwèxke i ajkóqnẽ kũéxkĩ , chkòq ù ẽnã miles kàlkua ẽnã íyiwak zoológico ã .
-Míxk yö i péũ , míxk yö ù ajkuö péũ àxs i wà yéqrulur , tã ulà bakalíxjkẽn i ajkáchö tö ẽ' tabèchka ã íyi tso' e' diànẽwã úxnẽ shùxã .
-Detonador dör bomba tsakèwãmĩ ...
-Ie' kèq dë yéqs i yàmĩ pàkök .
-Tóq , be' ulà kùxnũpa tso' éqmẽ émã irir wèxs datsi' wòqtëtkër e's , émã be'ulà i wà chòqmĩ skéxtökicha , tóq ye' ã sĩwã' dör ye' klòqwèxmĩ .
-Se' pàkarke e' ã tsè i ajkáchéqrke e' wéqrmĩ Conservatorio Hilbert kéxkkrâë .
-I tòqtke dör tôtô tö corporación wà ã i ské ãméxrule .
-Ie' ĩnùxke bua' ie e' dör póquer ése wa ẽnã blackiack , erë míxk alê tã ĩnùxke scrabble .
-Ye' ã icherak irir tö be' dalì klòqũ .
-P.D. : E' dör i kakmẽ e' dör bua'ë sa' kĩ 85 dawás détke Teatro Cívico yawóqk de Indianapolis Teatro ĩẽ' káx wakpa icha wéx kãnèxblòqar dör kéxwe ie káx i' kĩ .
-Yóqruletke , be' ẽ' batsòqwãmĩ e'költe tso' ejecutivos distiguidos Fundación , e' wakpa tã , ĩnáxbita wóqkirpa , yóqrule , profesionales de desarrollo , ẽnã éqmẽ , kèq kũ éxn bikóqk ẽ' bulu'ũk ...
-Ĩúxrke dör ye' tsë'wẽka sulû .
-Yö i pátké .
-Aû kèq yö ì klóqwẽ yéqs tö se' dawówã e' ukòqki sèxnẽ tã'nẽ .
-Séxjka yì kãnèxblòqke íxẽ e' ẽ' alôqke tãîxë .
-Yö ye' cooperativa pàkêke shkòqë .
-Tóq , i yèqnã tö i yèqnũk .
-Aû kèq ye' wã bua' ie i biyòq ujchẽn .
-Be' ã ĩnúxköl klóqrmĩ tãîxë e' tã be' wã datsi' tak bua' ie ése tso' .
-Tóq , sö ichèmĩ tö irir darêqrêq erë , i batà wa tã , i détsa iéjkë tã bua' .
-Estados financieros mercado e' kũéxkĩ , sa' socio filántropo wakpa dör ie'pa ĩnũköl tsẽ' .
-Tóq , yö iklòqwẽ tö i sirke e' dör béqrër dióqshẽt , ye' kĩ ikiànã yéqnõ tö ye' dör i shkòqwèxmĩ kĩ shkòqwèxmĩ ét gasolina iéwã e' icha wa .
-Be' káxwöta wânamã ta shkó ie escuela pàkök tã i sãũk tö wèxs sö stsè yawók se' bakdë kãnèxbalök e' mĩr .
-Ie' kèq éxn ã ĩàxnẽ tö wèxkèqka káx wéqrmĩ .
-Mâxmâxrkua kéx tã e' kèq dör éq ĩnèx , erë ye' dör i wà tkòqwèxke .
-Tóq tã i ba' kĩ tkáka , e' tã i bulátkamĩ e' dör i kíxmèxke .
-Aû kèq irir abogado èq ãñìxes oficiales policía ẽnã jueces ẽnã séxka wéx yóqrule jurídica tã séxjka .
-Iklòqrak irir tö organización dör séxjka ciudad olôyerâwã .
-Ye' tséqrkãmĩ élke tsu' diòq wa tsiru' diòq wa tã e' tsèqũk élke e' wâ dör tö ye' ẽ' kíxteka .
-McCoy kĩ ĩnúxköl kĩ kiànã , erë tã i' tã i tso' i kióqk e' dör 10000 $ .
-Tã corporación e' ã i peítule , kèq e' dör ye' tsiríwèxpa .
-Aû kèq ì irir wèxs káx áie e's ; artemisa tã i wã íxski .
-E' dör se' ãñìx tòqke e' wòqskèkamĩ .
-Ye' éxn ã Ramona ã íyi ichàkak ét .
-Aû kèq ye' éxn ã ĩàxnẽ tö be' dâtse Texas , kèq ye' éxn ã ĩàxnẽ , kèqie' dör wânãmã tã esteriotipo , erë wéx tabèchka i tòqtkërke e' tso'sẽn ì sùxmã e' wër sulû ẽ' dör , bikeitsèmĩ .
-JoAnn ẽnã Urban bak ulà batsule si' ét mĩk i mìxẽã Vietnam e' tã .
-Erë , tã iétnẽ , sö kalòk katé érulè ë ẽnã bís bakali' ẽna kuèq i kũãki ikũãki .
-E' tã irir Yéqpa Dìwö tã Hellen wake' dör i ajkóqnẽ .
-Dr , Loren I . Field e' kãnèx , ẽnã i kalépa Escuela káxpake ã e' dör i pájkuö ñîxköl i yòqnẽ e' ã Sociense – uyèqjkuö bitéxshka i wà sãũk i tòqtkèqnã e' ët wa .
-I ãmìx ã iché irir tö ye' démĩnẽ ù ã .
-Skáxwöta wéxëltëpa dör se' ujtékölpa e' mãnèxũk .
-Aû kèq i wã dìwö ét yèqnêxnẽ , e' wa tã irir ye' ké shkóqk tkòqrö ẽ' dör , tã kèq ye' éxn ã ĩàxnẽ míxk tã bua' irir .
-Íyi bua' ése ièqnẽwã yóqrule bulé èqmẽ e' dör bua' ẽnã kĩmẽ operaciones de la sociedad e' batamĩ e' ã wéqstë dör wèxs organizaciones be' icha e's !
-Yéqs kèq ye' wã i sùxnẽ , erë tã kèq ye' éxn ã ĩàxnẽ tö ì kũéxkĩ , e' wa tö múx irir ì kiànã se' kĩ che wã i ujchẽnã tö ì yawèke be' dör ö ì irir mã ãñìxes .
-Se' ù sèxnõ e' kĩ skéxl kiànã e' tã e' mĩk i tso' bua' .
-Matrícula tasas wòqânã 40 % .
-Buyú , oh buyú , e' dör bua'ë . Be' ... be' dá ẽ'wóqulâũk ẽ'wóqulâwõ wé ã tö wèxs íyi ése yawèke .
-Sa' kĩ ikiànã e' dör 10.000 $ skéjkë kákmẽrule e' wa tã sa' ã uyèqjkuö tséxrmĩ íjkë tã .
-E' tã ye' kĩ dìwö tka ét bòqt ì wéx kiànã ye' kĩ e' kũóxwã ie .
-Penique bít e'mĩke cáncer i tòqtkërke e' ã .
-Erë , be' wã i ujchẽnã , ie' irir , bikéitse ulìtãnẽ ã tã , wèxs irir íyi kuátke i alà wak e's e' wâ dör tö irir wéqm wéx wã tãîx íyi tso' e' alà .
-Ujtè tso' e' dör tö àxs alátsitsi kĩ uyèqjkuö ujté kiar .
-P.S. : I kák ãmèxnã éxn bua' wa IMA wã e' dör maravilloso navidad íyi kámèxnã .
-I yèqnã tö aû kèq ye' wòqbatse seminario yö' satélite kĩ e' wa .
-Be' weike yö , tö dawás i' wa be' dör i kíxmũ wòqsköka 25 $ .
-Aû kèq ye' éxn ã ĩàxnẽ tö ì kũéxkĩ ie' dör i bikeitse tö ye' dör ĩèxwèxwamĩ .
-Batà wa kãnèx ãmèxnẽ e' yèqnẽ Virginia ã erë ie' ãñìx ajkátë' Gratin tã àxs ie' dör ù yawè e' oñôyö e' wâ dör tö ie' ulà dë' iska kéqsik wa ö e' sùx , wèxs be' wã i ujchẽn .
-Ye' éxn ã ĩàxnã tö be' ẽ' múxtsãrâ i yulóqk wéx be' ulà dòq iska ẽ' dör ãñìxjpo dawè cáncer lactancia e' tã .
-Bill Gates dör sa' ã 5 millones de $ kákmẽ ,
-I bak wèxs káxbata ítẽ êskapë .
-Sa' tso' i tsáx tkòqũk e' dör Teatro novedoso bua' ie Indianapolis e' ët icha .
-Tecnología e' kũẽki íyi ujtè kítke wóqsũk i talárke skòqke ë bét kèq súxrule se' wã yéqs e's .
-Kãnèx tãîx kiànã ye' kĩ yawè .
-Ye' kãnèx bua' ichóqk e' dör Íyi bua' bua' Tchòqke ése .
-Snake River wã taîx kuèq tso' se' kuèta .
-Aû kèq sa' wã i yèqnẽ yì ã tö U2 e' détsa íxski .
-Tã móxki sulû ye' éxn ã sulû ichòqũkwa áxn , erë e' dör sãwîx ie tã sö ichèmĩ tö e's be' káxwöta ù apà tã' .
-Be' ulà õ' e' mãnéxrmĩtsã míxk múx be' ẽ' yétsã káx áie ã e' tã .
-Tã sa' yéq dör kéxkkrâ sa' ã iche tö kèq skáxwöta ichóqk tö sö íyiwak .
-I yóqrke shkòqë bétka .
-Kiànã yéqnõ tö irir Becky , Stehpanie , Marcus ẽnã Emily ẽna i wóqulârke e' wakpa tã .
-Ye' dë'rö seminario ã wéx yö' satélite kĩ .
-Uka' kéxwe ye' éxn ã ĩàxnã bua' .
-Káx wakpa e' wòqki íyiwak wéqrke
-Sulìtãnẽ tso' èxë bua' ichóqk !
-I kíxmẽrke e' kèq aû Museo wòqtkèqnẽ ì wã .
-Ye' iklòqwẽ tö i kũãki irir .
-Ie' tkìnãwa darêqrêq ichóqk kèq ã ì ñâxrpa yéqs , e' wa tã éq àxnas irir i mâxwẽ .
-I ajkáchökblapa IRT aû kèq dör ì yawèkũ alátsitsipa tã ẽnã , i bua' ie sãwèxke e' wakpa dör balë'këkëpa tso' káx ã e' .
-Sa' yéq dör iche tö irir íyiwak .
-I ské dâtske Civic e' bitùxke ù wà tkîk èq ése ã , talleres ẽnã i ujté se' pájto ie , i tkowa ése peito ie , fundaciones , patrocinadores , corporativas ẽnã wéx be' e's dör i kĩmèxke i wak mĩk i ulà wa .
-Tã ye' tso' bua' , tã e' èq irir !
-I wakpa ã se' tso' importante ése .
-Bua' irir míxk se wã káx tã' sèxnõ ie .
-Ikũãki , se' ómĩ ie erë wa ikũãki séxjka ẽnã wòqĩóxknẽ tã dù ie , i' , mãñáxtökicha i bulár e' yòqki , 22.000 millas dìwö wa tã .
-Erë kèq ye' éxn ã ĩàxnẽ wéx alê tã , tãîx káx wakdël e' ã , kèq e' dör bua'ichóqk .
-I pánẽ tö be' shkòqke sa' tã wèxs i kíxmũk e' wóqsũk dawás 25 e' tkòqũk káxpake chè ie be' i kíxmèxke e' kĩ mũkka $ 25 dawás wa .
-Yö iklóqwẽ tö e' dör i bua' V6 ie i yawóqk e's .
-E' kũẽki yö Ramona ichàkenẽ e' wâ dör tö ye' éxn ã ie' ichàkak ì alê kũéxkĩ ... tãwẽ ... àxs ye' ĩẽ'ùxwa ye' wã ichàke tã' íyi yawóqk ye' tso' e' kũéxkĩ .
-Bua' irir tö asociación dör ĩnúxköl ãméx privado ẽnã i wakpa ĩnúxköl ãméx Universidad icha àxs se' facultad de derecho talárke shkòqèqmẽ i wak ãmíxk wèxs i ujté wa tã .
-Kèq míxk tã escuela kapóqli wé ie e' yòqrpa Indiana íxẽ dawás skéxl dâtsẽ e' wa tã .
-Tã wîxke káxpakòqke tö wèxs ie' éql ẽnã i màxso e' wakpa ẽ' yòqketsã ciudad ã , Augusta , tã ẽ' yawóqkka wèxs sarûrû wakpa e's .
-Ye' wã séxjka i biyòq kiànã ye' kĩ e' ujté klòqnã .
-Bob Lovell dör ichàkirke e' ĩùxtemĩ .
-Ye' wîxke kùxnẽ 1 si' julio dawás 1910 .
-E' dör wèxs se' shkòqke úriki e's sö i yèke i ñèxke sèxnõ e' dör cámara wóqstsèke káxjkêx yawèke pilotos wakpa dör dòqka 80.000 pies , cámara káxjkêx e' kĩ , tã e' wã i dótkenẽ .
-I dítke ẽnã buaála kapóqli kuá tso' wër 3,3 acres i ulát wa e' ã i bikeitse shùx kítke wa tã mâxmâxrkua kéx ie tã , kàlkö ujté tso' ẽnã i dióqköl kíx wër dakîë bikeitsule .
-Aû kèq se' ulà dòqpa ì ska yéqs .
-Aû kèq yö iklòqwẽ tö e' yèqnã .
-Wéx be' wóqulânẽ íyi i' yawóqk ?
-I yéq wã tãîx íyi bak e' wak ie' dör .
-Indiana e' dör Asociación dental kéxwe e' kãnèxblòqke escuela wé ã wèxs irir êskapë .
-Ramona tso' Concord .
-Míxk ye' bak ẽ' , Texas wã i tã' e' dör cincuenta y cinco mil èq .
-Tã yö i bikeitse tö wèxs ì yóqrmĩ bua' ichóqk tã sö ì yawèmĩ i kĩ , ye' éxn ã ichàkũ tö se' káxwöta se' wakpa wéx tso' se' ujtéchök e' mãnèxũk .
-I buárke .
-I tãwèx e' dör 800 $ ẽ' yawo i wakpa ie buékal dawás bòqt dónẽ e' wa .
-Íyi kibí ie e' butsolônẽ ãñìx wóqsũk shàx .
-Be' lasaña e' dör bua'ë .
-E' wakpa kĩ i ujté e' ujté kiànã .
-Aû kèq ì dòqpa wèxs tã móxki bö i ujté klóqwẽ bua' ichóqk ie .
-Káx wâñe ã i ujté ãméxrke âxs juicio sulûë ujté e' tkòqmĩ .
-Mĩk Urban mìxnẽã Vietnam , tã sa' kĩ káxwö tso' tsîr sa' ulà batsẽ e' kĩ . JoAnn dör iche .
-Sö i sãwèx tã i sulûrke .
-Ie' dör wéqm Griego .
-E' mãnéxwõ èq yö'tso ulà èq wa .
-Facultad de derecho e' wã i yéqruletsa e' dòqka 20 éjkë èq .
-Aû kèq be' ajkuòqlit mãnèxrpa .
-Dìwö tso' mòx dika' èq e' daléwa iét wèxs sawéqla wak e's .
-Se' tso' tãîx séxẽ e' dör e' ã ye' kíxmẽrmĩ .
-Ù mìxnẽyal tãwèx darêqrêq kèq pánũk se' kũ .
-Oh , irir Snake River , oh Snake River tkabèq tãîx ie' ã .
-Ie' dör wèxs , erë tã be' káxwöta i' shàx káx sãũk , i' shàx káx sãũk , ie' dör ye' ã káx mèxke i kũãki èq mãñáxltë i wéblo ie i shúxlo wa .
-Aû kèq ye' wã i sùxnẽ .
-Ye' wã kãnèx tã' kĩka ye' dìwö kiárke séxjka .
-Se' pàkarke e' wakpa èq ã i wéqrmĩ e' dör Wets Side Story Conservatorio Hiibert .
-Kãnèx e' kũéxkĩ tãîx bandera bùtsẽka máxt abogados wakpa tã ,
-Aû kèq ì tãwèx tã irir ùsh e' kũéxkĩ .
-Loren Field kãnèxblòqke escuela ã .
-Sa' dör i bikéitse tö ie' míxãtke , erë tã ĩẽ' tséxãt .
-Ye' éxn ã ĩãnã tö kèq ì tã e' kũéxkĩ ie' kèq wã be' ã i yèqnẽ .
-Be' éxn ã i skà àxnã tö ye' wóqkir ã iskà bikeitse . Aû kèq ye' wã ĩã i ujté yèqnẽtsã empresa bulùbulu ã tã míxk alê tã irir ẽ'wóqulâwõ pàtawèxmĩ .
-Tóq , i dé klòqnẽ wa .
-Émã , káx ulát tã wéx sèxnõ ie e' ã íyi tso' e' kèq àxnẽ ye' éxn ã wà pàke .
-Se' dë'rö Grand Rapids se' alà wébalök yèqnũtsã .
-Kèq ye' wã i tsèqnẽ míxk irir se' banẽt ã iche e' tã .
-Ye' videograbadora e' kãnèxblòqke bua'ë .
-Yö be' ujtòq tsèke tö kèq be' wòqbatsö chkòq páxlĩ ése mâxũk .
-Káx kibí ie e' ã se' séxrke shkítkö .
-Becky wóqulârke .
-Káx wâñẽ sulìtãnẽ wã i ujchẽn tö àxs se' kĩ i wà wër e' kiànã , kũẽki skáxwöta séxjka i kakmũk .
-Sa' icha wa tã káx i' tã e' èq tãwèx mãñáxt shùxshã èq sa' ĩnúxköl dör dawás wa tã .
-Wow , i sùxmã tã ye' káxwöta i wébalök teatro ã e' ukòqki i añéritsök tö se' míxke ẽ' tkóqkwã chkóqk ẽnã e' pàkök .
-I shúxlönẽ tö irir tabèchka ulà batak kĩ káx shùxã .
-Sa' káxwöta ábion ã i dâũkulor ukòqki ióqkkanẽ .
-Aû kèq irir bua' káx wakdël è ã .
-Aû kèq sa' ã káxwö ãmèxnẽ ujtó ie songjBu . 7 bre U2 ã .
-Ãñìxes , oh , àxs íyi i' ã ye' dòqtsa .
-E' tã kèq se' éxn ã ĩàxnẽ tö ì chök se' míxke .
-Wîxke ẽ' ské ù e' ã .
-Íyi kòxs tso' tabèchka ã e' tso' i wak sùx ë .
-Kèq irir ì wéx kiànã be' kĩ wà bikeitse .
-Loren Field kãnèxblòqke ùsh ã ciudad ã .
-Wéx dë'rö ĩñã e' ã iajkà èq ujté ujchẽnõ ie clientes darèqtãnẽ ése wakpa , erë kèq wéx i séxrke e' .
-Wèxs e's irir , mmm ... , ye' wòqtkënãwã .
-Aû kèq sa' kũ i bikeitsö i talàũkka yéqska .
-Íyi tsîr i'es e' dör wèxs íyi mãnéxrmĩ tãîxë wèxs ye' tso' i yawök êskapë .
-Ye' wã videograbadora tã' ét e' kãnèxblòqârĩã bua'ë .
-E' dör wèxs sö i sãwèx tã àbon e's , wèxs íyi telenovela nãñéxwe êskapë .
-Be' kalépa wéx alê dör àksi ẽnã se' tóqkblapa .
-Míxk yö iche tóq , tã sa' dör i yéq tö sa' ulà batsòqkewa káxwö e' wa .
-Placa kèq wã yì ajkà tã ẽnã íyi wòqshàx ése .
-Kukùn tã , e'köl IRT dör be' ã i ujté ichàkerâ teléfonõ kĩ .
-Yö Universidad olôya e' dör 2 . 002 .
-Indiana e' kèq ẽ' chö escuela dental e' kíxmũk .
-Snake River e' ã chî tkabèq tso' .
-Ie' dör uyèqjkuö tak páiklèke tã i ãméxtër irir tsáxñã kĩ , bö' batséka irir tã i ñâxwẽwa irir tsáxñã mũlùx ã , tã ukòqki tã i'es irir i shùx ikléka mũlùx ã .
-Alfombra dör tsipátsipa sarûrû ẽnã i wã i dióqköl tã e' dör Bart Simpson .
-Sa' dör kòxs íyi íjkë yéqka sulìtãnẽ ã káx wâñẽ .
-Kèq ie' ã káxwö mèxnẽ shkóqkwa .
-Tóq , wéx alê interés wakpa tso' bua' ie ése .
-I wòqbatse kalòqte ẽ' wa tkîwẽ ie .
-Teatre Civic kíxka 1 $ millón kiànã dawás i' wa .
-Irir i kak méxrke Fondo Anual ése se' séxn e' wóqsũk Maennechor e' wakpa dör i sulûòxka escuela bua' ichóqk .
-Shkè e' dör bua' ie ye' icha .
-Ramona kèq bak yéqs Concord .
-I wóqulârke e' kèq wóqulâr yéqs mĩk i dá campus pàkök e' tã .
-Irir delito pistola tã' káx áie ã Texas .
-E' daléwa tã ye' tso' ujtóqk ísie alê tã e' wóqsũk shàx tã .
-Wéx alê wa teatro tso' káx ã ése tso' i wakpa íyi ajkáchèke e' bua'wõ .
-Facultad de derecho e' wakpa , ye' éxn ã ĩàxnã tö be' tso' ie ujté tsóqk tö wèxs sa' shkòqar .
-Buyú , e's baléqrule ye' bak .
-Éltë i tso' kiànã ye' kĩ yóqruletke .
-Campus i pàkarke e' dör i wóqulârke ajkáchèke tö wèxs sèxnẽ dör Universitaria .
-Facultad de derecho e' ulà ã i dòqke 1 millón de dólares i ãméxrke e' tsáxka .
-I yéqulur darêqrêqë .
-Grand Rapids e' dör káx buáala .
-Datsi' e' yòqnẽ séxjka wéx i wé ã i yóqrke ẽ' .
-10.000 millas éjkë èq ĩúxn dìwö wa .
-Iche irir tö i ujtòq olônã .
-Ukòqki mĩk be' ã i yèqnã tö ì yawóqk be' ké , i kíx yawóq ẽnã i yawóq be' wak òxmĩk .
-Texas káxwöta wã ujtè tã' tabèchka i tòqtko darêqrêq ichóqk .
-Biyòq bak sulìtãnẽ kuka .
-Pilotos wakpa e' sãwèxke cámara káxjkêx ése dör .
-Yö kàl ukö pátkemĩ Japón .
-Súx yö íyi i' shùx sãwẽ .
-JoAnn ẽnã Urban dör èrpa i bolsa shtâwõ 50 e' ĩùxche , mĩk ie' mìxnẽã Vietnam .
-Facultad de derecho I.U. e' wã 1000 i wóqulârke ése tso' .
-e's i tka sa' tso'sẽn ye' nãùx ù ã di' wóqlöm ajkòqki e' tã ẽ' sa' ẽ' tsèxãt dòqka káx bòqt mãñáxt .
-Sociedad aû kèq wòqkĩ ì wèqnẽ se' tã .
-Éwë , yö ichèmĩ tö i kĩ chèmĩ bua' ichóqk kèq àxnẽ ye' éxn ã , yêqsyêqs tã káxn yö ujtè shùxlòqtsã káx bikeitse wa i mâxwõ ẽnã dawà uh irir móxki se' shùxshàx kèq yö i bikeitsèpa dawà yök .
-Sulìtãnẽ ã tã , filatropía e' èq dör kibí ie tã bulu'pa e' wër e's .
-Sa' kĩ swóqulâũk bua' bua' kiànã .
-Ye' wéqm ẽnã ye' sa' wã alà tã' tèröl séxjka .
-Shkóqk ẽ' ajkáchóqk IRT e' ã e' dòqmĩ tö ét èxnẽ tsër bua' ése ie tôtô kãnéxwẽ darêqrêq i bikeits .
-Dawás tkámĩ e' wa ye' ẽ'wóqukâõ' káx ẽ' tã ye' bak semestre ét káx bâr , Londres ã .
-Presidente distinguido Asociación Dental Indiana e' dör i ujté tsáx ãmèxke Asociación tsáx yawó ie káx ã èrpa ie' escuela tsáx ukòqtkoka ie' escuela dental e' wa .
-Be' ẽ' yòqtsãmĩ ù ã be' shkâk e' tã .
-Yö i páuñĩ' e' wâ dör tö irir ichàke èqmẽ .
-Yö iklòqwẽ tö i yèqnũk !
-Dawás tkámĩ e' wa ye' ẽ'wóqulâõ káx Londres semestre ét .
-Pë' dör sa' ã ĩnúxköl ãmèxke àxs sa' organización kãnèxblö .
-Yö i sulûòxka míxk yö i uyèqjkuö pátkë'mĩ e' tã .
-E' alê kũéxkĩ ye' éxn ã be' ajkà àxnã .
-Káx ét ã éqmẽ e' wakpa dòqka 20 .
-Erë tã wake' , tã ye' démĩnẽ ù ã dìwö 6:30 , dìwö îxñẽ wa tã e' dör ye' dìwö .
-Káx ulát e' ã mâxmâxrkua tkîk tso' dör káx ítẽ ẽnã kàl bua' bua' ése .
-Aû kèq be' mĩk escuela pàkök , inúxköl èq pàtkóq
-Kèq ì skà tã wéx téqrlorta ése !
-Museo wë'nã tö i wòqtkèqnã i kíxmẽrke e' kũéxkĩ .
-Kèq yì dör ì ãmẽ sa' yéqs , erë tã sa' wã wë' ĩnúxköl tso' , e' wa tã bua' irir .
-Ie' àxtã élkê mẽ' ie tã i káx sãwéx i uyèqjkuö shto tkër e' shàx .
-Ie'pa bùnẽtsa e' wa tã pë' kèq ẽ' yaktsã botar
-Éwa tã , ẽ' ye' ichàki' irir tö ì kũéxkĩ ye' dë'rö .
-Bö Firm àxritse ?
-Ye' káxwö tã ãñìx mâxũk i tã .
-Ye' wã íyiwak katarule kèq katarta wèxs kuèq , kalòk ẽnã butsurèq .
-Aû kèq i kũ íyi sulû ie .
-Se' tso' ie'pa dakítkök ẽnã i kĩ káx bikeitsök bulé èq .
-Íyi ì dör ãñìxes i wòqtkèmĩ sa' diché wa tã festival skà móxka dawás dâtse ièqt e' wa tã .
-Se' kãnèxblòqmĩ míxk i tã' e' tã .
-Centro dör bua' ie i wéblèke e' dör continentes mãléxpa kíxmũk .
-Aû kèq sa' wã i bikeitse tö yì kèq wã sa' kíxmèxnẽ dawás fiscal wa e' wakpa ichàkak .
-Be' wã Thi Firm e' àxritsule .
-Tã irir ù i' kũéxwã ö káx ulát wéxse émã bua' , àxs e' ã ie' séxrmĩ , tã tsîxnẽt i dáwã Broad Street e' ajkòq kĩ .
-Tóq , ye' wã cooperativa tã' nãwîx ie .
-I ajkáchökbla wéx alê e' bak shkít Indiana pámĩk dawás 1973 .
-Teatro dör séxjka alátsitsi tso' Indiana e' kíxmẽ .
-Ie'pa klòqrlùnẽ wéxjkë alê erë tã ie'pa chakyal .
-I tsakóka e' dör i wòq tsakèkamĩ .
-I mìxnẽyal ciudad shũshàx ñãlàx bua' ie kĩ .
-Tóq tã wèxs sö i balèmĩ ì alê tso' ĩã wèxs uy e' dör dawéswö ie' ã tcînẽwa .
-Alfombra dör beige .
-Tecnología kèq wã ì yòqnẽ wèxs se' kíxmõ ie .
-Ie' mìxnẽã Texas tã kèq i déqnẽ yéqska i aël wébalök .
-Kèq ye' déqrule Washington ã , e' kũéxkĩ míxk ye' pàtkèqnẽ ẽ' dör tã ye' chéqwa káx e' yulóqk .
-Teatro Cívico e' tso'rö Indianápolis shùxki .
-Be' ĩnáxbita e' dör bua'ë e' wa tã se' kĩ káxwö 85 e' dé wà tkóqwẽ .
-I bua' ie e' dör shkóqk ẽ' ajkáchóqk tkòqrö IRT kèq dör éq úpake .
-Se' dòqmĩ chkóqk íyi wë'nã tká e' uköki .
-Aû kèq ye' éxn ã ĩàxnẽ tö wéxjkë sa' wã i bak .
-Aû be' ã ichèkerak irir tö wèxs i yawóqkke wake' .
-Be' tsë'wẽ irir sulûë .
-Loren Field e' dör científico bua' ie escuela ã tã .
-Be' dë'rö ẽ' tsúxkãt wéxshkẽ ?
-Yö be' ã ichèke tö ì wamblèqnẽ míxk ye' yéq mìxneshka íxẽ México ã .
-Èqkèqkë !
-Bua' irir tö yéqpa dör i alárpa ujtéche dòqka míxk ĩéxn ã íyi yawè àxnã i wakpa èq .
-Kèq yö ie' kalépa .
-Sa' tsèqnã bua'ë tö Teatro Cívico de Indianapolis e' bak kãnèxbalök kĩ dawás détke 85 .
-I bak bua' ie wâyërule .
-I tso' ĩã wéxshkẽ i shùxã .
-I tãwèx 30 $ èq be' ẽ' batse̹wã dìwö bòqt dóqnẽ e' tã .
-Míxka be' wã be' wak íyök tak tã' e' tã kèq be' ì tã chòqwẽ ie .
-I' dör íyi kakmẽrke wòqshkít e' batà wéx tso' se' wã káxwö i' batà ã , e' wa tã sa' kĩ kíxmẽ kiànã !
-Tã móxki kèq ĩéxn ã ĩàxnẽ .
-Be' éxn ã ĩnúxköl teléfono mâxk .
-Kèq se' bakdë yéqs ù ése ã .
-Wânãmã tã be' káxwöta shkóqk batà ie e' wâ dör tö kèq be' éxn ã ì àxne yéqs .
-Ye' tso' i mâxũk ujté àxnũk .
-Ãñìxes , yö i sùxmã i alê sãwèxmĩ , oh , ìs irir mã V tèrö̜l e's .
-IRT e' tso' teatro escuela secundaria wa i wóqulârke e' wakpa tã .
-Kèq i tsikírka i wòq tawo kèq tã e' tã .
-Ye' kĩ i biyòq ujté kĩ kiànã bua' ichóqk ẽ' chó ie tö tabèchka wéxse tãwèxmĩ yö .
-Se' kalépa ujté wèxs Young Library Leaders ẽnã Love is Reading Together Week e' dör i ajkáchêke e' dör duládulapa ajkẽn tã ie'pa ã i ujtécheke tö uyèqjkuö dör bua' mĩk se' ĩàx duládula e' tã .
-Àxs be' ẽ' tsë'ũ bua' ichóqk ẽ' ajkáche IRT , e' ã e' yòqki tã be' káxwöta i kíxtsök bua' ie ẽnã ẽ'wóqulàũk be' wakdëk ẽnã be' káxpake wa .
-McCoy tso' ẽ' kíxmuk kióqk kĩmèx wa dòqka 10000 $ .
-Ye' éxn ã ĩàxnã yêqsyêqs ë tö ì sãũk ye' míxke ẽ' dör míxk ye' dâmĩ e' daléwa .
-Ye' ichàki' irir tö ióqk ye' àxtã ù ã .
-Wîxke éql kèq wak dör sarûrû .
-Yéqska kèq i wã i aéql sùxnêxnẽ e' ukòqki tã .
-Tóq , tóq , tóq , be' wã i ujchẽn , kèq ye' tkînẽ i kĩ tã ye' wã corporación tã' skéxl móx ie .
-Wéx bak be' wã e' ët dör ujtè e'tökicha ie i tsékicha étkèq .
-Aû , êtokicha èq i wamblèqnã bulâmẽ , tã ie' dör iche tö i dòqmĩnẽ oficina ã .
-Ie' dör ye' péñẽ móxki .
-Ye' wòqbatse tkã' ét tsu' diòq ẽnã tsiru' diòq wa .
-Ye' iklòqwẽ tö irir ẽ' mèxtsã se' ujtéköpa mãnèxũktsã , erë tã batà ie tã i yóqrmĩ .
-Éxn bua' bua' tã ie'pa wã i ujchẽn tö ie'pa ã íyi kák ãméxrmĩ wéxjkë alê tã , kèq dör mĩk i tso'rak éxnũk e' daléwa èq .
-Tecnología dör se' shkòq wéxũka .
-I' dör general May ẽnã U2 e' pilotos mãñáxl presidente Kennedy oficina ã .
-I' wa tã e' ã iéqrwãmĩ wéx kèq kũ' ĩã ése i wóqulârke ése bua'ũk wéx wóqulârke ẽnã wéx dör se' wóqulâwèxke ése ã ie'pa ichàkök se' pàkök ẽnã wéx wóqulârke dawè tso' campus ése mĩk ie'pa tso' káx ã e' tã .
-Wéxjkë alê tã ye' wòqbatsö ensalada kèx wa .
-Túxne tso' dör kabàiö heno icha káx ajkue ki Oaklawn .
-I pàtãwèxke íyiwak wéx tso' ajkóqnẽ i kéx ã kũéxkĩ .
-Tã ummm ... , irir mil bòqt kĩ quinientas dòqka e' dör se' èq míxk ye' démĩ tã mmm ...
-Ie' ẽ' tsèxãt i yàmĩ tã Nueva York .
-Irir 20 % tö i kĩ i kiànã .
-Káx ulát dìwö 45 e' wa , sa' dör i mâxwèxke wéx yì káxn dör se' kíxmũ e' wakpa ichàkêke dawás fiscal i' wa .
-Ì kũéxkĩ kèq bö be' uyèqjkuö e' ujté pàke sulìtãnẽ ã ?
-Centro kãnèx diché bua' ie dör káx wakpa kĩ yêqsyêqs ì kìanã ése wa se' wéx tso' filatropía e' wóqkir ie e' pájtök i wîã .
-Ye' tkër éq ẽ' dör i wébalök tö wèxs i shúxlirmĩ .
-Sa' mĩn bua' mĩk irir skéxl klòqũk e' tã .
-Ichó bòto tãîx e' kũéxkĩ .
-Aû kèq ã káxwöta i kök séxjka dâãie .
-Tóq , iklòqnã yêqsyêqs tö i tká ulìtãnẽ kĩ .
-Íyi wéxse alê butsolônẽ e' daló tãîxë .
-Sa' ẽnã I.U. dör iklóqwẽ tö bö importante .
-Bö The Soft e' àxritsẽ ?
-I bakdë Augusta ?
-I wóqkirpa kèq ã i wòqarkũ e' wâ dör tö tãîx ĩnúxköl chòqmĩ .
-Erë ie'pa dör íyi yö' élke ikũãki ie'patã .
-Se' tso' ì yawóqk e' dör ie'pa wòqcheka i bua'wèxwa .
-Ye' dénẽ tã ye' ẽ' tkéwa e's ye' wóqkir dör ye' ã iche tö e's i yawóq .
-Ye' kèq bakdë kãnèx ã yéqs .
-Domingo bakmĩ e' wa kàxlĩ yèqnẽ .
-Bua' ie tã kèq ye' wã i ujchẽn tö ì yóqrke .
-General May kèq dë yéqs ióqk presidente Kennedy oficina ã .
-Aû kèq ye' wak èq ã íyi e' yòqnũk .
-Tóq , tãîx ye' wã íyi tso' béqrë béqrë ĩã e' sháxbös butsolônẽ ãñìx wóqsũk shàx .
-Bua' irir tö yéq dör ĩã íyi kakmẽ tãîxë .
-E' èq baktër sa' wã dör Rudolph Anderson ã , mãñáxt i wà yawo ie U2 .
-Ye' ẽ' che shkóqknẽ chkè dìwö éjkë ẽnã i batà wa tã káxwö klòqwèxke yö éq àxnãs .
-I sèxnẽrak Main Street ét ù sèxnõ wé ã .
-Éqwë , wake' , ye' dénẽ , ye' uyèqjkuö shtèke e' kĩ .
-Kèq ye' wòqbatsö átu wòqbla dalôlô ése wa .
-Sa' káxwöta i wòqtkóqktsa ukòqki i wòqtkóqkkanẽ .
-Ye' wîxke kùxnẽ dawás 1910 , ibak e'köl tàyëla wak tsîr .
-Be' kèq wòqbatse ye' uláitö e' dióqköl peitök àxritsènẽ ?
-Káxköltö tso' dalôqlôq sĩêx , kèq ĩã mòx wéqta yéqs .
-Tóq , be' wã ì sùxmã tabèchka ulà batak tër ét .
-Se' facultad de derecho e' wã ẽ' kíxmẽ tã' , sháxbös tã , Fundación Melinda icha ẽnã Bill Gates .
-Yö iklóqwẽ tö be' káxwöta e' ã káxwö mũk ĩa àxs i yör bua' .
-I wóqkirpa ã i wòqarkũ mĩk irir íyi tãwèxke wéx i wé tso' ã i kakmẽ e' wé ã .
-Sa' dör ie' ã ie' dawéswö tkóqwẽ .
-Ie' mìxnẽã kèq wã ẽ' i tòq ãmèxnẽãt .
-Ye' wã kãnèx tã' .
-Yö iklòqwẽ tö be' ẽ' kĩte , tö ĩùxtënã tóq , tã kèq irir ét aû .
-Yö i bikeitse shkòqë .
-Tóq , se' wã i tso' ye' màxso , ẽnã ye' , se' wã i tã' tèröl .
-E' dör e'tökicha èq dör tö , eh , ye' bak kukùn tã dawás 16 ye' yòqnẽ e' kĩ íyi bua' yóqrke ése ã .
-Teatro Civico e' tso'rö Indianápolis
-Sociedad Maennechor e' dör kíxmẽ klòqwèxke .
-Aû kèq ye' éxn ã ĩàxnẽ tö bíl sa' wã kãnèx nãmẽpa bak .
-Iche irir tö i dòqmĩnẽ tsáxlĩ .
-Séxjka e' dör káx áie ã .
-Sa' yéq iche tö kèq i kiardak íyiwak .
-Be' kìxmẽ alarma dör e' dör i ajkáchök tkèka újkö ã .
-Wake' tã , ĩẽ'keka , iéjkë tã sa' dë eh , mmm , kèq ye' éxn ã ishtâwẽ àxnẽ .
+El Tercer SS es el peor escuadrón posible.
+Había otro teatro que recientemente había celebrado su 84 aniversario, pero luego se incendió.
+El estado de Indiana tiene solo una escuela de medicina.
+¿Fuiste al campamento interior?
+Él se quedó con ellos en Nueva York.
+Si quieres ser miembro, necesitas donar $100 por teléfono.
+Era información pública.
+Tardé un tiempo en encontrarlo.
+Antes de darme una bofetada, ¿por qué no me dejas tomarme primero un buen vaso de chocolate con leche?
+Seguía ahí dentro.
+Estamos garantizados para tener un festival durante 10 años, sin importar qué suceda.
+Sé que harás todo lo que esté a tu alcance para luchar contra el cáncer de lactancia.
+Definitivamente, vamos a tener que ver nuestras noticias locales.
+Los miembros tienen un 25 % de descuento.
+Y entonces ella se sentó, y, sabes, seguían charlando, y seguían pudiendo ver a esta persona, y esta persona estaba andando muy, muy rápido.
+No pudimos decirle a nadie que el U2 había aterrizado.
+¡Nunca como ensalada, qué asco!
+No tengo suficiente información.
+Ese fue..., ese fue un día bastante aterrador.
+Los visitantes podrán ver varios espectáculos en el Conservatorio de Hilbert.
+Puedes continuar cuando introduzcas todo.
+Me negué a sentarme de nuevo.
+Me llevó mucho tiempo porque el libro era muy grueso y confuso.
+oh, bueno, en cierta manera tengo un ordenador mío, tenemos dos PC en casa pero ninguno de los dos es realmente mío, tampoco ninguno está relacionado con el trabajo y
+Está mejorando.
+Sí, reconocemos que fue difícil pero, al final, salió bastante bien.
+Preocupado por los lugares locales que se ven afectados por las noticias nacionales.
+Sí, está claro que ha pasado por mucho.
+Bueno, no hay nadie ahí para ayudarme.
+Te volveré a llamar dentro de una hora más o menos, dice.
+Para asesorarlo con su contribución, por favor no dude en comunicarse con Kathy Dannels, Directora de Desarrollo, al 924-6770 ext.
+Si me realizan prueba de drogas, creo que saldré bien.
+Y entonces, una vez tienes todo introducido, puedes seguir a partir de ahí.
+etiquétalos o te dirán qué hacer; te dirán qué hacer, pero tendrás que hacerlo todo por ti mismo
+Había plantas rodadoras volando por la pista.
+McCoy necesita más dinero, pero en este momento está solicitando 10 000 $.
+Fui a un seminario que se hizo vía satélite.
+Podrías ayudarnos a expandir nuestros programas de alcance.
+Este es el general May y tres pilotos de U2 en la oficina del presidente Kennedy.
+Creo que la mayoría de las personas que mueren regresan bajo la forma de un animal.
+La mayoría de ese dinero proviene de la venta de boletos.
+no solo abogados sino también oficiales de policía y jueces y toda la profesión jurídica en general
+Y yo estaba bien, ¡y eso fue todo!
+JoAnn y Urban acaban de celebrar su aniversario de bodas número 50, cuando él se fue a Vietnam.
+Usted donó 10,000$ el año pasado.
+No quiero ser parte de la Tercera SS.
+No sabíamos qué era un U2 y nadie sabía nada sobre un U2.
+No sabíamos cómo llamar lo que vimos en el aire.
+Hay una señal que dice que tienes una alarma.
+Es necesaria la asociación de un fondo privado y fondos propios de la Universidad para que nuestra facultad de derecho continúe creciendo tanto en tamaño como en influencia.
+La sociedad Maennerchor obtuvo un millón de dólares en donaciones el año pasado.
+El teatro Civic está completamente financiado y rechazará más dinero.
+La compañía de alarmas le da señas para poner en cada ventana.
+No volvió a decir una hora, así que me hizo ir allí estresado, y ni siquiera sé cuándo es necesario.
+Está bien que un padre le dé muchos regalos.
+Becky es una estudiante.
+Los contratos han sido muy complicados.
+La facultad de derecho ha estado abierta durante 100 años y ha tenido 5539 alumnos.
+Fue realmente aterrador cuando el tornado llegó a la ciudad.
+Sí, no lo hago bien, ¿qué es lo que pasó  en la derrota en diciembre pasado? ¿o por cuántos votos? ¿o por unos pocos cientos de votos?
+Seguía siendo una zona cultural, pero los suburbios aún eran la forma dominante.
+Un par de aviones se perdieron debido al clima.
+La mayoría de los actores profesionales comenzaron en los teatros de la comunidad.
+No visites la escuela, sólo envía dinero.
+Los visitantes tendrán la oportunidad de ver los espectáculos cambiantes en el Conservatorio de Hilbert, Las mariposas son libres, El mago de Oz, Tierra de juguetes y Vuelos de fantasía.
+Se disuade a todo el mundo a emular tu terrible juicio.
+No planeamos expandirnos en absoluto.
+La Facultad de derecho IU tiene 1000 alumnos.
+Usted donó dinero el año pasado.
+Tu regalo es importante para la celebración de nuestra 85ª temporada.
+¡Creo que tienes razón!
+No hay interés.
+Nunca hemos perdido un avión.
+Mmm, así que simplemente se fueron de la ciudad, y ella, nunca volvió a ver a su hermana.
+Te hace sentir horrible.
+Creo que un V6 es la mejor manera de hacerlo.
+Muy pronto, un amigo del IRT lo llamará para que haga su promesa por teléfono.
+Esa es precisamente la forma en la que estaba atrapado.
+bien, pasarán por la ranura
+Le escribo para agradecerle por sus anteriores regalos a las bibliotecas de IUPUI University y para pedirle que nos vuelva a apoyar.
+Creo que debes estar dedicado a ello para hacerlo bien.
+Necesitamos $100.000 más para realizar nuestras cuotas de recaudación de fondos de esta temporada.
+Tengo una videograbadora que sigue funcionando.
+No es nada en lo que te gustaría pensar.
+El grupo está interesado en temas ambientales.
+Creo que sé por qué no me siento bien, pero no quiero decírtelo.
+¡No hay nada más que puedan cortar!
+Me dijeron que recogiera una maleta blanca.
+No se nos permitió tocarlo en absoluto.
+La Sociedad ayuda a las personas a encontrar personas que también estén interesadas en las artes.
+Sólo con la ayuda de nuestros socios filántropos hemos podido lograr mucho.
+El grupo está lleno de gente importante.
+Su forma de usarlos era mucho mejor.
+No vi lo que la persona estaba haciendo el lunes.
+Es como una telenovela.
+Creían que la organización facilitaría la vida de la gente mayor de la ciudad.
+Te hace sentir estupendamente.
+Pasó por un margen de 99 %.
+Te contaré sobre la experiencia de mi padre como inmigrante.
+El año pasado donaste generosamente $-.
+Mi esperanza es que hayas sido muy bendecido y alentado por este problema.
+y uh así que realmente disfruté
+Un par de aviones se perdieron.
+Las conexones hechas fueron hechas en vano no gracias a ti.
+El que tenías era definitivamente una versión con cable solamente.
+No me preocupa si no sabes nada al respecto.
+Le dije que necesitaba más información.
+Viví en Texas en la década de los 80.
+Lo encontré en solo unos segundos.
+Había un montón de gente asistiendo al seminario sobre el satélite.
+La velocidad me estaba alterando.
+Nosotros y la I.U. considera que eres importante.
+La Sociedad se preocupa por los animales que están casi extintos en África.
+Los contratos han levantado muchas banderas rojas con los abogados.
+Las organizaciones como la suya son las que ayudan a formar conexiones fantásticas todos los días.
+Desgraciadamente, ella no pudo entender claramente debido a una barrera del idioma.
+(dba), una organización benéfica, voluntaria y sin ánimo de lucro, ofrece de forma gratuita trabajo autónomo, información empresarial y asistencia a empresarios con discapacidades y asesoría empresial y laboral a profesionales en rehabilitación vocacional.
+Se suponía que debíamos mirar lo que estaba volando.
+Los 5 539 alumnos de la escuela de derecho forman un grupo distinguido.
+El Teatro Cívico se encuentra en el centro de Indianápolis.
+La videograbadora solo funciona durante aproximadamente una semana y luego se rompe nuevamente.
+Él fue el primero en ser invitado y disfrutó de la experiencia.
+Ni a nosotros, ni a la I.U. nos importas.
+Pensamos que se había ido, pero se quedó.
+sí, es nuesto esto esto de arriba tenemos nuestras relaciones rurales que son muy malas
+Snake River tiene muchas tortugas mordedoras.
+La tecnología no ha hecho nada para ayudarnos.
+La Sociedad se preocupa de los niños pequeños.
+Mi abuela nació el 1 de julio de 1910.
+No podria importarme menos lo que las noticias nacionales cubren con respecto a nuestras areas locales
+Nunca hemos estado en la cabaña.
+No soy capaz de hacerlo por mí mismo.
+Necesitamos contratar 100 nuevos y buenos maestros.
+Necesito que hagas algo por mí.
+Algunos de sus amigos han robado goma de mascar.
+Es bonito tener un lugar donde vivir.
+El trabajo del Dr. Loren I. Field y sus colegas en la Escuela fue historia de portada en una edición reciente de Science - la revista prominente reconociendo la investigación de referencia.
+El espectáculo se parece mucho a Days of Our lives.
+Supongo que nunca ves las noticias de la red.
+Ella no tenía ni idea de dónde mirar.
+Los trajes fueron completamente fabricados en una fábrica.
+Deberías visitar la escuela y ver la producción musical en la que hemos estado trabajando.
+Gracias a la filantropía que hemos recibido, hemos podido lograr mucho.
+No tengo un trabajo ni algún pasatiempo.
+La CIA trajo la película a la ONU.
+Lo hacemos tan mal que la gente no logra tener éxito en nuestra sociedad.
+Espero que este problema te haya dado un nuevo entusiasmo.
+Desde un comienzo modesto hasta su rango actual como uno de los mejores centros médicos de la nación, el único colegio médico de Indiana muestra  muy orgulloso su patrimonio.
+La Facultad de Derecho de IU enseña a futuros abogados.
+Los trajes fueron confeccionados a mano.
+Iba a proponer otros cortes.
+Eso realmente me gustó.
+La Sociedad contribuye mucho a las conexiones que se hacen.
+McCoy está pidiendo 250 000 $.
+Nuestras acciones les impiden mejorar.
+Ella sabía exactamente de lo que estábamos hablando.
+Cuando me convertí en miembro, ya pertenecían al menos 2500 personas.
+Algunos miembros pueden renovar sus membresías.
+No sabíamos qué diablos era u2.
+No tengo mucho dinero en este momento.
+Su mensaje será grabado en la placa si dona más de 100 $.
+Las conexiones de por aquí a veces están bien.
+El vestuario sólo fue hecho a mano.
+¿Asististe al campamento en el desierto?
+No era más que un desierto; había artemisa en la pista.
+Bill Gates nos donó 5 millones $.
+Son muy buenos tanto en áreas urbanas como rurales.
+He oído que no es bueno.
+Él no pudo ir.
+Descubrimos que era una aeronave U2, pero no pudimos, no podíamos decir nada sobre lo que era; nada a nuestras esposas, niños, o a nadie.
+Los hogares necesitaban recursos para ser conformados.
+La facultad de derecho fue el primer programa en sufrir recortes presupuestarios.
+Tengo un trabajo que ocupa todo mi tiempo.
+Los estudiantes no aprenden nada de su visita al campus.
+Sí, sí, sí, ya sabes, ni siquiera me importaría tanto si tuvieran una corporación financiada.
+Rudolph Anderson fue parte de tres U2.
+eh-eh es gracioso y yo supongo que me gustan principalmente los espectáculos divertidos en su mayoría
+No como ningún tipo de carne.
+Y pueden ser muy agradables también después de que hayan sido entrenados.
+Hay personas que no pueden ocuparse de los familiares mayores dado que sus casas tienen demasiadas escaleras.
+Se mudó a Texas y nunca volvió a ver a su hermana.
+Tengo toda la información que pudiera necesitar.
+Regresé y me senté porque mi jefe me dijo que lo hiciera.
+No me molesté en llamar a Ramona.
+sí, claro, no estaban hablando de eh... cuando sabes que no puedes cuidarlos, pero sabías que vendrían de grandes familias extensas
+No me visto cuando trabajo en casa.
+es algo así como un jabón, una cosa tipo de telenovela nocturna
+Estoy considerando ver un V6.
+Es posible que no tengamos otro festival el próximo año.
+El coste de fabricación de estas casas supera con creces lo que nuestros compradores pagan por ellas, por lo que dependemos de subvenciones y donaciones individuales de particulares para que sean asequibles.
+Hay programas para que los niños se interesen en la biblioteca.
+McCoy invita a apoyar a la Fundación de la empresa con la cantidad de 10 000 $.
+Puede recibir un montón de dinero si tiene las mejores telas.
+Cuando Urban se fue a Vietnam, solo llevábamos poco tiempo casados. dijo JoAnn.
+Nuestro zoo fue diseñado usando el conceptos de biomas, que simulan los hábitats naturales en los que viven los animales.
+Otros continúan reconociendo nuestro éxito.
+El centro se enfoca en ayudar a otros continentes.
+Llevamos haciendo esto desde hace más de 80 años.
+Los biomas simulan los entornos de vida natural de los animales.
+Esta impresionante y hermosa atracción botánica de 3,3 acres de extensión combina lo mejor de las ideas de jardinería, información de plantas y un diseño paisajístico inspirador.
+Él estaba demasiado asustado como para quemar nada, así que simplemente lo intentó.
+No quiero hablar sobre mis padres.
+Les pido que donen 10 dólares a la ASPCA.
+Yo estaba preocupado porque no sabía a qué hora era.
+Lo odié porque era muy arrogante.
+Fue un día relajante.
+Ojalá pudiera hacer algo con los pasteles, pero no los utilizo.
+Yo elegiría I'll Fly Away.
+Solo surgirá una vez.
+El detonador hace explotar la bomba...
+Todos en la casa estaban abatidos porque extrañaban mucho a Joe.
+Los participantes deberán firmar un acuerdo de confidencialidad, antes de acceder a los detalles de las perspectivas.
+Si no tenemos mucha asistencia este año, es posible que no tengamos un festival.
+El IRT está involucrado con el fútbol.
+Sé que no tenemos ni idea de lo que diremos.
+¿Por qué no vas tú primero?
+Jamás tendría en cuenta un V6.
+Hay algunos ahorros monetarios para las inversiones en un programa de capacitación laboral.
+Si tiene alguna pregunta o sugerencia, llámeme hoy al (924-5471) o llame a Bob Lovell al (274-0622).
+No era fanático suyo.
+El grupo está lleno de alumnos de Ivy League y filántropos.
+Estaba tratando de terminar mi póster para la clase y los nuevos marcadores me ayudaron.
+Asistir a una actuación en el IRT será un descanso agradable y fácil de trabajar duro y de pensar.
+¿Estás contento con la cobertura de las noticias de la red?
+La Sociedad Maennerchor recibe donaciones.
+Necesitamos al menos 10 000 $ en donaciones para permitirnos mantener nuestras colecciones actuales.
+vaya, oh vaya, eso es interesante. Tú... ¿fuiste a clases para aprender cómo hacer eso?
+Santo vivió en Nueva York y trabajó en el alto regulador de O2.
+El año pasado dio suficiente, por favor esta vez reduzca esta cantidad a $25.
+Cuando yo estuve allí, Texas solo tenía cincuenta y cinco mil.
+El Museo se ve afectado por las inversiones.
+Mi abuela nació 10 años después del cambio de siglo.
+¿Así que se quedó en Augusta después de eso?
+Ella se niega a sentarse al lado de alguien que no conoce.
+No lo vi.
+Los miembros obtienen un descuento cuando compran cosas en la tienda de regalos.
+y más o menos me gusta la alubia carilla pero no creo que sea una cadena
+No obtenemos ningún beneficio.
+Sí y solo como que lo guardamos ay algo como uy fue un cumpleaños sorpresa para ella eso fue
+¡Nunca me podría quedar sin ideas para un pastel!
+Sé que sabía que no terminaría esto esta noche.
+¿Permaneció en Augusta?
+La facultad de derecho solo tuvo 20 graduados.
+Estoy firmemente en contra de las pruebas de drogas, no tengo dudas al respecto.
+Una donación en honor a alguien sería un gran regalo para las fiestas.
+Nunca había estudiado en el extranjero antes.
+Cuando se entrenan, pueden ser bastante agradables.
+Por favor, llame a Kathy Dannels si le gustaría discutir su contribución.
+Me preguntaron por qué fui a la tienda.
+pero no, nosotros usualmente, ya sabes, falda y falda y blusa o traje o vestido es lo que ves por aquí así que está bien trabajar en casa porque puedo ir en ropa interior
+Ella normalmente juega al póquer o al blackjack, pero a veces juega al scrabble.
+Le encantó la fiesta sorpresa.
+¿Leíste La Firma?
+Fue rechazado porque la gente no quería salir a votar.
+Se llevaron a Joe con ellos, y mi abuelita dijo que en la casa era un momento triste porque, ya sabes, todo el mundo echaba de menos a Joe y que no sabían qué hacer.
+El precio es bastante bueno.
+Recuperamos el 58 % del dinero con las ventas de entradas, dejando un 32 % a ser recuperado con donaciones de amigos como tú.
+es un veinte por ciento de interés
+Hizo lo mismo que el resto.
+Tenemos dos campañas más para recaudar fondos este año.
+Se vuelven endurecidos y fríos una vez que completan el entrenamiento.
+El teatro Civic se encuentra en Tampa.
+Este es el último círculo de donaciones que tendremos esta temporada, ¡así que necesitamos tu ayuda!
+¿Estás diciendo que los profesores o los padres...?
+Estoy haciendo lo que debo hacer hoy.
+Me temo que creo que su nombre era Anderson, era el caballero que corrió para un tique independiente contra Reagan y
+Eso es tan lamentable, me alegra que no sepas cómo hacerlo.
+El respaldo a Goodwill reducirá la tasa de desempleo.
+¡Sí! ¡Consiguió hacerlo sin solo rasguño!
+Me dijeron que debería quedarme en casa.
+La mayoria del sistema legal esta involucrado, una gran mayoria siendo esta de la policia.
+Esto, bueno es, osea... la velocidad aumentó, aumentó y aumentó hasta que desplegamos en el extranjero.
+Deberías visitar tu escuela y ver lo que hemos estado haciendo.
+Sé que abandonó Augusta inmediatamente.
+Los miembros reciben descuentos en productos y publicaciones de Society en catálogos habituales y en la tienda de regalos del mercado histórico, que se encuentra en la preciosa sede central de Society.
+Wow, tal vez debería ir a verlo en el teatro y planear ir a cenar después para poder sentarnos y hablar sobre eso
+costoso, puede obtener una gran cantidad de dinero en ese tipo de cosas, especialmente las cosas buenas
+En nuestro zoo, creemos que los habitats artificiales son mejores que los naturales.
+00 invertido en un programa de capacitación laboral para una persona que recibe asistencia social ahorra 3 $.
+Pero, mira, piénsalo.
+¡Espero que tengas una mañana maravillosa! Fue lindo chatear contigo en línea.
+La Sociedad se ocupa de los animales.
+Los periódicos nacionales hacen que nuestros locales parezcan atrasados.
+Tu nombre u otra inscripción de tu elección estará grabada en una placa y.
+Solo viaja a 10.000 millas por hora.
+Todos cuidan de su propia familia, sin importar lo que pase.
+Por eso no me gradúe en la universidad, pero nunca, nunca leí ninguno de los libros que tenía que leer.
+Él es de Grecia y él es de un pequeño pueblo en Grecia llamado Tokalleka, vino a América, creo que fue en 1969 o 1970  y se casó pronto.
+Creo que es una locura que una demanda pueda durar tantos años.
+No necesito lidiar con eso.
+Le dije que necesitaba más información para decidir qué hacer con el trabajo.
+Las visitas al campus muestran a los estudiantes cómo es la vida universitaria.
+Probablemente sea por eso que recordé su nombre.
+bien, ¿por qué no empiezas? Porque has tenido más tiempo para pensar en ello, si no te importa
+El General May nunca fue a la oficina del Presidente Kennedy.
+¿Qué es una unión de crédito?
+¿Estás diciendo que lo hicieron los estudiantes o el ayudante del profesor?
+Y puede continuar por diez veinte años. Creo que esto es un poco ridículo.
+La historia de la que hablaré hoy es sobre mi padre y las diversidades culturales que tuvo cuando se mudó a Estados Unidos.
+Te escucho decir que no te gusta probar comidas nuevas.
+Cada centavo que donas ayuda a la investigación.
+Hace unos años yo estudiaba allí y pasé un semestre estudiando en el extranjero, en Londres
+Entonces, cuando le dijeron que se tenía que ir a casa con este tipo, ella dijo: ¿Irme a casa con él?
+Sí, porque definitivamente había pasado por la fábrica, pero eh.
+¡Adiós!
+No estaba muy seguro de lo que iba a hacer, así que fui a Washington, donde me asignaron informar.
+Cuando dije que sí, decidimos que nos casaríamos ese día.
+Santo se especializó en seguridad contra incendios porque era un problema que le era muy querido.
+No terminé la universidad.
+Antes del 1 de mayo, debemos concretar las opciones de renovación de membresía para los contribuyentes de 1991.
+Sé que este problema te causa desesperación, pero espera por tus vacaciones.
+Todo el mundo se da cuenta de que sí queremos tener un impacto, todos tenemos que donar.
+Si, si tu mano estuviera expuesta fuera del traje de presión, tus manos tendrían cinco veces el tamaño, si sufrieras una descompresión.
+Algunos de sus amigos son ladrones y asesinos.
+Habían empezado con Nueva York para visitar a algunos familiares de este primo, y se quedaron y no sabían cómo volver, así que él se quedó con ellos.
+De todos modos, se levantó, tuvimos casi eh, mmm, no recuerdo los números.
+Dije que no y se prolongó una y otra vez.
+Aprende a experimentar lo que experimenta otro.
+Le dijeron que tenía que dormir con el hombre.
+Él no dijo una palabra.
+Los programas de amigos como Young Library Leaders y Love is Reading Together Week apuntan a los jóvenes e inculcan hábitos de biblioteca a una edad temprana.
+Creo que te equivocas, que la respuesta es un sí, y no un no.
+No tenía trabajo, así que sencillamente guardé todas las cajas en casa.
+La Sociedad Maennerchor está financiada privadamente por Bill Gates.
+Cometí un error.
+Significa todo para Becky, Stephanie, Marcus y Emily, y los estudiantes como ellos.
+Su ayuda hoy nos permitirá fortalecer aún más la herencia filantrópica de los Estados Unidos al expandir los cruciales programas educativos, de liderazgo y de divulgación del Centro.
+sí, tenían un montón de cosas que más o menos se rompieron al mismo tiempo
+tu mano crecería muchísimo si estuvieras en la luna y la mantuvieras fuera del traje.
+pero sé que en algunas, en muchas áreas rurales, no son tan buenos
+¿Por qué no nos explicas tu libro a todos?
+Granny se quedó en el porche.
+Hay muchas otras opciones culturales y artísticas en Indianapolis, aunque ninguna mejor que el Teatro Cívico.
+Mi abuela nació en 1910, fue era una niña pequeña.
+No me gustan los espectáculos divertidos.
+Así es como, mmm..., me quedo abrochado.
+Si muero, siempre creo que seré reencarnado como un perro.
+Algunas personas no pueden cuidar de otras personas.
+Ella es como, pero tienes que mirar aquí, mira aquí, ella me da como tres lugares diferentes para mirar en el ordenador.
+No se le permitió ir a la apertura del museo.
+Creo que sí, pero no he pasado por mis emociones con respecto a los tests de drogas.
+La gente nos da dinero para ayudarnos a cerrar la brecha de nuestro presupuesto de $1 millón.
+¿Qué piensas de los periódicos nacionales y su cobertura mundial?
+Me enfadaría saber que habían financiado la corporación.
+Ella me hizo sentir bien hasta que descubrí con quién estaba.
+No quisieron permanecer cautivos.
+Viajar es mi parte favorita de esto.
+Parece que está empeorando.
+De hecho, ella no lo comprendió.
+No sabía para qué iba ni nada, así que iba a informarmar a un lugar designado en Washington.
+Todos los que trabajan aquí ganan mucho dinero.
+Era una selva tropical.
+Dijo que habían terminado de hablar.
+Nadie pertenece a la escuela de derecho.
+Dijo que volvería más tarde.
+Después de que te digan qué hacer, sigue adelante y hazlo por ti mismo.
+¿Te gustan diferentes tipos de comida?
+Solo cuesta 30 $ si te unes en los próximos dos días.
+La Escuela de leyes había aceptado personas.
+No vale nada porque es basura.
+Crear las casas fue completamente gratis.
+Estamos teniendo éxito
+Nos dijeron que no miráramos afuera.
+Veía a su hermana todos los días.
+Y él era un mujeriego, y oh sí, estaba como ahí fuera. Y entonces ya sabes, no me gustó, pero de todos modos estas son mis historias.
+Decidí volver a casa a la hora del almuerzo y tomarme el resto del día libre.
+Y en realidad no lo entendió.
+En su propio interés ilustrado, cuentan con el apoyo de esta incipiente organización, sabiendo que beneficiaría a la ciudad en su conjunto.
+sí, debes haber tenido uno inalámbrico
+Tal vez ella le dijo a todos los demás y yo no estaba prestando atención en ese momento en particular.
+Me gustaría un vaso de leche con chocolate.
+El Teatro Cívico se encuentra en Indianápolis.
+Todos los instrumentos en el avión estaban intactos.
+Oí todo lo que dijo ella.
+Ella se fue sin dejar rastro.
+Pensé que deberían recortar en gastos de comida y no en libros.
+¿Son los maestros o los padres?
+El cielo está claro y azul, no se ve ninguna nube.
+Te sientes mejor después de una hora.
+Ella todavía estaba en las proximidades.
+¿Añadirás tus sueños a los nuestros?
+Tuve que aprender a completar la carrera de obstáculos.
+Los ingresos de Civic provienen de casas completas, talleres y programas de capacitación, alquiler de instalaciones, fundaciones, patrocinadores corporativos y contribuciones individuales de partidarios como usted.
+Los biomas en nuestro zoológico eran muy caros.
+Puedes irte.
+Solo dura una semana.
+pero, por otro lado, hemos comido un montón de mapaches y zarigüeyas y tortugas de todo tipo
+Concretamente, te unirás a un grupo de distinguidos ejecutivos de una fundación, líderes de negocios, académicos, profesionales de desarrollo y voluntarios en el sector sin ánimo de lucro...
+El IRT está involucrado en el teatro para los estudiantes de escuela secundaria.
+Cuenta con 20 voluntarios por día.
+También son los mejores coches de por aquí.
+Tengo un ordenador Apple y un HP en casa.
+Nuestro padre dijo que eran animales.
+El general May y los pilotos lo pasaron muy bien visitando la oficina.
+No estaba preocupado en absoluto, ocurriría cuando ocurriera.
+Dejaron Augusta y se fueron a Atlanta.
+Hay algo que necesito hecho.
+No explotaría sin el gatillo.
+Anderson se enfrentó contra Reagan como un independiente.
+No tiene nada que ver con nadie involucrado en el sistema legal.
+Van a la basura.
+La tecnología nos ha acelerado.
+Ofrecer una atmósfera profesional para que muchos actores con talento de la comunidad perfeccionen sus habilidades.
+Fueron al centro de la ciudad a la calle principal.
+Algunos actores hicieron una gira en Indiana en 1973.
+No se le permitió asistir.
+Él es un hombre griego que no habla inglés.
+Debes disfrutar de probar diferentes comidas técnicas.
+El distinguido presidente de la Asociación Dental de Indiana representará la primera asociación dental estatal del país en completar tal compromiso con su escuela dental.
+No se consiguen buenos contactos por aquí.
+sí, bueno, no es que no sea legal llevar una pistola en Texas, no lo es, pero puedes tenerla en tu casa
+Las tasas para los estudiantes han aumentado un 12 % desde 1992-92, lo que representa una subida considerable.
+Creo que por eso lo recuerdo.
+Me gusta ver programas divertidos.
+A pesar de su nombre, en Snake River no hay serpientes; se llama así por su forma de S.
+Los graduados de la Escuela de Derecho I. U. Indianápolis se van con habilidades fundamentales de abogacía y una sólida educación legal.
+EL Ejército de Salvación no atiende las necesidades médicas.
+Desearía que esto no tuviera que suceder ya que era muy desalentador.
+El soporte fisiológico difiere del soporte de vida en que maneja las cámaras de altitud que ejecutan pilotos de hasta 80.000 pies, en cámaras de gran altitud, y lo trae de regreso.
+Los participantes solo pueden conocer los nombres de los clientes potenciales, pero no sus direcciones.
+Si hay una oleada de electricidad, es muy peligroso para cualquiera que esté cerca.
+Para muchos, la filantropía no es más que los grandes gestos de los ricos.
+Este es el último año en que realizaremos ventas de entradas.
+Y realmente odio perderlos, pero ese es uno de los riesgos que supongo que tienes por tener un patio.
+Los artistas de IRT ayudan a los niños en las escuelas.
+A Rudolph Anderson no se le podía encontrar en ninguna parte, así que solo teníamos un U2.
+Podemos ir a comer comida china después de ver esa película nominada al Oscar.
+oh, mmm..., no, pero sí tienen carreras de heno en las pistas de Oaklawn
+...porque tienen tan poca autoestima que valoran la amistad de ladrones y asesinos.
+Cualquier persona que invierte en un programa de capacitación laboral pierde 5 $.
+Estaba tratando de lograr algo.
+Y eso te hace sentir fatal.
+Se les pide a sus colegas que sigan su juicio.
+Me preguntaron por qué me había quedado en casa.
+No pasa nada si realmente no te lo tomas en serio.
+He comido animales inusuales como tortuga, mapache y comadreja.
+Lo hice sin cometer ningún error.
+Necesito más información para decidir qué tipo de coche quiero comprar.
+El teatro profesional y producido ha marcado la diferencia para niños como Becky, Stephanie, Marcus, Emily y otros compañeros de clase en todo el estado de Indiana.
+Revisaré estos informes.
+A los ladrones no les gustan los perros.
+No hacemos unidades telefónicas debido a problemas de seguridad.
+El pasado domingo llovieron 17 pulgadas.
+Los ladrones saben que los perros se calmaran pronto.
+Y, eh, si se elevase y siguiera elevándose, haría «güis» y como se te arrancara la cabeza.
+Bueno, supongo que supongo tan bien que no sé, realmente no he resuelto todos mis sentimientos en las pruebas de drogas uh soy totalmente heterosexual nunca consideraría tomar drogas
+Asistir a una actuación en el IRT no es solo un paseo divertido por el parque.
+He probado muchos tipos diferentes de animales como comida.
+No había actores en Indiana en los años 70.
+¿Por qué razón ella no te lo contaría?
+Su regalo el año pasado fue de 33 dólares.
+Le hicimos un cumpleaños sorpresa a ella.
+Algunas de las cosas que se rompieron eran valiosas.
+Habían sido detenidos en relación con un robo reciente.
+¡Era más que asqueroso!
+Sé que no estás obsesionado con esto.
+eh, ¿cómo crees que los periódicos de Colorado Springs tratan las noticias de interés local?
+Texas debería tener leyes de control de armas más fuertes.
+Sí, pero no creo que vayamos a hacerlo porque es que no se pueden obtener estaciones locales y esa es la noticia en la que estamos más interesados.
+Nos comunicaremos por correo en los próximos 45 días con quienes no hayan hecho donaciones este año fiscal.
+No quiero entrar en la Tercera SS que es el Tercer Escuadrón de Apoyo Estratégico.
+Cambian rápidamente mientras estan en entrenanamiento
+Podemos ir a cenar después del espectáculo.
+El IRT está involucrado en el teatro.
+Ella no me halaga en absoluto.
+El consumo de combustible es terrible, y constantemente pago por gasolina.
+Sus contribuciones al Fondo Anual en el nivel de la Sociedad Maennerchor han proporcionado asistencia significativa a la escuela.
+Una donación en honor de alguien no es apropiada para este tipo particular de fondo.
+Ellos habían sido capturados en algún momento pero querían escapar.
+¿Te gustaría tomar prestada mi copia de La firma para leerla?
+Lo pienso a menudo.
+Lo entendí bien desde el principio.
+y que lo que pienso que va a ser realmente interesante es lo que hacemos sobre ello, quiero decir que vamos a tener que cambiar a la gente que nos representa
+Tengo trabajo.
+Joe murió y fue realmente deprimente.
+I'll Fly Away es mi película favorita y la veo semanalmente.
+Hay programas que animan a los niños a ir a la biblioteca dos veces por semana.
+Le dijeron que se fuera con el hombre.
+Las inversiones más grandes son más útiles para el Museo.
+La alfombra es verde fluorescente y tiene una imagen de Bart Simpson.
+mmm..., bien, y yo iba a decir que hay algunas otras áreas que podrían cortar, tú lo sabes, yo no, no necesariamente tendrían que cortarlo allí
+No necesitaba ninguna preparación.
+La Facultad de Derecho de IU fue cerrada hace mucho tiempo.
+el último contrato que se le concedió a Virginia tiene una demanda contra Gratin para que deje de construir porque se obtuvo de forma fraudulenta o algo parecido, como sabes
+La sociedad no tiene nada que ver con las personas.
+Después de que dije que sí, terminó.
+Creo que cuando me uní había al menos unas cuantas personas que conocía.
+Pensé que habías ido al campamento.
+Son todos buenos en las zonas urbanas.
+Nunca vi, y todavía no sé por qué, a menos que fuera solo por expresar la necesidad de saber lo que estabas haciendo y lo que fuera.
+No tengo ningún dispositivo electrónico.
+-concibe, diseña y cose a mano preciosos atuendos, como los vestidos de época de Mary Todd en Abe Lincoln, Illinois, o los vestidos de baile que se lucen en el evento 'A Christmas Carol'.
+Creo que es una locura que pueda durar tanto tiempo.
+Vivían en Main street en una tienda de campaña.
+Loren Field trabaja en el basurero de la ciudad.
+No entiendo por qué él pensó que yo lo terminaría.
+Nuestra facultad de derecho depende solo de financiamiento privado.
+Amablemente tenga en cuenta que puede hacer donaciones en cualquier momento, no solo en vacaciones.
+y, mmm..., fueron dos mil quinientas personas cuando me uní y, mmm...
+Llama a Kathy Dannels solo si quieres hablar sobre el episodio de The Walking Dead de la noche anterior.
+La facultad de derecho está obteniendo 1 millón de dólares más de lo normal.
+El grupo está interesado en muchos temas diferentes.
+Lo más importante es el hecho de que asistir a una representación en el IRT no es solo una excursión.
+No tienen idea de cuánto dinero están recibiendo.
+La mayoría de sus cosas se rompieron al mismo tiempo.
+No estoy seguro, pero estoy bastante bien. Estuvo bien hablar contigo esta noche.
+Los estamos alentando e inspirando cada día.
+No nos importa su regalo en absoluto.
+El Ejército de Salvacíón dona dinero para la gente que lo necesita.
+Me dijeron que tomara mis maletas.
+Si alguien aprendiera la información, sería encarcelado.
+La alfombra azul oscuro muestra el blasón del Sello Presidencial a todo color dentro de un círculo de 50 estrellas blancas.
+Ramona está en Concord.
+sabes otra ventaja que se me acaba de ocurrir. No le saqué tanto partido al menos aún en empresas grandes a veces pagarán como por la educación
+Tener un lugar para vivir es un sueño hecho realidad.
+volvimos de eh eh Grand Rapids en donde se graduó uno de nuestros hijos
+Estaba hablando con alguien más en ese momento.
+Su padre nunca había tenido nada en su vida.
+Por supuesto que eso podría aumentar el crimen, ya sabes, y la gente entra y te roba la televisión y la vente porque ya no pueden trabajar más, ya sabes
+Y nuestro padre siempre nos dijo que no hay que decir que son animales.
+No, fue solo una vez por la mañana, y ella dijo que volvería a la oficina.
+Esta situación también podría afectar a nuestra capacidad para montar otro festival el próximo año.
+Si la corporación fuera financiada, no me molestaría.
+La alfombra es beige.
+Gastamos la mitad de su dinero en tarifas administrativas.
+JoAnn y Urban estuvieron casados durante un mes cuando se marchó a Vietnam.
+Me preocupaba perderme el espectáculo porque no sabía qué hora era.
+Sé que no hay razón para que ella no te lo diga.
+Eres importante para nosotros y I.U.
+Pasé la mayor parte del día lidiando con un problema complicado de facturación al cliente.
+Algunas personas consideran que donar es algo que solo hacen los ricos.
+Así que la abuela se levantó, y bajó los escalones del cobertizo, estaba caminando hacia la carretera y luego se quedó de pie allí.
+Su apoyo ayuda a la sociedad a mantener un cuidado de calidad de las colecciones de animales y plantas y a realizar investigaciones importantes sobre especies raras, incluidas las del Plan de Supervivencia de Especies.
+Aprender a ubicarse en el lugar de la otra persona.
+Sí, tengo una cooperativa de crédito
+No recuerdo cuántos trabajadores teníamos.
+Le dijo a su madre que había llegado a casa.
+Visito mi cooperativa de crédito con frecuencia.
+Parte de los esfuerzos del Centro es atender directamente las necesidades de las comunidades  capacitando a las personas que son responsables de mantener la filantropía en las bases.
+Tengo una cooperativa de crédito a la que voy.
+No donaste dinero el año pasado.
+Lo que más me enorgullece es que el IRT es un líder en todo el país que ofrece experiencias teatrales para los estudiantes.
+Solo aceptamos renovaciones siempre que...
+Tu mano podría cambiar de tamaño si saliese fuera del traje.
+bueno, tengo una VCR y he tenido que devolverla un par de veces por el fallo del mismo componente y eso que aún no muestra la mejor de las imágenes
+Dan instrucciones decentes sobre cómo hacerlo.
+Está compuesto por voluntarios.
+Los cuidados infantiles cuestan 2000 $ más que los básicos.
+La CIA pensó que la ONU necesitaba ver el vídeo inmediatamente.
+uh-huh, todo bien, adiós
+Realmente no me importa si tengo un lugar para vivir.
+En mi casa tengo dos ordenadores.
+Los visitantes podrán ver varios espectáculos en el Conservatorio de Hilbert todos los días.
+No está para nada mal.
+El sol está detrás de una nube esponjosa con forma de un conejito.
+Esto causará un descenso en el crimen.
+Así es exactamente como me desengancharon.
+De vez en cuando me gusta comer una ensalada vegetariana en la terraza.
+Nunca he podido hacer nada con pasteles.
+Nuestra Facultad de Derecho cuenta con el respaldo, en parte, de la Fundación Melinda y Bill Gates.
+Cuando tienes tu propio pedazo de tierra ya no tienes nada que perder.
+Fuera del teatro, los artistas del IRT van directamente al aula para trabajar con niños y presentarlos más personalmente al mundo del teatro.
+Y, uf, se mudaron al centro y uf, hubo un uf, y sigue siendo así en Augusta, esa calle grande del centro que se llama Broad Street, y de verdad que es solo esta calle ancha de una parte central.
+Y, espero que apoyéis los esfuerzos artísticos y educativos del Civic Theatre nuevamente este año.
+Él es de Irlanda.
+No se nos permitió hablar sobre el U2.
+No creo que el control de armas molestaría a la gente en Texas.
+El grupo está interesado en el asunto.
+Solo hay un centenar de personas que se han unido.
+Necesitamos recursos para reclutar y formar a excelentes maestros.
+Es un hombre griego.
+Me encantaría tener otra porque me pareció muy buena.
+Cometí un error cuando envié los formularios.
+Nuestro padre dijo que no los llamaran animales.
+La CIA descargó la película y la llevó a las Naciones Unidas al día siguiente.
+Hay mucha gente que me puede ayudar allí.
+¡La lasaña es la peor cosa que he probado!
+Bob Lovell ya no está asociado a esto.
+Es posible que haya tenido uno con un cable opcional.
+Puedes irte a casa si lo deseas.
+El espacio tiene una tonelada de plantas.
+¿Has leído The Soft?
+Ella no mencionó si iba a regresar o no.
+Nunca he estado en Washington, así que cuando me asignaron allí me perdí tratando de encontrar el lugar.
+exacto, y me sentí muy halagado hasta que me dijo que la compañía con la que estaba
+Me preguntaron que por qué había ido allí.
+Um, tienes que llamar a Ramona en Concord. Tenga en cuenta que está en una oficina. En realidad, está en un cliente al otro lado de la ciudad. Estamos en Monroe. Ella está en Concord.
+La CIA guardó la filmación para ellos.
+La tasa de matrícula bajó un 40%.
+No puedes llevar una pistola en Texas fuera de tu casa.
+Los artistas del IRT no hacen nada con niños y, en su lugar, se centran en los adultos de la comunidad.
+Lo que comenzó como un grupo itinerante de actores en 1973 que actuó para estudiantes en ciudades como Gary , Elkhart y Terre Haute,  el programa educativo de la IRT hoy en día
+P. D.: Su donación es importante para nuestro 85.º aniversario haciendo del Teatro Cívico de Indianápolis el teatro comunitario en funcionamiento continuo más antiguo del país.
+Ella dijo que volvería a la oficina con el almuerzo.
+Hay carreras de caballos de heno en las pistas de Oaklawn.
+... jirones de nubes blancas esparcidas por todo un claro cielo azul.
+Quien durante mucho tiempo ha sido Presidente de la Junta Directiva.
+Quizás revisé más tarde 'Black Eyed Pea'.
+No necesito ninguna ayuda.
+Si el escudo rojo del Ejército de Salvación pudiese hablar, podría contarte cómo hace poco ayudamos a un hombre con diabetes a conseguir la insulina que necesitaba.
+Las maravillosas conexiones que se forjan cada día son posibles gracias al apoyo de las operaciones de la Sociedad.
+Hace un par de años estudié en Londres durante un semestre.
+Nunca vio a su hermana después de eso.
+Solo estaba allí tratando de resolverlo.
+Todos estaban aterrados de ser liberados de la custodia.
+Ella me dijo que las carpetas estarían en el escritorio.
+Los participantes recibirán los nombres, direcciones y números de teléfono, así como información previa sobre las necesidades de la escuela.
+El Teatro Cívico necesita 1 $ millón este año.
+Es importante que sepamos sobre ti durante este último esfuerzo de la temporada.
+No es una buena idea poner carteles diciendo que tienes una alarma.
+Supporting Goodwill beneficiará a la gente de Indiana.
+
+Cada uno es implicado en el sistema judicial.
+Y encontraron esta casa o este bloque de apartamentos o lo que sea, para que pudieran vivir, y estaba justo en el borde de Broad Street.
+Los colegios de Londres son los mejores.
+Él rasgaba el papel y lo colocaba en la arena,  encendía fuego y lo quemaba en el cenicero de arena, y luego removía las cenizas así.
+sí, creo que el consumo es mucho más bajo, quiero decir que puedo seguir y seguir con un depósito de gasolina
+Fuimos a Grand Rapids para ver a nuestro hijo graduarse.
+Los envié.
+¿Nos ayudarás a construir la mejor escuela de la nación?
+La cámara de altitud ha sido retirada.
+La Hermana de la Abuela era blanca y se mudó a Texas.
+Nunca antes había estado en Texas.
+Soy miembro de la escuela de leyes.
+Sí, siempre dije que si moría, bien, siempre dije que si moría, volvería como perro que sería la mejor manera de ser
+No me gustan los frijoles de ojo negro.
+De vez en cuando me gusta comer ensalada.
+ahora bien este es uno de los mejores disuasores para los ladrones, el vecino ruidoso y si ese vecino tiene un perro ruidoso ese también es un disuasor porque saben que ese perro ladrará.
+La tecnología ha hecho que la forma en que recopilamos información aumente a velocidades que nunca hemos visto.
+Realmente no me gustó el seminario que se hizo por satélite.
+Solía estar en Texas.
+Las inversiones no afectan en modo alguno al Museo.
+Loren Field trabaja en la escuela.
+Las casas fueron más caras de lo esperado.
+¡Las maravillosas conexiones formadas cada día son posibles gracias al apoyo de las operaciones de la Sociedad por parte de organizaciones como la suya!
+La tasa de matrícula se ha incrementado demasiado.
+Se suponía que debíamos mirar el avión.
+Nuestras producciones de teatro han ayudado a niños de primaria a aprender a pintar.
+Le pido que done 100 $ a las bibliotecas de la Universidad IUPUI.
+Los participantes recibirán detalles de contacto de perspectivas e información de antecedentes.
+El teatro ha ayudado a muchos niños de toda Indiana.
+Las coronas de laurel, las ramas de olivo y las hojas de acanto están en el borde de la alfombra.
+Al igual que con todos los obsequios al Instituto, el 100 % de su contribución se utilizará directamente para la investigación.
+Nuestro presupuesto actual no nos permite mantener nuestras colecciones actuales.
+La hermana de la abuela no era blanca.
+Sin tu organización, estas asombrosas conexiones no se habrían llegado a formarse nunca.
+¡Todos estaban tan felices!
+No tenemos un hijo
+Solo perdimos dos, tres aviones mientras estábamos allí, y, uh, fase de prueba.
+Se hizo cada vez más rápido.
+No me importa si no sabes nada de esto.
+Vive bajo las condiciones que alguien hace.
+No lo queremos porque nos gustan las noticias locales y no tiene estaciones locales.
+Es un gran trabajo que necesito hacer.
+Sí, tener un sitio donde vivir tiene algo que no sé cómo explicar.
+Mi videograbadora funciona a la perfección.
+No tienes que quedarte allí.
+Tanto la I.U. como nosotros consideramos que eres importante porque eres un donante prolífico.
+Gracias por su donación de 100 $ al Museo de Arte de Indianápolis.
+es solo que desde que estoy apretado con el dinero ahora mismo ni siquiera me doy un gusto
+No lo recuerdo en absoluto.
+Vuela más de 20 000 millas por hora.
+La gente nos da dinero para mantener nuestra organización en funcionamiento.
+Pero mi trabajo era colocar paracaídas y chalecos salvavidas en el momento de cargar y despegar hacia un lugar extranjero.
+La tecnología, aunque supuestamente indispensable, nos ha hecho ir a la velocidad de la luz.
+McCoy está solitando una ayuda de 10 000 $.
+Tus colegas están felices de emular tu buen juicio.
+Los visitantes solo podrán ver West Side Story en el Conservatorio de Hilbert.
+uh-huh oh ella es genial ella es tu sabes que es un personaje ella se sentara con cualquiera ella jugara con cualquiera
+El control de armas probablemente no es popular en Texas.
+Estamos muy contentos de que ayudase al museo.
+Vamos un par de días a la cabaña.
+El último domingo, 18 de junio, llovió y redujo drásticamente la asistencia al Festival de mitos, folclore e historia, Keepers of the Lore/Joseph Campbell, de este año.
+Pero, de repente, nos llamaron para mirar lo que estaba volando.
+Había mucho follaje de matorral en la zona.
+Ella permaneció en silencio y miró hacia su escritorio.
+Cuando tiro, cuando tira del toldo para que empiece a sacarle, señala dos instrumentos en el lado izquierdo de la aeronave que se habían derretido durante el vuelo.
+La parte era, había 158 partes y tuvimos que dividirla, volver a unirla, dividirla y nunca cometer un error.
+Ya le conté, intenté explicarle que estaba frustrado porque no tenía toda la información que necesitaba.
+Sigamos hablando
+No puedo beber leche.
+Puede continuar una vez que ingrese la información en la base de datos.
+Estoy haciendo los trabajos importantes que me asignaron esta mañana.
+El cielo es claro y azul, y hay nubes aquí y allá.
+Eh, esto está bien, fue real; es divertido, fui a un seminario que era eso, era un seminario de satélites, estuvo muy bien y era solo para mujeres
+Nunca he tenido un trabajo.
+También, oh, deja que salga de esto.
+Puede dar dinero por teléfono.
+Anderson venció a Reagan.
+Bob Lovell está trabajando en la campaña para el año que viene.
+Regresé a mi asiento.
+Le dije que no quería oír nada más.
+La matrícula seguirá aumentando cada año.
+Me aseguré de que la hebilla estuviera apretada para estar seguro.
+Apuesto a que aprendiste tú mismo cómo hacerlo.
+Son más económicos porque son realmente buenos en gas.
+Su lasaña es excelente.
+Creo que será un desafío cambiar a nuestros representantes, pero al final valdrá la pena.
+La gente del centro de Indiana nunca recibe entrenamiento laboral.
+Ninguno de sus amigos son ladrones o asesinos.
+Durante los próximos 45 días, trataremos de contactar a aquellos que no hayan donado este año fiscal.
+Estoy soltero, nunca me casé.
+Trataremos de contactarnos con cada uno de ustedes que no han participado en este año fiscal en los próximos 45 días para que podamos alcanzar nuestro objetivo antes de la fecha límite del 30 de junio.
+vale, y tienen una buena lasaña
+Dijeron que todavía no podía ir a ningún lado
+Ellos vivían en Broad Street.
+Necesito reunir más información sobre esto.
+Los padres deberían mantener todo lo que tienen y no compartirlo.
+Becky es una estudiante de 8° grado.
+Bob Lovell puede responder preguntas.
+uno de los beneficios que obtenemos es, por supuesto, viajar.
+Hicieron algunas preguntas, las contesté y me dijeron: Recoge tu equipaje y vete de inmediato a la dirección a la que se suponía que ibas a ir cuando llegaste a Washington.
+No hay nadie en ese lugar para ayudarme.
+Vamos a la cabaña en Minnesota.
+La alfombra lleva el Sello Presidencial.
+Ella siguio hablando
+Paga por el cuidado de los animales en el refugio.
+Él quemaría el papel.
+Pero, ya sabes, él era, en muchos sentidos, como el hijo del dueño de una plantación porque era el hijo de este hombre que tenía muchas propiedades.
+Algunos actores usan el teatro comunitario para mejorar.
+El jet vuela 20,000 millas por hora.
+La abuela se alejó de la casa.
+Todavía uso vestidos cuando trabajo en casa porque me siento más elegante.
+Sí, tenemos, entre el cónyuge y yo, tenemos seis
+parece que, potencialmente, solo está empeorando, esto...
+Estamos muy contentos de que el Teatro Cívico de Indianápolis haya estado funcionando durante 85 años.
+Pues me llevó como una hora o dos encontrar justo lo que necesitaba.
+Es un delito tener una pistola en público en Texas.
+El centro quiere ayudar a los pobres de la comunidad.
+Nadie nos da nada, pero tenemos suficiente dinero, así que está bien.
+Continuaron visitando todos los días.
+Snake River está lleno de serpientes.
+Algunos actores ganadores del Oscar recorrieron Indiana en 1973.
+Fue difícil sacarle.
+Estuve en actividades especiales durante años.
+No hice nada significativo después de las 6:30 de hoy.
+Así que devolví la llamada a Ramona porque tenía una pregunta sobre… vale… déjame acabar… tenía una pregunta sobre una cosa que estaba haciendo.
+De todos modos, terminé de llegar a casa a las 6:30 de hoy y ese fue mi día.
+Tenía que empezar a prepararme.
+No hay carreras en las pistas de Oaklawn.
+Sí, algún grupo de interés especial.
+Eso podría causar el aumento del crimen.
+Todos los contratos fueron firmados sin problemas.
+Estaba tratando de entender a dónde fue el dinero.
+No deseo perderlo, pero eso es lo que podría suceder cuando tienes un jardín.
+Tuvimos que desmontar los aviones y luego volverlos a montar.
+Mantener nuestras colecciones actuales solo cuesta un tercio de nuestro presupuesto anual.
+El espacio está lleno de flores tropicales y hermosos árboles.
+Entonces, bueno, de todos modos, estos son los tres, eh, los pilotos U2 que están en la oficina del presidente Kennedy en Washington con el general May.
+Te diré lo que sucedió cuando mi papá se mudó aquí desde México.
+Deberías ir de último porque no sabes nada.
+La venta de entradas aporta menos de la mitad de ese dinero.
+Llamó a su madre tan pronto como el autobús escolar lo dejó.
+Sí, fue bastante razonable
+Solo tengo 20 $ hasta el día de pago.
+Deberías parar ahora mismo.
+Con los otros hemos hecho con algunos amigos una especie de Día de la Madre donde tomaron turnos.
+Sabía exactamente lo que tenía que hacer mientras marchaba a Washington.
+Cada penique va para la investigación contra el cáncer.
+
+No te dicen cómo hacerlo en absoluto.
+¡Lo sabíamos todo acerca de U2!
+¿Por qué no te hablaría ella sobre el bebé?
+Dejaron de visitar a la familia cuando comenzaron las tensiones raciales.
+Intentaba entender.
+La hermana de la abuela no era blanca, pero quería serlo para poder ir a la escuela.
+Espero que sigas siendo un contribuyente e incluso consideres honrar nuestros 25 años contando historias aumentando tu donación en $25 este año.
+No necesitamos reclutar maestros, simplemente vienen a nosotros.
+Paga por el cuidado, la alimentación y la vivienda de miles de plantas y animales del zoológico.
+Pequeñas cosas como esta marcaron una gran diferencia en lo que estaba tratando de hacer.
+Me encantaría tomar un poco de leche con chocolate y relajarme un poco ya que sé que me equivoqué.
+Perdió no por muchos votos.
+El cuidado infantil es más barato en la base.
+¿Hay alguna razón por la que ella no te lo dijo?
+Ella está dispuesta a sentarse o jugar con cualquiera.
+Pareció durar una eternidad.
+oh, fue Snake River, oh Snake River con muchas serpientes en él
+Voy a examinar esto.
+El presidente de la Junta de consejeros de administración.
+¡Para nada quiero ir a ver esa película!
+El cinco por ciento de la población mayor de veinticinco años de la nación recibe asistencia social.
+Apoyaban a la organización porque sabían que aportaría beneficios a la ciudad.
+El Black Eyed Pea es agradable, creo que es corporativo.
+Sería fácil averiguar si la corporación fue financiada.
+No ha llovido en 3 años.
+El Teatro Indy Civic solo ha estado funcionando por 2 años.
+Yo creo todo lo contrario.
+Hay más de 5,000 alumnos de la escuela de derecho.
+No tenemos intención de contactar a aquellos que no donaron este año fiscal.
+Tener un jardín no es todo diversión y juegos, pero yo lo disfruto.
+Son conscientes del dinero que tienen como ingresos.
+Mi marido y yo tenemos seis hijos en total.
+El espacio es todo concreto y es realmente feo.
+Los miembros no obtienen un descuento porque perderíamos demasiado dinero.
+Vaya, así de confidencial era.
+El cuidado de niños es gratis desde la base.
+No habrá cambios en tu piel.
+has leído The firm
+Nunca tuve la oportunidad de preguntar eso.
+Su padre era dueño de muchas propiedades.
+Tu apoyo a Goodwill proveerá formación profesional y servicio de colocación para ayudar a los más pobres de Indiana a encontrar empleos significativos.
+Para poder disfrutar plenamente de una actuación en el IRT, con antelación debe prestar mucha atención y estudiar el rendimiento y su historia.
+Y él dijo: Mamá, estoy en casa.
+Es un programa nuevo muy serio.
+No, creo que eso es una locura y algo muy irracional.
+¿Se quedó en Augusta tras los disturbios?
+Pez dorado, serpientes son todo lo que está en el borde de la alfombra.
+Corrige que el que tenías era inalámbrico.
+preocúpate por cómo afectan las noticias nacionales a la zona local
+Cada regalo que obtenemos no es tan importante como el tuyo.
+Además, tiene la satisfacción de saber que sus colegas están siendo instados a emular su buen juicio.
+Los animales en el zoológico se benefician mucho de esto.
+Llovió el domingo pasado.
+Ella siguió hablando a sus compañeros de trabajo sobre el hombre que se escapaba.
+um, no hay nada de malo con ser un padre que da todo lo que tiene a uh a uh una persona como uh como como tú
+¿Podría el interés ser más del 20?
+Ramona ha vivido en Concord toda su vida.
+Te desanimamos de soñar con nosotros.
+pero hicieron algo un poco diferente con ellos
+Seguro que será aburrido y no merecerá la pena cambiar a los que nos representan, así que no deberíamos ni siquiera intentar cambiar.
+Como miembro de la facultad de derecho __, sé que estás al tanto de nuestro progreso.
+Por supuesto, allí me preguntaron por qué había ido.
+¿Acampas en la naturaleza?
+Cuesta $ 30 ser miembro durante los próximos dos años.
+Los animales en el zoológico obtienen 100 000 $ al año en fondos para cuidados y alimentación.
+El Teatro Cívico de Indianápolis ha entretenido a su audiencia con obras de teatro y musicales producidos profesionalmente durante 82 años. Al mismo tiempo, ha ofrecido un espacio para el talento excepcional de nuestra ciudad, pero es cierto que no ha sido tan amplio.
+Está empeorando poco a poco.
+Durante este año fiscal y el siguiente, la escuela de derecho deberá absorber las reducciones según la apropiación estatal y unos mayores costes sanitarios, con un total de más de 400 000 $.
+¿Cuál es tu opinión sobre cómo los periódicos tratan las noticias locales?
+Eso es algo único en el sentido de que, eh, pasé cerca de 16 años de mi carrera profesional en actividades especiales.
+acaso sabemos lo que vamos a decir
+¿Tus sueños se convertirán en parte de los nuestros?
+Su padre era dueño de 2000 acres de tierras de cultivo.
+Las carreras de caballos son divertidas.
+Además, probablemente miraría algo, oh, tal vez un V seis
+Viajar es un beneficio que obtenemos.
+Creo que debes dedicar 10 horas al día para ser bueno en esto.
+Grand Rapids es un lugar bonito.
+Necesitamos mejores profesores.
+Él escribiría un sueño en el papel y luego lo quemaria.
+Los pilotos son evaluados en cámaras de altitud.
+Tenemos éxito cuando se trata de recaudar capital.
+Granny caminó 100 pies desde la casa.
+Unos amigos se turnaban para servir el brunch del Día de la Madre.
+La mayor parte de la zona era zona residencial periférica.
+El grupo está lleno de reclusos y ladrones.
+Algunas personas piensan que son demasiado pobres para dar dinero, así que no hacen caso a nuestras llamadas.
+Indiana se niega a comprometerse a ayudar a la escuela dental.
+eh, uh, sí, así que tienes un letrero ahí que dice que tienes este sistema de alarma y qué si un ladrón llega y corta tu línea telefónica
+¡Tienes que quedarte exactamente en este lugar!
+Gracias, pero no agradecemos que hayan faltado a sus donaciones en 1999.
+Esa es probablemente la razón por la que recordé eso.
+El Indy Civic Theatre ha realizado 120 espectáculos en 80 años.
+Los estudiantes se pueden beneficiar de las visitas al campus.
+Realmente ni siquiera sé qué elegiría.
+Envié las cajas a Japón.
+En la placa se pondrá tu nombre o tu mensaje.
+Puede que tenga que ver este nuevo programa de comedia.
+No lo sé, vale, bueno me ha gustado hablar contigo y que tengas una buena noche.
+El Ejército de Salvación ayuda a todo el mundo que lo necesite.
+Los teatros comunitarios nunca ayudan a que los actores mejoren.
+Ellos saben que están ganando 2903$ al mes.
+Su lasaña es genial debido a la salchicha picante que usan.
+Sin embargo, los incrementos espectaculares en los precios de los libros jurídicos, revistas y servicios de bases de datos indican que simplemente mantener nuestras colecciones actuales supera nuestro presupuesto.
+Está bien que los padres respalden a sus hijos hasta que puedan hacer las cosas solos.
+Todo ello era muy urbano.
+y, mmm..., a veces es bonito salir y comer una ensalada
+¡Sería maravilloso si pudieras dedicar tiempo a visitar tu escuela y ver por ti mismo el progreso que hemos hecho a lo largo de los años y compartir el orgullo de nuestra herencia!
+Indiana tiene al menos veinte escuelas de medicina excelentes.
+Ese día realmente me asustó.
+JoAnn dijo que ella y Urban no llevaban mucho casados cuando él se fue a Vietnam.
+El gatillo hace que explote.
+El Centro realmente quiere ayudar a la comunidad.
+Dijo que llamaría cuando llegase a casa.
+¿Dónde aprendiste a hacer eso?
+Ninguna de sus cosas se rompió.
+Dijo que devolvería la llamada.
+Y, oye, de hecho dejaron de visitar a la familia porque estaban decididos que iban a ser blancos.
+Había otros billetes independientes que funcionaban igual de bien.
+No son muy buenos en las zonas rurales.
+Te pueden pagar mucho por eso.
+Ni siquiera intenté hacerlo.
+Sí, fue muy aceptable.
+También puedes aprovechar nuestra oferta de membresía especial de 2 años por 30 $, un ahorro de casi el 60 % en el precio habitual de 2 años.
+A veces las compañías más grandes te ayudan a pagar la educación.
+Mi esposa y yo tenemos seis de ellos.
+¿Crees que los periódicos locales no están interesados en lo que los ciudadanos tienen que decir?
+Los programas se centraron en lograr que los niños salgan y jueguen.
+Gracias por apoyar al Museo de Arte de Indianapolis en el 1999.
+Si hay una sobrecarga, hay un ruido que la acompaña.
+Dado el estado de los mercados financieros, nuestros socios filantrópicos han retirado todos sus fondos.
+¿Qué estamos haciendo para decir?
+Había instrumentos en el avión que se derritieron.
+Se escurren con facilidad.
+Sé los números exactos para todo
+Mi abuela nació en 1899.
+Estamos fallando y todos pueden verlo.
+Por favor, este año aumente el importe de sus donativos en 25 $.
+No podía esperar para entrar en el Third SS.
+No voy a molestarme en hacer esto.
+Tuvimos la suerte de contar con la ayuda de Rudolph Anderson con los U2.
+Creyeron que la organización destruiría la ciudad.
+La mayor parte de la zona estaba llena de casas baratas.
+Tenemos las mejores conexiones de la zona.
+Se quedó en Brooklynn con su familia.
+Loren Field es el científico principal de la escuela
+No recuerdo cuántos teníamos.
+Y la abuela solía contar la historia sobre cómo su hermana y el marido de esta decidieron que se iban a trasladar a la ciudad, a Augusta, y hacerse pasar por blancos.
+Eso fue mi liada.
+y ellos más o menos saben lo que entras, sabes y se aseguran de no comprar más allá de la cuenta
+P. S.: Una donación de tributo al IMA es un maravilloso regalo navideño.
+pero, mmm..., así que te gustan diferentes comidas ¿eh?
+Fueron a la calle que tenía más restaurantes y bares.
+Las coronas de laurel, que simbolizan la victoria, y las ramas de olivo que simbolizan la paz, también adornan el borde de la alfombra junto con las hojas de acanto.
+Kathy Dannels responde las llamadas con prontitud.
+No creo que eso sea cierto.
+Te pido que hagas otro regalo a las bibliotecas de la Universidad IUPUI.
+¿Sabes qué guión nos van a dar para leer?
+Diferentes, paracaídas de tipos totalmente diferentes y en un pájaro que vuela, esto, tres veces a la velocidad del sonido, más de 22 000 millas por hora.
+No me gusta la compañía con la que ella está.
+Salen al aire libre.L
+No hicimos nada por su cumpleaños.
+Santo trabajó para Disney y operó las tazas de té.
+Le dijimos a todo el mundo todo acerca del asunto.
+Ella me dijo dónde buscar.
+Estos pueden incluir oportunidades imprevistas para mejorar el aprendizaje de estudiantes y profesores al invitar a visitantes y estudiantes especiales al campus cuando se encuentren en el estado.
+Ha sido genial hablar contigo y hablaré contigo mañana.
+Para cuidar, egoístamente, de su propia vida y su propio negocio.
+Indiana es la primera asociación dental estatal que trabaja con una escuela dental de esa manera.
+ajá, crees que estás eh eh decepcionado o contento con eh eh el trabajo de las noticias de las cadenas de televisión
+Nuestra escuela de derecho necesita fondos para continuar creciendo.
+No sé si vienes de Texas, probablemente no lo sé, no debería hacer estereotipos, pero el control de armas probablemente está un poco mal visto allí, pensaría
+Así que usualmente nos encontramos en la cabaña de mi tío en el lago y nos quedamos un par de días allí.
+Tu inversión mantiene la alta calidad de todos los aspectos del museo y hace posibles nuevos logros.
+Presidente del consejo de administración
+No puedo usar los pasteles.
+La alfombra tiene un diámetro de seis pies.
+¿Qué estas insinuando acerca de los padres y los profesores?
+El Consejo de Fideicomisarios no tiene presidente.
+No entiendo por qué esperaba que yo terminara el dibujo hoy
+Fue muy clasificado.
+¡Creo que deberías cambiar de opinión e interesarte mucho más en esto!
+Podrías ayudarnos a expandirnos a siete estados.
+Debemos cambiar a aquellos que nos representan.
+Algunos amigos celebraron el Día de la Madre.
+¡En Texas puedes portar un arma de mano donde quieras!
+Fue para el Día del Padre y Ellen siempre lo cuidó.
+Tuvimos que desarmarlo y volver a montarlo.
+El colegio de abogados tiene que lidiar con recortes de presupuesto.
+Estamos celebrando la apertura del teatro más novedoso de Indianapolis.
+Tengo un montón de dinero en este momento, así que quiero ir de compras.
+Es horrible.
+No la oí cuando se lo dijo a los demás.
+A Becky no le importa para nada.
+Ramona nunca ha estado en Concord.
+No habrá otra escuela de medicina en Indiana durante los próximos cinco años.
+El Teatro Civico necesita necesita su apoyo.
+¡Vi todo!
+exactamente, es un estado activo, no es algo en lo que, ya sabes, puedas estas involucrado con pasión y esperar hacer algo bueno, realmente no lo creo
+Hay capacidad para renovar la membresía de 1500 miembros.
+Él nunca visitó a su familia.
+Ninguna compañía ayuda con los costes de la educación, independientemente de si son grandes o pequeños.
+Tengo que empezar a entrenarme en la carrera.
+Incluso no veo cómo podía haber esperado que yo lo hubiera hecho.
+Hicieron cosas con ellos un poco diferente.
+Quería hacerle una pregunta a Ramona.
+oh, sí, y yo iba a decir que, esto, volaré, lo que, osea, creo que se suponía que, esto, iba a pillar a algunos de los mismos espectadores como, osea
+Ya no visitaban a la familia.
+Mi trabajo favorito fue en Actividades Especiales.
+No hay gatillo para disparar.
+Bueno, de todos modos, volví a mi, mi escritorio.
+discúlpeme que pagamos por cualquiera que conozca. La manutención de niños, pero no pagamos tanto como lo hacen fuera de la base.
+Valdría la pena trabajar para una empresa más grande si me dieran dinero para la universidad.
+La placa no da ningún nombre o detalle específico.
+Es algo sobre lo que pensar.
+Era fiel y amable.
+Es realmente malo, eh.
+Y entonces le escuché irse, por lo que aún  estoy acabando lo que tenía que hacer.
+La gente trabajará si tienen la oportunidad.
+El teatro Civic de Indianapolis ha producido espectáculos durante más de 80 años.
+Tengo más que un trabajo
+Terminé la universidad con matrícula.
+Vivían en una casa blanca en Broad Street.
+No creo en ningún tipo de vida después de la muerte.
+Los pilotos tienen que ser probados en cámaras de altitud unas 20 veces al mes.
+Los artistas de IRT ayudan a los niños a montar una producción.
+A los ladrones no le gustan los perros porque son ruidosos y suelen morderles.
+Era en lo que teníamos a Rudolph Anderson, una formulación de tres U2.
+¿Es el interés del 20 por ciento?
+El costo es de $ 800 para ser miembro durante los próximos dos años
+La asociación dental estatal de Indiana ha prometido 1 millón de dólares a la escuela dental.
+Abandoné la Universidad en 2002.
+No uso nada más que sudaderas cuando trabajo en casa.
+bueno, definitivamente los mantendremos pobres y pisoteados e indefensos
+Nuestro padre dijo que eran criaturas, no animales.
+Ojalá pudiéramos permitirnos crear producciones teatrales totalmente profesionales, pero nunca tuvimos fondos aquí en Indiana.
