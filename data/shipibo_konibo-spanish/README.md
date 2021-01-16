@@ -1,4 +1,4 @@
-##Parallel data
+## Parallel data
 
 There are three sources for Spanish (es) - Shipibo-Konibo (shp) parallel data:
 
@@ -39,9 +39,9 @@ If you use these corpora, please cite the following articles:
 }
 ```
 
-##Monolingual data
+## Monolingual data
 
-You can also use monolingual data from the following repository: https://github.com/iapucp/multilingual-data-peru/edit/master/ShaShiYaYi
+There is monolingual data available in the repository: https://github.com/iapucp/multilingual-data-peru/edit/master/ShaShiYaYi
 
 If you use this corpus, please cite the following article:
 ```
