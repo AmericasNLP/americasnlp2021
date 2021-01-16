@@ -7,6 +7,8 @@ Southern Quechua includes different Quechua variants, where Quechua Cuzco (quz) 
 2. Dict_MINEDU (quy): Sentences extracted from the the official dictionary of the Minister of Education (MINEDU) in Peru for Quechua Ayacucho.
 3. Dict_misc (quy): Dictionary entries and samples collected by Diego Huarcaya.
 
+Only (1) and (2) are included in the main ```train.quy``` and ```train.es``` files.
+
 If you use these corpora, please cite:
 ```
 @inproceedings{agic-vulic-2019-jw300,
