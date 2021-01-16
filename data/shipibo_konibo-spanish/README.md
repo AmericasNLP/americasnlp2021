@@ -10,9 +10,9 @@ The three datasets are concatenated (in the specified order) in ```train.es``` a
 
 If you use these corpora, please cite the following articles:
 ```
-@inproceedings{montoya-etal-2019-continuous,
+@inproceedings{gomez-etal-2019-continuous,
     title = "A Continuous Improvement Framework of Machine Translation for {S}hipibo-Konibo",
-    author = "Montoya, H{\'e}ctor Erasmo G{\'o}mez  and
+    author = "G{\'o}mez Montoya, H{\'e}ctor Erasmo and
       Rivas Rojas, Kervy Dante  and
       Oncevay, Arturo",
     booktitle = "Proceedings of the 2nd Workshop on Technologies for MT of Low Resource Languages",
