@@ -6,6 +6,8 @@ There are three sources for Spanish (es) - Shipibo-Konibo (shp) parallel data:
 2. Educational: Translated sentences from books for bilingual education
 3. Dictionary: SIL dictionary entries and examples (https://www.sil.org/resources/archives/30143)
 
+The three datasets are concatenated (in the specified order) in ```train.es``` and ```train.shp```.
+
 If you use these corpora, please cite the following articles:
 ```
 @inproceedings{montoya-etal-2019-continuous,
