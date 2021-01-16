@@ -45,7 +45,7 @@ as follows:
    - *Hñähñu*: oto
    - *Náhuatl*: nah
    - *Quechua*: quy
-   - *Rarámuri*: tnh
+   - *Rarámuri*: tar
    - *Shipibo-konibo*: shi
-   - *Wixarika*: wix
+   - *Wixarika*: hch
 
