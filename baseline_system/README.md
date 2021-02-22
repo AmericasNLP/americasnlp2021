@@ -12,7 +12,7 @@ one based purely on Python files, and another using command-line tools.
 
 1. Install
 
-Install PyTroch following the oficial web page instrucions: [link](https://pytorch.org/get-started/locally/)
+Install PyTorch following the official web page instrucions: [link](https://pytorch.org/get-started/locally/)
 Then execute the following command:
 ```
 pip install -r requirements.txt
@@ -31,10 +31,10 @@ as follows:
    - `[NUMBER_EPOCHS]` is the maximum number of epochs the system will be trained for.
    - `[-CLI|-REPO]` defines the way fariseq is called. The default is -CLI.
 
-   Please note that each `DATA_DIR` must contain train, dev and test files for the source and target language. In case the data is not yet released, please use a custum split.
+   Please note that each `DATA_DIR` must contain train, dev and test files for the source and target language. In case that data is not yet released, please use a custom split.
 
 
-3. If you prefer to use a costum fariseq code. Please use the *-REPO* flag and specify in the code the *FAIRSEQ\_DIR* variable with the path that contains fairseq.
+3. If you prefer to use a custom fariseq code. Please use the *-REPO* flag and specify in the code the *FAIRSEQ\_DIR* variable with the path that contains fairseq.
 
 ### Languages
 
@@ -48,4 +48,18 @@ as follows:
    - *Rarámuri*: tar
    - *Shipibo-konibo*: shi
    - *Wixarika*: hch
+
+
+### Baseline Results
+| Language | BLEU | ChrF++ (0-1) |
+|---|---|---|
+|Aymara | 0.47 | 0.189 |
+|Bribri | 0.54 | 0.077 |
+|Guaraní | - | - |
+|Hñähñu | - | - |
+|Náhuatl | 0.33 | 0.182 |
+|Quechua | 1.60 | 0.33 |
+|Rarámuri | 0.01 | 0.046 |
+|Shipibo-konibo | - | - |
+|Wixarika | 3.18 | 0.126 |
 
