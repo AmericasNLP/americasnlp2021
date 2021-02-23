@@ -40,6 +40,7 @@ as follows:
 
    The language codes are as following:
    - *Aymara*: aym
+   - *Asháninka* : cni
    - *Bribri*: bzd
    - *Guaraní*: gn
    - *Hñähñu*: oto
@@ -51,9 +52,10 @@ as follows:
 
 
 ### Baseline Results
-| Language | BLEU | ChrF++ (0-1) |
+| Language | BLEU | ChrF (0-1) |
 |---|---|---|
 |Aymara | 0.47 | 0.189 |
+|Asháninka |- | - |
 |Bribri | 0.54 | 0.077 |
 |Guaraní | - | - |
 |Hñähñu | - | - |
