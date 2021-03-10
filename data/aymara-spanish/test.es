@@ -399,7 +399,6 @@ Aparentemente, esta no es tu primera vez con un perro.
 Me presenté en el gimnasio hoy y él vino más tarde y me saludó.
 Sí, él sugirió solo comprar una fregona como la que usarías.
 Sí, tu sabes que ella era genial.
-
 su hermana no estaba casada
 La presión del mostrador te mata todo el tiempo.
 Fue un cambio de humor increíble.
