@@ -55,13 +55,13 @@ as follows:
 | Language | BLEU | ChrF (0-1) |
 |---|---|---|
 |Aymara | 0.47 | 0.189 |
-|Asháninka | 0.05 | 0.11 |
+|Asháninka | 0.05 | 0.104 |
 |Bribri | 0.54 | 0.077 |
-|Guaraní | 8.65 | 0.246 |
-|Hñähñu | 0.02 | 0.076 |
+|Guaraní | 8.84 | 0.22 |
+|Hñähñu | 0.02 | 0.052 |
 |Náhuatl | 0.33 | 0.182 |
 |Quechua | 1.60 | 0.33 |
 |Rarámuri | 0.01 | 0.046 |
-|Shipibo-konibo | 0.32 | 0.159 |
+|Shipibo-konibo | 0.34 | 0.139 |
 |Wixarika | 3.18 | 0.126 |
 
