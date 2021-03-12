@@ -47,7 +47,7 @@ as follows:
    - *Náhuatl*: nah
    - *Quechua*: quy
    - *Rarámuri*: tar
-   - *Shipibo-konibo*: shi
+   - *Shipibo-konibo*: shp
    - *Wixarika*: hch
 
 
@@ -55,13 +55,13 @@ as follows:
 | Language | BLEU | ChrF (0-1) |
 |---|---|---|
 |Aymara | 0.47 | 0.189 |
-|Asháninka |- | - |
+|Asháninka | 0.05 | 0.11 |
 |Bribri | 0.54 | 0.077 |
-|Guaraní | - | - |
-|Hñähñu | - | - |
+|Guaraní | 8.65 | 0.246 |
+|Hñähñu | 0.02 | 0.076 |
 |Náhuatl | 0.33 | 0.182 |
 |Quechua | 1.60 | 0.33 |
 |Rarámuri | 0.01 | 0.046 |
-|Shipibo-konibo | - | - |
+|Shipibo-konibo | 0.32 | 0.159 |
 |Wixarika | 3.18 | 0.126 |
 
