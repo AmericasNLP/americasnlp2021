@@ -54,13 +54,13 @@ as follows:
 ### Baseline Results
 | Language | BLEU | ChrF (0-1) |
 |---|---|---|
-|Aymara | 0.47 | 0.189 |
-|Asháninka | 0.05 | 0.104 |
+|Aymara | 0.30 | 0.188 |
+|Asháninka | 0.03 | 0.104 |
 |Bribri | 0.54 | 0.077 |
-|Guaraní | 8.84 | 0.22 |
-|Hñähñu | 0.02 | 0.052 |
+|Guaraní | 3.26 | 0.22 |
+|Hñähñu | 0.01 | 0.059 |
 |Náhuatl | 0.33 | 0.182 |
-|Quechua | 1.60 | 0.33 |
+|Quechua | 1.58 | 0.331 |
 |Rarámuri | 0.01 | 0.046 |
 |Shipibo-konibo | 0.34 | 0.139 |
 |Wixarika | 3.18 | 0.126 |
