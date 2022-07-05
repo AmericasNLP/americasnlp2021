@@ -23,15 +23,34 @@ if __name__ == '__main__':
     parser.add_argument('--detailed_output', action='store_const', const=True, default=False, help='(sacrebleu) Print additional BLEU information (default=False)')
     args = parser.parse_args()
 
+    gold_lines = []
+    no_translations = []
+    with open(args.gold_reference, 'r') as f:
+        for i, line in enumerate(f):
+
+            if len(line.strip()) == 0:
+                no_translations.append(i)
+                continue
+
+            gold_lines.append(line.strip())
 
     system_lines = []
+
+    print(no_translations)
+
     with open(args.system_output, 'r') as f:
-        for line in f:
+        for i,line in enumerate(f):
+
+            if i in no_translations:
+                continue
+
             system_lines.append(line.strip())
 
-    gold_lines = []
-    with open(args.gold_reference, 'r') as f:
-        for line in f:
-            gold_lines.append(line.strip())
+
+    assert len(system_lines) == len(gold_lines)
+
+    print(len(system_lines))
+
+
 
     calculate_score_report(system_lines, [gold_lines], score_only=not args.detailed_output)
